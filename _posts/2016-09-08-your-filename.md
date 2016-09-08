@@ -4,7 +4,7 @@ published: true
 mathjax: false
 featured: false
 comments: false
-title: ''
+title: An Awesome Headline!
 ---
 ## A New Post
 Hello
