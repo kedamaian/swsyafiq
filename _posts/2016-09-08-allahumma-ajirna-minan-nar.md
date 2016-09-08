@@ -3,6 +3,8 @@ layout: post
 published: true
 author: tehnoblequran
 title: Allahumma Ajirna Minan Nar
+categories:
+  - tazkirah
 ---
 ## [Dagingnya, Darahnya Dan Kulitnya Diharamkan Atas Api Neraka]
 
