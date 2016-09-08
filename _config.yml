@@ -2,8 +2,8 @@
 title: "kedamaian"
 email: swsyafiq@protonmail.ch
 description: "A dark blog theme for Jekyll."
-#baseurl: "/swsyafiq"
-baseurl: ""
+baseurl: "/swsyafiq"
+#baseurl: ""
 url: "https://kedamaian.github.io/swsyafiq"
 title_description: "Saat itu tetap indah pada tempat dan zamannya.. bukan kerana kekasaran kandungan waktunya tetapi kerana kehalusan dari kandungan hikmahNya.."
 #title_image: "https://www.gravatar.com/avatar/00000000000000000000000000000000?s=500&d=mm"
