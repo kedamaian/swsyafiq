@@ -3,11 +3,8 @@ layout: post
 published: true
 author: tehnoblequran
 title: Panduan Mencari Kebenaran
-description: ''
-headline: ''
-modified: ''
-categories: ''
-tags: ''
+categories:
+  - tazkirah
 ---
 ### Bagaimana untuk tahu yang mana satu yang benar?
 
