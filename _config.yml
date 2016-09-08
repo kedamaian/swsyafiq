@@ -76,7 +76,7 @@ prose:
           element: "multiselect"
           label: "Add categories"
           placeholder: "Choose categories"
-          value: personal
+          value: Tazkirah
           options:
             - name: "Hadis"
               value: Hadis
@@ -85,15 +85,15 @@ prose:
             - name: "Ilmu dan Amalan"
               value: Ilmu dan Amalan
             - name: "Security"
-              value: security
+              value: Security
             - name: "Privacy & Forensics"
-              value: privacy & forensics
+              value: Privacy & Forensics
             - name: "Howto"
-              value: howto
+              value: Howto
             - name: "Personal"
-              value: personal
-            - name: "Web-Development"
-              value: webdevelopment
+              value: Personal
+            - name: "Web Development"
+              value: Web Development
           alterable: true
       - name: "tags"
         field:
