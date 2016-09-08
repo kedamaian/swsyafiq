@@ -103,5 +103,5 @@ prose:
           value: "tehnoblequran"
       - name: "thumbnail"
         field:
-          element: "thumbnail"
-          value: "fa-heart"
+          element: "text"
+          value: "heart"
