@@ -3,7 +3,7 @@ layout: post
 published: true
 author: tehnoblequran
 thumbnail: heart
-title: ''
+title: An Awesome Headline!
 ---
 ## A New Post
 
