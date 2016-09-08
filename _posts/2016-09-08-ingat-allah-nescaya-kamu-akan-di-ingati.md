@@ -4,6 +4,6 @@ published: true
 author: tehnoblequran
 title: Ingat Allah. Nescaya Kamu Akan di Ingati.
 categories:
-  - tazkirah
+  - Tazkirah
 ---
 ![IngatAllah.jpg]({{site.baseurl}}/images/IngatAllah.jpg)
