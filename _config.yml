@@ -16,7 +16,7 @@ post_limit: 5
 
 # Social usernames/URLs
 twitter_username: tehnoblequran
-github_username:  kedamaian
+#github_username:  kedamaian
 linkedin_link: https://facebook.com/
 stackoverflow_link: https://instagram.com/swsyafiq/
 google_plus_link: https://www.reddit.com/r/AskNetsec/
@@ -61,10 +61,10 @@ prose:
           element: "text"
           label: "Description"
           placeholder: "Enter Post Description"
-      - name: "headline"
+      - name: "Headline"
         field:
           element: "text"
-          label: "headline"
+          label: "Headline"
           placeholder: "Enter Post Headline"
       - name: "modified"
         field:
@@ -78,16 +78,20 @@ prose:
           placeholder: "Choose categories"
           value: personal
           options:
+            - name: "Hadis"
+              value: Hadis
             - name: "Personal"
               value: personal
-            - name: "Engineering"
-              value: engineering
-            - name: "Physics"
-              value: physics
-            - name: "Psychology"
-              value: psychology
-            - name: "Interesting"
-              value: interesting
+            - name: "Ilmu dan Amalan"
+              value: Ilmu dan Amalan
+            - name: "Security"
+              value: security
+            - name: "Privacy & Forensics"
+              value: privacy & forensics
+            - name: "Howto"
+              value: howto
+            - name: "Tazkirah"
+              value: tazkirah
             - name: "Web-Development"
               value: webdevelopment
           alterable: true
