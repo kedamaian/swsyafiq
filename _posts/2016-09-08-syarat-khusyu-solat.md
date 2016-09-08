@@ -4,7 +4,7 @@ published: true
 author: tehnoblequran
 title: Syarat Khusyu' Solat
 categories:
-  - tazkirah
+  - Tazkirah
 ---
 Seseorang bertanya kepada Sayyidina Al-Habib Umar bin Hafidz:
 
