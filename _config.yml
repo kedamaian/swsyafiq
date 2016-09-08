@@ -80,8 +80,8 @@ prose:
           options:
             - name: "Hadis"
               value: Hadis
-            - name: "Personal"
-              value: personal
+            - name: "Tazkirah"
+              value: tazkirah
             - name: "Ilmu dan Amalan"
               value: Ilmu dan Amalan
             - name: "Security"
@@ -90,8 +90,8 @@ prose:
               value: privacy & forensics
             - name: "Howto"
               value: howto
-            - name: "Tazkirah"
-              value: tazkirah
+             - name: "Personal"
+              value: personal
             - name: "Web-Development"
               value: webdevelopment
           alterable: true
