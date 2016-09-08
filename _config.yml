@@ -78,6 +78,8 @@ prose:
           placeholder: "Choose categories"
           value: Tazkirah
           options:
+            - name: "Keilmuan"
+              value: Keilmuan
             - name: "Hadis"
               value: Hadis
             - name: "Tazkirah"
@@ -94,6 +96,12 @@ prose:
               value: Personal
             - name: "Web Development"
               value: Web Development
+            - name: "Penjazaman Amal"
+              value: Penjazaman Amal
+            - name: "Mutiara Hikmah"
+              value: Mutiara Hikmah
+            - name: "Syariat"
+              value: Syariat
           alterable: true
       - name: "tags"
         field:
