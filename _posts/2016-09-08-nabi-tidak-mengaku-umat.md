@@ -3,11 +3,8 @@ layout: post
 published: true
 author: tehnoblequran
 title: Nabi Tidak Mengaku Umat!
-description: ''
-headline: ''
-modified: ''
-categories: ''
-tags: ''
+categories:
+  - Tazkirah
 ---
 <iframe width="459" height="344" src="https://www.youtube.com/embed/71NAE3pEw8o" frameborder="0" allowfullscreen></iframe>
 
