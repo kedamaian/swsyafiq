@@ -90,7 +90,7 @@ prose:
               value: privacy & forensics
             - name: "Howto"
               value: howto
-             - name: "Personal"
+            - name: "Personal"
               value: personal
             - name: "Web-Development"
               value: webdevelopment
