@@ -4,7 +4,7 @@ published: true
 author: tehnoblequran
 title: Panduan Mencari Kebenaran
 categories:
-  - tazkirah
+  - Tazkirah
 ---
 ### Bagaimana untuk tahu yang mana satu yang benar?
 
