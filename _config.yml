@@ -38,7 +38,6 @@ exclude: [vendor]
 prose:
   rooturl: '_posts'
   siteurl: 'https://kedamaian.github.io/swsyafiq/'
-  relativeLinks: 'https://kedamaian.github.io/swsyafiq/links.jsonp'
   media: 'images'
   metadata:
     _posts:
@@ -65,7 +64,7 @@ prose:
       - name: "headline"
         field:
           element: "text"
-          label: "beadline"
+          label: "headline"
           placeholder: "Enter Post Headline"
       - name: "modified"
         field:
@@ -97,3 +96,12 @@ prose:
           element: "text"
           label: "Tags"
           placeholder: "Enter tags, separated by spaces"
+      - name: "author"
+        field:
+          element: "text"
+          label: "author"
+          value: "tehnoblequran"
+      - name: "thumbnail"
+        field:
+          element: "thumbnail"
+          value: "fa-heart"
