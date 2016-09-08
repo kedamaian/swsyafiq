@@ -37,8 +37,8 @@ exclude: [vendor]
 
 prose:
   rooturl: '_posts'
-  siteurl: 'http://kedamaian.github.io/swsyafiq/'
-  relativeLinks: 'http://kedamaian.github.io/swsyafiq/links.jsonp'
+  siteurl: 'https://kedamaian.github.io/swsyafiq/'
+  relativeLinks: 'https://kedamaian.github.io/swsyafiq/links.jsonp'
   media: 'images'
   metadata:
     _posts:
