@@ -13,7 +13,8 @@ tags:
  - action
  - carte
  - noire
----\
+---
+
 ##  Panduan Mencari Kebenaran
 
 ### Bagaimana untuk tahu yang mana satu yang benar?
