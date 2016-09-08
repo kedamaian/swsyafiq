@@ -1,6 +1,19 @@
 ---
 published: true
 ---
+---
+layout:     post
+title:      Panduan Mencari Kebenaran
+date:       2016-09-08 12:47:19
+summary:    Kebenaran hakiki
+categories: jekyll
+thumbnail: cogs
+tags:
+ - demo
+ - action
+ - carte
+ - noire
+---\
 ##  Panduan Mencari Kebenaran
 
 ### Bagaimana untuk tahu yang mana satu yang benar?
