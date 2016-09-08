@@ -18,28 +18,29 @@ Setelah meneliti setiap pandangan ahli mesyuarat dan hujah-hujah yang dikemukaka
 
 4. Antara amalan yang didakwa sebagai bid‘ah adalah:
 
-'1. Konsep penggunaan dan pengamalan Hadis Dhaif.
-2. Membaca Yaasin pada malam Jumaat.
-3. Membaca tahlil dan talqin untuk si mati.
-4. Mengadakan kenduri arwah.
-5. Menyambut hari-hari kebesaran Islam seperti Maulid al-Rasul, Israk Mikraj dan Maal Hijrah pada setiap tahun.
-6. Membaca Yaasin 3 kali pada malam nisfu Syaaban.
-7. Berdoa beramai-ramai selepas solat berjemaah.
-8. Membaca wirid dan zikir secara kuat/nyaring beramai – ramai selepas solat fardhu.
-9. Membaca “Basmallah” secara kuat / nyaring dalam solat fardhu.
-10. Menyebut lafaz “Usalli” dalam niat solat.
-11. Membaca qunut dalam solat subuh.
-12. Bersalaman selepas solat berjemaah.
-13. Solat sunat sebelum solat Maghrib.
-14. Solat sunat sebelum Jumaat.
-15. Fidyah solat.
-16. Terbatal wuduk dengan sebab bersentuhan lelaki dengan perempuan yang harus dikahwini.
-17. Bilangan rakaat bagi solat sunat tarawih selain 8 rakaat.
-18. Menyapu muka selepas salam.
-19. Akikah dengan binatang al-an‘am selain kambing.
-20. Amalan bertawassul dan bertabarruk.
-21. Berdoa dan membaca al-Quran di kubur.
-22. Doa akhir tahun dan awal tahun.'
+- Konsep penggunaan dan pengamalan Hadis Dhaif.
+- Membaca Yaasin pada malam Jumaat.
+- Membaca tahlil dan talqin untuk si mati.
+- Mengadakan kenduri arwah.
+- Menyambut hari-hari kebesaran Islam seperti Maulid al-Rasul, Israk Mikraj dan Maal Hijrah pada setiap tahun.
+- Membaca Yaasin 3 kali pada malam nisfu Syaaban.
+- Berdoa beramai-ramai selepas solat berjemaah.
+- Membaca wirid dan zikir secara kuat/nyaring beramai – ramai selepas solat fardhu.
+- Membaca “Basmallah” secara kuat / nyaring dalam solat fardhu.
+- Menyebut lafaz “Usalli” dalam niat solat.
+- Membaca qunut dalam solat subuh.
+- Bersalaman selepas solat berjemaah.
+- Solat sunat sebelum solat Maghrib.
+- Solat sunat sebelum Jumaat.
+- Fidyah solat.
+- Terbatal wuduk dengan sebab bersentuhan lelaki dengan perempuan yang harus dikahwini.
+- Bilangan rakaat bagi solat sunat tarawih selain 8 rakaat.
+- Menyapu muka selepas salam.
+- Akikah dengan binatang al-an‘am selain kambing.
+- Amalan bertawassul dan bertabarruk.
+- Berdoa dan membaca al-Quran di kubur.
+- Doa akhir tahun dan awal tahun.
+
 
 Mesyuarat bersetuju untuk mewartakan fatwa ini.
 
