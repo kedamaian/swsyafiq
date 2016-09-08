@@ -2,10 +2,12 @@
 title: "kedamaian"
 email: swsyafiq@protonmail.ch
 description: "A dark blog theme for Jekyll."
-baseurl: "/swsyafiq"
+#baseurl: "/swsyafiq"
+baseurl: ""
 url: "https://kedamaian.github.io/swsyafiq"
 title_description: "Saat itu tetap indah pada tempat dan zamannya.. bukan kerana kekasaran kandungan waktunya tetapi kerana kehalusan dari kandungan hikmahNya.."
-title_image: "https://www.gravatar.com/avatar/00000000000000000000000000000000?s=500&d=mm"
+#title_image: "https://www.gravatar.com/avatar/00000000000000000000000000000000?s=500&d=mm"
+title_image: "https://static.pexels.com/photos/58557/pexels-photo-58557-medium.jpeg"
 google_analytics: "UA-20365477-4"
 disqus_account: cartenoire
 github_repository: https://github.com/kedamaian/swsyafiq
@@ -15,9 +17,9 @@ post_limit: 5
 # Social usernames/URLs
 twitter_username: tehnoblequran
 github_username:  kedamaian
-linkedin_link: http://carte-noire.jacobtomlinson.co.uk/
-google_plus_link: http://carte-noire.jacobtomlinson.co.uk/
-stackoverflow_link: http://carte-noire.jacobtomlinson.co.uk/
+linkedin_link: https://facebook.com/
+stackoverflow_link: https://instagram.com/swsyafiq/
+google_plus_link: https://www.reddit.com/r/AskNetsec/
 
 # Footer
 footer_left: "Made with <i class=\"fa fa-heart\"></i> by <a href=\"https://twitter.com/tehnoblequran\">tehnoblequran</a>"
