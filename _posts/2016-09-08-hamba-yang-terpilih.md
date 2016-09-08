@@ -3,11 +3,8 @@ layout: post
 published: true
 author: tehnoblequran
 title: Hamba yang Terpilih
-description: ''
-headline: ''
-modified: ''
-categories: ''
-tags: ''
+categories:
+  - tazkirah
 ---
 Imam Al Ghazali berpesan: "Ketika kamu merasai takdir الله sentiasa tidak menyebelahi mu pada kenikmatan dunia dan terlampau banyak penderitaan dan bala bencana yang ditanggung, ketahuilah bahawasanya kamu mulia di sisiNya.
 
