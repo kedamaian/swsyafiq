@@ -4,7 +4,7 @@ published: true
 author: tehnoblequran
 title: Balasan Berselawat
 categories:
-  - tazkirah
+  - Tazkirah
 ---
 Hari Jumaat, Hari berselawat, Al Habib Umar bin Hafidz ketika menceritakan kelebihan selawat... kata Habib, " Berapa banyak dimajlis ini kita berselawat ke atas Nabi? Apa yang dijanjikan selawat kita ke atasnya? **Balasannya, Allah pemilik Arays yang Agung akan membalas selawat kita.** Seandainya Nabi membalas selawat kita, itu pun sudah sangat besar bagi kita.
 
