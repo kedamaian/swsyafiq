@@ -4,7 +4,7 @@ published: true
 author: tehnoblequran
 title: Allahumma Ajirna Minan Nar
 ---
-[Dagingnya, Darahnya Dan Kulitnya Diharamkan Atas Api Neraka]
+## [Dagingnya, Darahnya Dan Kulitnya Diharamkan Atas Api Neraka]
 
 " Di zaman Rasulullah صلى الله عليه وسلم, ada seorang yang mungkin rendah di mata manusia tetapi Mulia disisi Allah سبحانه وتعالى. Orang ini tidak berdoa melainkan dengan satu doa sahaja yakni, (Ya Allah jauhkanlah aku daripada Api Neraka, Ya Allah jagalah aku dari tergelincir ke dalam Api Neraka, Ya Allah janganlah jadikan aku daripada kalangan Ahli Neraka). Inilah sahaja doanya.
 
