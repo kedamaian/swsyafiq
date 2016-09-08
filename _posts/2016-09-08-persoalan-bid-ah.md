@@ -3,6 +3,8 @@ layout: post
 published: true
 author: tehnoblequran
 title: Persoalan Bid'ah
+categories:
+  - Ilmu dan Amalan
 ---
 ## Persoalan Bid‘ah Dalam Masalah Ikhtilaf/Khilaf Perkara Furuk
 
