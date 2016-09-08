@@ -6,7 +6,7 @@ title: Syarat Khusyu' Solat
 ---
 Seseorang bertanya kepada Sayyidina Al-Habib Umar bin Hafidz:
 
-"Bagaimana agar kita boleh khusyu?" Al-Habib Umar bin Hafidz menjawab: "Seseorang di katakan khusyu' jika memenuhi 6 kriteria, iaitu:
+> "Bagaimana agar kita boleh khusyu?" Al-Habib Umar bin Hafidz menjawab: "Seseorang di katakan khusyu' jika memenuhi 6 kriteria, iaitu:
 
 1. (Hudurul Qalb) Hadirnya Hati. Hadirnya hati harus di latih terus-menerus, bila hati kemana-mana paksa untuk kembali lagi, InsyaAllah , hati akan terbiasa hadir.
 
@@ -22,4 +22,4 @@ Seseorang bertanya kepada Sayyidina Al-Habib Umar bin Hafidz:
 
 Kemudian Al-Habib Umar mengatakan:
 
-"Jika enam kriteria ini terdapat padamu maka solatmu boleh dikatakan solat yang khusyu' "Mudah-mudahan Allah memberikan taufik kepada kita sehingga mampu mengamalkan tips yang ada di atas ini. Mudah-mudahan Allah Subhanahu Wa Ta'ala menjadikan kita termasuk orang-orang yang khusyu' dalam solat."
+> "Jika enam kriteria ini terdapat padamu maka solatmu boleh dikatakan solat yang khusyu' "Mudah-mudahan Allah memberikan taufik kepada kita sehingga mampu mengamalkan tips yang ada di atas ini. Mudah-mudahan Allah Subhanahu Wa Ta'ala menjadikan kita termasuk orang-orang yang khusyu' dalam solat."
