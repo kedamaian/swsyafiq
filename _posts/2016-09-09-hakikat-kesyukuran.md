@@ -108,7 +108,7 @@ Katakanlah: “Dengan kurnia Allah dan rahmat-Nya, hendaklah dengan itu mereka b
 
 Allah menyebutnya dengan firmannya:
 
-    “Wahai Daud. katakanlah kepada orang-orang yang jujur : Hendaklah mereka bergembira dengan-Ku, hendaklah mereka merasakan nikmat dengan mengingatku. (Jami’, Nafahat hlm 336)”
+    Wahai Daud. katakanlah kepada orang-orang yang jujur: Hendaklah mereka bergembira denganKu, hendaklah mereka merasakan nikmat dengan mengingatKu. (Jami’, Nafahat hlm 336)
 
  
 
