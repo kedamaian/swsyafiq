@@ -109,13 +109,13 @@ Hadis seterusnya, Uthman R.anhu berkata, Rasulullah SAW bersabda yang bermaksud:
 
 Begitu juga orang yang cuai mengerjakan solat, sama ada sengaja melengah-lengahkan atau meninggalkannya akan membawa kepada kekufuran sekiranya dia berterusan begitu. Oleh itu, solat merupakan santapan utama bagi iman sebagaimana yang telah disebutkan.
 
-Seterusnya hadis daripada Ummu Aiman, Rasulullah SAW bersabda yang bermaksud: Jangan engkau sengaja meninggalkan solat, sesungguhnya sesiapa yang sengaja meninggalkan solat dia akan terlepas daripada mendapat perlindungan Allah dan Rasul-Nya."  (Riwayat Imam Ahmad)
+Seterusnya hadis daripada Ummu Aiman, Rasulullah SAW bersabda yang bermaksud: `Jangan engkau sengaja meninggalkan solat,` sesungguhnya sesiapa yang sengaja meninggalkan solat dia akan terlepas daripada mendapat perlindungan Allah dan Rasul-Nya."  (Riwayat Imam Ahmad)
 
 
 
 KENYATAAN MUFTI WILAYAH PERSEKUTUAN
 
-Kami sarankan kepada ketua rombongan atau amir jemaah musafir untuk sentiasa mengingatkan kepada jemaah dan ahli rombongan 'supaya melaksanakan solat.' Ini selaras dengan firman Allah S.W.T:
+Kami sarankan kepada ketua rombongan atau amir jemaah musafir untuk sentiasa mengingatkan kepada jemaah dan ahli rombongan `supaya melaksanakan solat.` Ini selaras dengan firman Allah S.W.T:
 
 وَأمُر أَهْلَكَ بِالصَّلاَةِ وَاصْطَبِرْ عَلَيْهَا
 
