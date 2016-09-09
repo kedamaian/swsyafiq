@@ -4,7 +4,7 @@ published: true
 author: tehnoblequran
 title: Solat di atas Kapal Terbang
 categories:
-  - Syariat
+  - Howto
 ---
 ## Hukum dan Caranya
 
