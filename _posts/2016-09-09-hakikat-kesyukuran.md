@@ -5,10 +5,6 @@ author: tehnoblequran
 title: Hakikat Kesyukuran
 categories:
   - Tazkirah
-description: ''
-Headline: ''
-modified: ''
-tags: ''
 ---
 
 
@@ -86,7 +82,7 @@ Sahabatku, dengan itu jelaslah pada anda betapa susahnya untuk menerima satu kur
 
 —————————————-
 
-“Anakku, menurut ahli kebenaran, syukur merupakan kesedaran akan nikmat dengan jalan tunduk berserah diri. Allah memberi nama pada dirinya dengan Syukur yang berarti bahwa Allah membalas mereka yang bersyukur kepada-Nya.
+“Anakku, menurut ahli kebenaran, syukur merupakan kesedaran akan nikmat dengan jalan tunduk berserah diri. Allah memberi nama pada dirinya dengan Syukur yang bererti bahwa Allah membalas mereka yang bersyukur kepada-Nya.
 
 Adapun hakikat syukur menurut Imam Al Qusyairi adalah: “pujian bagi yang berbuat baik dengan menyebut kebaikannya.”
 
