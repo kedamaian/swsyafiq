@@ -37,7 +37,7 @@ Mereka akan merasa susah dan penat untuk mendapat sesuatu kurnia kerana terikat 
 
 Firman Allah telah menegaskan kepadanya:
 
-    Maka tatkala mereka melupakan peringatan yang telah diberikan kepada mereka, Kami pun membukakan semua pintu-pintu kesenangan untuk mereka: sehingga apabila mereka bergembira dengan apa yang telah diberikan kepada mereka, Kami seksa mereka dengan sekelip mata, maka ketika itu mereka terdiam berputus asa. (QS Al An’aam: 44)
+    Maka tatkala mereka melupakan peringatan yang telah diberikan kepada mereka, Kami pun membukakan semua pintu-pintu kesenangan untuk mereka: sehingga apabila mereka bergembira dengan apa yang telah diberikan kepada mereka, Kami siksa mereka dengan sekelip mata, maka ketika itu mereka terdiam berputus asa. (QS Al An’aam: 44)
 
 Mereka membaca sesuatu mengikut apa yang tersurat.
 
@@ -88,7 +88,7 @@ Sahabatku, dengan itu jelaslah pada anda betapa susahnya untuk menerima satu kur
 
 “Anakku, menurut ahli kebenaran, syukur merupakan kesedaran akan nikmat dengan jalan tunduk berserah diri. Allah memberi nama pada dirinya dengan Syukur yang berarti bahwa Allah membalas mereka yang bersyukur kepada-Nya.
 
-Adapun hakikat syukur menurut Imam Al Qusyairi adalah : “pujian bagi yang berbuat baik dengan menyebut kebaikannya.”
+Adapun hakikat syukur menurut Imam Al Qusyairi adalah: “pujian bagi yang berbuat baik dengan menyebut kebaikannya.”
 
 Maka Allah swt adalah Maha Syukur bererti pujian-Nya atas hamba-Nya yang tidak terhitung. Melimpahkan syukur itu adalah sifat-Nya dan Dia-lah pemberi pahala yang tidak terhitung, sekalipun ketaatan hamba-Nya tidak seberapa memadai.
 
@@ -102,11 +102,11 @@ Anakku, manusia biasanya baru bersyukur ketika ia menerima atau berhadapan denga
 **Golongan kedua** adalah orang yang bergembira dengan kenikmatan kerana ia melihat kenikmatan-kenikmatan tersebut telah diberikan kepada mereka oleh Allah yang memiliki kedudukan istimewa. Allah telah memberikan kenikmatan kepada mereka sebagai rahmat dari-Nya. Orang-orang ini telah berhasil menghapuskan mahluk, dan mampu menyaksikan sebab dari segala sebab musabab dengan melampaui sebab-akibat. Ia adalah seorang hamba yang bersemuka dengan hakikat.
 
 Allah menyebut orang ini sebagai:
-Katakanlah: “Dengan kurnia Allah dan rahmat-Nya, hendaklah dengan itu mereka bergembira. Kurnia Allah dan rahmat-Nya itu adalah lebih baik dari apa yang mereka kumpulkan.” (QS Yunus : 58) 
+Katakanlah: “Dengan kurnia Allah dan rahmat-Nya, hendaklah dengan itu mereka bergembira. Kurnia Allah dan rahmat-Nya itu adalah lebih baik dari apa yang mereka kumpulkan.” (QS Yunus: 58) 
 
 **Golongan ketiga** adalah orang yang bergembira dengan Allah. Bukan kerana kesenangan lahiriah dari kenikmatan itu dan bukan pula kerana kurnia-kurnia batiniah yang measyikkan dirinya, melainkan kerana penglihatannya kepada Allah, konsentrasinya kepada-Nya, dan berpalingnya ia dari segala yang selain-Nya, sehingga ia hanya menyaksikan diri-Nya. Orang ini tidak lagi bergembira dengan pemberian, dan tidak lagi gembira kerana diberi kenikmatan oleh dzat yang agung, melainkan, ia bergembira kerana ia telah bercengkrama dengan Sang Pemberi kenikmatan.
 
-Allah menyebutnya dengan firmannya :
+Allah menyebutnya dengan firmannya:
 
     “Wahai Daud. katakanlah kepada orang-orang yang jujur : Hendaklah mereka bergembira dengan-Ku, hendaklah mereka merasakan nikmat dengan mengingatku. (Jami’, Nafahat hlm 336)”
 
@@ -137,4 +137,4 @@ Maha Suci Engkau, tidaklah kuat hamba atas memujinya
 
 Rasulullah s.a.w pernah berdoa sebagai suatu pengakuan dari baginda akan tidak upayaannya hendak menunaikan sepenuh kesyukuran kepada Allah Ta’ala:
 
-    ❝Ya Allah, aku berlindung dengan keredhaanMu daripada kemurkaanMu, dengan kemaafanMu daripada siksaanMu, dan aku berlindung denganMu daripada tidak mampu memujiMu seperti Engkau memuji diriMu sendiri.❞
+> Ya Allah, aku berlindung dengan keredhaanMu daripada kemurkaanMu, dengan kemaafanMu daripada siksaanMu, dan aku berlindung denganMu daripada tidak mampu memujiMu seperti Engkau memuji diriMu sendiri.
