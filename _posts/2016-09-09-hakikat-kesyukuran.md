@@ -57,10 +57,7 @@ Pandangan hatinya jelas melihat dan kadang-kadang menyaksikan betapa Allah senti
 
 Golongan ini melihat atau menyaksikan kurnia Allah dalam bentuk-bentuk penzahiranNya yang Mutlak. Tidak lepas sesuatu melainkan Allah meliputi tiap-tiap sesuatu. Mereka melihat Allah dalam tiap-tiap sesuatu dan mereka telah sampai kepada hakikat Syukur kerana hakikat Syukur itu ialah melihat kepada yang memberi bukan kepada apa yang diberi.
 
-Katakanlah: “Allah, kemudian biarkanlah mereka berlarut-larut dalam kesesatan mereka.” (QS Al An’aam: 91)
-
-“Wahai Daud. katakanlah kepada orang-orang yang jujur:
-Hendaklah mereka bergembira dengan-Ku, hendaklah mereka merasakan nikmat dengan mengingatku. (Jami’, Nafahat hlm 336)” 
+Katakanlah: “Allah, kemudian biarkanlah mereka berpanjangan dalam kesesatan mereka.” (QS Al An’aam: 91)
 
 Oleh kerana itu tidaklah payah(malahan mudah) untuk mendapatkan kurnia Allah pada orang-orang yang selalu bersyukur bahkan mereka sentiasa tenggelam dalam lautan kurnia Allah Yang Maha Pemberi.
 
