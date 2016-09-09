@@ -11,6 +11,7 @@ Almarhum Allamah Sheikh Sayyid Muhammad Al-Maliki rah. bercerita:
 Seorang wanita bertanya kepada mufti: 
 
 > "Bagaimana caranya untuk mengejutkan anak-anak saya yang sedang tidur terlalu nyenyak untuk solat Subuh?
+
 Mufti menjawab: "Apa yang akan kamu lakukan jika rumah kamu terbakar dan pada ketika itu anak-anak kamu sedang tidur?" 
 
 Wanita itu berkata: "Saya akan mengejutkan mereka dari tidur".
