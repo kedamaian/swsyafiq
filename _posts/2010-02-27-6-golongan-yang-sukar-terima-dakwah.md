@@ -134,10 +134,13 @@ Surah Al-Baqarah [2] : 153 153. Hai orang-orang yang beriman, jadikanlah sabar d
 Hadis: Dari Mu’awiyah r.a : Rasulullah saw bersabda, “Sentiasa ada segolongan umat ku yang selalu berjuang menegakkan agama AllahTa’ala. Mereka tidak akan celaka oleh orang-orang yang menghina atau menentang mereka sampai hari kiamat. Bahkan mereka tetap menang atas semua manusia.” (1873) [Sahih Muslim] 
 
 Rujukan: 
-- Terjemahan Al-Quran dan Tafsir Ibn Katsir 
-- Hadis-hadis sahih 
-- Sirah dan Riwayat Hidup Nabi Muhammad Saw [Abu Mazaya Al-Hafiz] 
-- Metodologi Dakwah [Prof. Dr. Abd Aziz bin Mohd. Zin] 
-- As-Sunnah dalam mengamalkan As-Sunnah [Ustaz Fadlan bin Mohd. Othman]
 
-Make Money Online : http://ow.ly/KNICZ
+- Terjemahan Al-Quran dan Tafsir Ibn Katsir
+
+- Hadis-hadis sahih
+
+- Sirah dan Riwayat Hidup Nabi Muhammad Saw [Abu Mazaya Al-Hafiz]
+
+- Metodologi Dakwah [Prof. Dr. Abd Aziz bin Mohd. Zin]
+
+- As-Sunnah dalam mengamalkan As-Sunnah [Ustaz Fadlan bin Mohd. Othman]
