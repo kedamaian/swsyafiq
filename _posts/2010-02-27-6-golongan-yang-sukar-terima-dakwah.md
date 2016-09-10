@@ -29,7 +29,9 @@ Surah An-Nuur [24] : 54 54. Katakanlah: "Taat kepada Allah dan taatlah kepada ra
 ## ISI PERBINCANGAN
 Persoalannya, sejauh mana dakwah para pendakwah benar-benar berkesan terhadap penerima dakwah? Sedikit kajian, pemerhatian dan penelitian dalam Al-Quran, Hadis dan sirah Nabi Muhammad saw, didapati beberapa golongan yang sangat sukar menerima dakwah dan berdakwah kepadanya. Moga-moga kita terhindar dari menjadi golongan seperti ini, antaranya: 
 
-1. Mereka yang Menolak Kebenaran 
+
+### 1. Mereka yang Menolak Kebenaran
+
 
 Surah Al-Anfaal [8] : 22 22. Sesungguhnya binatang (makhluk) yang seburuk-buruknya pada sisi Allah ialah; orang-orang yang pekak dan tuli yang tidak mengerti apa-apapun.
 
@@ -43,7 +45,8 @@ Mereka tetap bersolat dan melaksanakan ibadah sebagai seorang muslim, tetapi mer
 
 Hadis: Dari Abu Hurairah: Rasulullah saw bersabda, "Barangsiapa taat kepadaku, bererti dia telah taat kepada Allah SWT; dan barangsiapa menderhakaiku, bererti dia derhaka kepada Allah SWT." (0003) [Sahih Ibnu Majah] 
 
-2. Mereka yang Taksub Mengikuti Tradisi
+
+### 2. Mereka yang Taksub Mengikuti Tradisi
 
 
 Surah Al-Baqarah [2] : 170 170. Dan apabila dikatakan kepada mereka: "Ikutilah apa yang telah diturunkan Allah," mereka menjawab: "(Tidak), tetapi kami hanya mengikuti apa yang telah kami dapati dari (perbuatan) nenek moyang kami". "(Apakah mereka akan mengikuti juga), walaupun nenek moyang mereka itu tidak mengetahui suatu apapun, dan tidak mendapat petunjuk?". 
@@ -60,8 +63,7 @@ Hadis: Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Barangsiapa menyeru ke
 
 Barangsiapa menyeru kepada jalan yang menyesatkan, maka baginya dosa semisal (sama) dosa orang-orang yang mengikutinya, yang tidak terkurangi sedikitpun dari dosa-dosa mereka sama sekali.” (0172) [Sahih Ibnu Majah] 
 
-3. Menyangka Majoriti adalah Kebenaran
-
+### 3. Menyangka Majoriti adalah Kebenaran
 
 Apa yang dimaksudkan adalah; melihat ramai orang yang melakukan sesuatu kemungkaran, dan kita menyangka bahawa perkara itu dibolehkan dalam syariat. Contohnya wanita yang memakai tudung yang jarang, wanita yang berbaju lengan pendek dan mempamerkan bentuk badan, wanita yang menyanyi di pentas (anugerah itu dan ini) dan pelbagai lagi yang bertentangan dengan syariat. 
 
@@ -81,8 +83,7 @@ Hadis : Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Kalau amanah tidak l
 
 Ia (Abu Hurairah) bertanya, ‘Bagaimana orang (yang) tidak memegang teguh amanah itu ya Rasulullah?’ Beliau (Nabi saw) menjawab, “Kalau sesuatu urusan telah diserahkan kepada orang yang bukan ahlinya, maka tunggulah saat kehancuran.” (1746) [Sahih Bukhari] 
 
-4. Mereka yang Berilmu Pengetahuan
-
+### 4. Mereka yang Berilmu Pengetahuan
 
 Surah Al-Mu'min [40] : 83 83. Maka tatkala datang kepada mereka rasul-rasul (yang diutus kepada) mereka dengan membawa keterangan-keterangan, mereka merasa senang dengan pengetahuan yang ada pada mereka dan mereka dikepung oleh azab Allah yang selalu mereka perolok-olokkan itu. 
 
@@ -92,7 +93,7 @@ Apa yang lebih melucukan adalah, mereka menggunakan dalil yang langsung tidak la
 
 Hadis (diringkaskan): Dari Irbadh bin Sariyah : Rasulullah saw bersabda, “....Kamu akan melihat perselisihan yang sangat dahsyat sesudahku, maka hendaklah kamu berpegang pada Sunnah-ku dan Sunnah-Khulafa ur rasyidin yang mendapat petunjuk. Gigitlah dengan gigi gerahammu dan jauhilah perkara-perkara baru, sesungguhnya setiap bidaah (perkara baru dalam agama) adalah sesat.” (0040) 
 
-5. Orang yang Mempunyai Pangkat, Harta dan Kuasa
+### 5. Orang yang Mempunyai Pangkat, Harta dan Kuasa
 
 Surah Az-Zumar [39] : 49 49. Maka apabila manusia ditimpa bahaya ia menyeru Kami, kemudian apabila Kami berikan kepadanya nikmat dari Kami, ia berkata: "Sesungguhnya aku diberi nikmat itu hanyalah kerana kepintaranku." Sebenarnya itu adalah ujian, tetapi kebanyakan mereka itu tidak mengetahui. 
 
@@ -106,7 +107,7 @@ Kedua-dua ayat diatas menyatakan akan kesombongan golongan yang kelima ini. Apab
 
 Hadis: Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Setiap umat ku masuk ke dalam syurga, selain orang yang enggan.” Mereka bertanya, ‘Ya, Rasulullah, Siapakah yang enggan (masuk syurga) itu?’ Jawab Nabi saw, “Siapa yang mematuhi perintah ku, masuk syurga dan siapa yang melanggar perintah ku, maka sesungguhnya orang itu enggan (masuk syurga).” (1952) [Sahih Bukhari] 
 
-6. Sangka Buruk 
+### 6. Sangka Buruk
 
 Surah Al-Hujuraat [49] : 12 12. Hai orang-orang yang beriman, jauhilah kebanyakan prasangka, kerana sebahagian dari prasangka itu dosa. Dan janganlah mencari-cari keburukan orang dan janganlah menggunjing (memfitnah, mengumpat atau mengata) satu sama lain. Adakah seorang diantara kamu yang suka memakan daging saudaranya yang sudah mati? Maka tentulah kamu merasa jijik kepadanya. Dan bertakwalah kepada Allah. Sesungguhnya Allah Maha Penerima Taubat lagi Maha Penyayang. 
 
