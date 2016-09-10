@@ -6,7 +6,7 @@ title: Peristiwa Akhir Zaman 1
 categories:
   - Hadis
 ---
-001. Dari Irbadh bin Sariyah r.a, katanya: Telah menasihati kami oleh Rasulullah saw akan satu nasihat yang menggentarkan hati kami dan menitiskan air mata kami ketika mendengarnya, lalu kami berkata, ‘Ya Rasulullah, seolah-olah ini adalah nasihat yang terakhir sekali, maka berilah pesanan kepada kami.
+Dari Irbadh bin Sariyah r.a, katanya: Telah menasihati kami oleh Rasulullah saw akan satu nasihat yang menggentarkan hati kami dan menitiskan air mata kami ketika mendengarnya, lalu kami berkata, ‘Ya Rasulullah, seolah-olah ini adalah nasihat yang terakhir sekali, maka berilah pesanan kepada kami.
 
 Lalu Baginda saw bersabda, “Aku berwasiat akan kamu supaya sentiasa bertakwa kepada Allah dan dan mendengar serta taat (kepada pemimpin) sekalipun yang memimpin kamu itu hanya seorang hamba. 
 
