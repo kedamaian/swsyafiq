@@ -20,6 +20,7 @@ Dari ‘Aisyah r.a: Rasulullah saw bersabda, “Tidak akan berlaku kiamat sehing
 Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Akan datang suatu zaman seseorang tidak mempedulikan dari mana ia mendapatkan harta, apakah dari sumber yang halal ataupun haram.” (Riwayat Muslim) 
 
 **Penjelasan dan Pengajaran:** 
+
 1. Manusia zaman akhir telah lupa tujuan hidup mereka atau tujuan mereka diciptakan di muka bumi ini. Mereka salah faham erti kehidupan dan berpegang pada materialisme.
 2. Mereka sanggup berbunuhan, memutuskan hubungan kekeluargaan, menipu, menindas, menolak hukum dan pelbagai lagi kemungkaran demi mendapatkan harta.
 3. Mereka menganggap harta adalah segala-galanya.
