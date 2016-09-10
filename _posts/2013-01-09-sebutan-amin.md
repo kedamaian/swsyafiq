@@ -9,7 +9,7 @@ categories:
 Sebutan “AMIN” yang betul ketika mengaminkan doa atau selepas al-fatihah:
 
 
-`AA-MIIIIIIN - (A: panjang 2 harakat (mad badal), MIN: panjang 4–6 harakat (mad ‘aridh lis sukun) ertinya YA ALLAH, KABULKANLAH DOA KAMI.`
+> AA-MIIIIIIN - (A: panjang 2 harakat (mad badal), MIN: panjang 4–6 harakat (mad ‘aridh lis sukun) ertinya YA ALLAH, KABULKANLAH DOA KAMI.
 
 
 Sebutan “AMIN” yang kurang tepat ketika mengaminkan doa atau selepas al-fatihah:
