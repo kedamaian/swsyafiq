@@ -7,6 +7,7 @@ categories:
   - Hadis
 ---
 Dari ‘Aisyah r.a: Rasulullah saw bersabda, “Tidak akan berlaku kiamat sehingga: 
+
 1. anak seseorang menjadi punca kemarahan (bagi ibu bapanya) dan
 2. hujan akan menjadi panas (hujan berkurangan dan cuaca menjadi semakin panas) dan
 3. akan bertambah ramai orang yang tercela dan
