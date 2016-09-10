@@ -29,6 +29,7 @@ Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Lagi akan datang kepada manus
 Penjelasan dan Pengajaran: Zaman yang tandus tersebut bermaksud zaman orang-orang yang ketandusan ilmu dan pemikiran. Orang yang benar akan diketepikan dan orang yang khianat serta fasiq akan disanjung dan dijadikan idola. Orang yang berilmu dan berada pada kebenaran tidak dibenarkan bercakap dan dituduh pula dengan berbagai-bagai tohmahan. Orang yang dibenarkan bercakap pula adalah orang-orang yang hina dan tidak tahu bagaimana hendak menyelesaikan masalah yang dihadapi oleh masyarakat dan mengelirukan. Maha Benar Allah. Melalui hadis ini juga kita lihat zaman ini berapa ramai ahli ilmu yang dibiarkan sepi tanpa mengambil peduli pada apa yang disampaikan oleh mereka. Malah mereka dituduh pula sebagai pengkhianat agama. 
 
 **Peperangan Demi Peperangan**
+
 Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Hari kiamat tidak akan terjadi sehingga melimpah ruah harta benda dan timbul fitnah (ujian kepada keimanan) dan banyak berlaku ‘al-Harj’.” Sahabat bertanya, ‘Apakah al-Harj itu hai Rasulullah?’ Nabi saw menjawab, “Peperangan demi peperangan demi peperangan.” (Riwayat Ibnu Majah) 
 
 **Penjelasan dan Pengajaran:** 
