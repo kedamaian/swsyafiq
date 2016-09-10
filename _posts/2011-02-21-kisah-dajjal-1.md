@@ -6,7 +6,7 @@ title: Kisah Dajjal 1
 categories:
   - Hadis
 ---
-## Riwayat Al-Bukhari (Dajjal) Riwayat Al-Bukhari
+## Riwayat Al-Bukhari (Dajjal)
 Dari 'Aisyah r.ha: Rasulullah saw di dalam solat membaca do'a: 
 
 'ALLAHUMMA INNII A'UUDZU BIKA MIN 'ADZAABIL QABRI, WA A'UUDZU BIKA MIN FITNATIL MASIIHID DAJJAAL, WA A'UUDZU BIKA MIN FITNATIL MAHYAA WA FITNATIL MAMAAT. ALLAHUMMA INNII A'UUDZU BIKA MINAL MA'TSAMI WAL MAGHRAM
@@ -37,4 +37,3 @@ Tambahan: Saat membacanya selepas tasyahud akhir dan sebelum salam.
 - Dari Anas r.a mengatakan: Nabi saw bersabda, "Tidaklah seorang Nabi pun diutus selain telah memperingatkan kaumnya terhadap yang buta sebelah dan pendusta, ketahuilah bahawasanya dajjal itu buta sebelah, sedang Rabb kalian tidak buta sebelah, tertulis diantara kedua matanya KAFIR (mata Dajjal)." [6598]
 
 - Dari Abu Hurairah r.a: Rasulullah saw bersabda, "Jalan-jalan Madinah dijaga oleh para malaikat, sehingga kota itu tidak akan dimasuki wabak taun ataupun dajjal." [6600]
-
