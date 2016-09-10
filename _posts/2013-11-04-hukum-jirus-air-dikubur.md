@@ -1,0 +1,8 @@
+Amalan menjirus air ke kubur hukumnya SUNNAT di dalam mazhab Syafi`e.
+
+Tetapi yang disunnatkan hanya dengan air semata-mata dan bukannya air mawar sebagaimana kelaziman sesetengah masyarakat kita.
+
+Menjirus air dengan air mawar dihukumkan MAKRUH kerana ianya dikira satu pembaziran.
+
+
+Imam asy-Syafi`i meriwayatkan daripada Ibraahiim bin Muhammad daripada Ja'far bin Muhammad daripada ayahandanya bahawasanya Junjungan Nabi Muhammad shollallahu 'alaihi wasallam telah menyiram (air) atas kubur anakanda baginda Ibrahim dan meletakkan atasnya batu-batu kerikil. Riwayat ini terkandung dalam "Musnad al-Imam al-Mu`adzhdzham wal Mujtahid al-Muqaddam Abi 'Abdillah Muhammad bin Idris asy-Syafi`i r.a.", juzuk 1, halaman 215. 
