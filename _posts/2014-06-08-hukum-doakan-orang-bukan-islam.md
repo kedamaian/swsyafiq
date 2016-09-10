@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: An Awesome Headline!
+categories:
+  - Tazkirah
+---
 Imam Nawawi mengatakan HARUS doakan belas atau rahmat Allah kepada non Muslim yang masih hidup & keampunan atas kesalahannya tetapi bukan redha atas kekufurannya. Nabi SAW pernah berdoa antaranya :
  ( اللهُمَّ اِغْفِرْ لِقَوْمِي فَإِنَّهُمْ لَا يَعْلَمُونَ)
 
