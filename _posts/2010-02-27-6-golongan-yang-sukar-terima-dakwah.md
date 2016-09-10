@@ -136,11 +136,7 @@ Hadis: Dari Mu’awiyah r.a : Rasulullah saw bersabda, “Sentiasa ada segolonga
 Rujukan: 
 
 - Terjemahan Al-Quran dan Tafsir Ibn Katsir
-
 - Hadis-hadis sahih
-
 - Sirah dan Riwayat Hidup Nabi Muhammad Saw [Abu Mazaya Al-Hafiz]
-
 - Metodologi Dakwah [Prof. Dr. Abd Aziz bin Mohd. Zin]
-
 - As-Sunnah dalam mengamalkan As-Sunnah [Ustaz Fadlan bin Mohd. Othman]
