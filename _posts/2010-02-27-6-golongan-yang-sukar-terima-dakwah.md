@@ -29,7 +29,9 @@ Surah An-Nuur [24] : 54 54. Katakanlah: "Taat kepada Allah dan taatlah kepada ra
 ## ISI PERBINCANGAN
 Persoalannya, sejauh mana dakwah para pendakwah benar-benar berkesan terhadap penerima dakwah? Sedikit kajian, pemerhatian dan penelitian dalam Al-Quran, Hadis dan sirah Nabi Muhammad saw, didapati beberapa golongan yang sangat sukar menerima dakwah dan berdakwah kepadanya. Moga-moga kita terhindar dari menjadi golongan seperti ini, antaranya: 
 
-1. Mereka yang Menolak Kebenaran Surah Al-Anfaal [8] : 22 22. Sesungguhnya binatang (makhluk) yang seburuk-buruknya pada sisi Allah ialah; orang-orang yang pekak dan tuli yang tidak mengerti apa-apapun.
+1. Mereka yang Menolak Kebenaran 
+
+Surah Al-Anfaal [8] : 22 22. Sesungguhnya binatang (makhluk) yang seburuk-buruknya pada sisi Allah ialah; orang-orang yang pekak dan tuli yang tidak mengerti apa-apapun.
 
 Maksudnya, manusia yang paling buruk di sisi Allah yang Maha Agung ialah yang tidak mahu mendengar dan memahami kebenaran. (Rujukan : Tafsir Ibn Katsir) 
 
