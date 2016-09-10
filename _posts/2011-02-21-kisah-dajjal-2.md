@@ -2,7 +2,7 @@
 layout: post
 published: true
 author: tehnoblequran
-title: An Awesome Headline!
+title: Kisah Dajjal 2
 categories:
   - Hadis
 ---
