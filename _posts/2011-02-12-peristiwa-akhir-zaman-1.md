@@ -13,6 +13,7 @@ Lalu Baginda saw bersabda, “Aku berwasiat akan kamu supaya sentiasa bertakwa k
 Sesungguhnya sesiapa yang panjang umurnya daripada kamu pasti akan melihat perselisihan yang banyak. Maka hendaklah kamu berpegang teguh dengan Sunnah ku dan sunnah para Khulafa Ar-Rasyidin Al-Mahdiyin (Abu Bakar, Umar, Uthman dan Ali r.a) dan gigitlah sunnah-sunnah itu dengan gigi geraham dan jauhilah perkara-perkara yang baharu (bid’ah) yang diada-adakan, kerana sesungguhnya tiap-tiap bid’ah itu sesat.” (Riwayat Abu Daud dan At-Tirmidzi) 
 
 **Penjelasan dan Pengajaran:**
+
 1. Sentiasa bertakwa kepada Allah yang Maha Agung iaitu, beriman dan beramal soleh. Mengerjakan segala yang diperintah dan menjauhi segala larangan-Nya. 
 
 2. Mentaati pemerintah walaupun ia dari keturunan hamba. 
