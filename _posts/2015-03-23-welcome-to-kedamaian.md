@@ -2,12 +2,12 @@
 layout: post
 title: Welcome to kedamaian
 date: {}
-author: Jacob Tomlinson
+author: tehnoblequran
 summary: >-
-  Carte Noire is a dark blog theme for Jekyll focusing on a clear reading
+  Kedamaian is a dark blog theme for Jekyll focusing on a clear reading
   experience.
 thumbnail: heart
-tags: 'welcome,to,carte,noire'
+tags: 'welcome,to,kedamaian'
 published: true
 ---
 
