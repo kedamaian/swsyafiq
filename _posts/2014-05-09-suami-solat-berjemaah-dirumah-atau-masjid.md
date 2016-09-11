@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Suami Solat Berjemaah di rumah atau Masjid?
+categories:
+  - Howto
+---
 Mengikut mazhab syafie, solat berjemaah merupakan fardhu kifayah ke atas ahli kariah, dgn maksud berdosa satu kampung jika tiada satu pun solat berjemaah didirikan. Dan ia merupakan sunat muakkad bagi setiap individu lelaki yang akil baligh dan bermukim. (Kifayah al akhyar: jilid 1/ms 81)
 
 Untuk orang lelaki adalah lebih afdal menunaikan solat berjemaah di masjid atau surau.
@@ -18,7 +26,7 @@ Maka adalah lebih afdhal para suami keluar bersolat di surau atau masjid meningg
 
 لو ذهب إلى المسجد وترك أهل بيته ليصلون فرادى أو لتهاونوا أو بعضهم في الصلاة فصلاته في البيت أفضل من صلاته في المسجد-مغني
 
-“sekiranya suami ke masjid berjemaah dan meninggalkan ahli keluarganya di rumah, pasti mereka akan bersolat bersendirian semua mereka atau meringan-ringankan dengan solat berjemaah atau sebahagian daripada ahli keluarganya. Maka pada ketika ini solat lelaki tersebut di rumah lebih afdal daripada solatnya di masjid”
+“Sekiranya suami ke masjid berjemaah dan meninggalkan ahli keluarganya di rumah, pasti mereka akan bersolat bersendirian semua mereka atau meringan-ringankan dengan solat berjemaah atau sebahagian daripada ahli keluarganya. Maka pada ketika ini solat lelaki tersebut di rumah lebih afdal daripada solatnya di masjid”
 
 Terdapat saranan daripada Syeikh Nuruddin Hafizahullah supaya suami menunaikan solat sunat rawatib di rumah dengan di makmumkan oleh isteri yang bersolat fardhu, kemudian setelah selesai salam suami, maka isteri boleh meneruskan rakaat solat fardhu yang masih berbaki.
 
