@@ -1,4 +1,12 @@
-Solat Subuh
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Antara Surah-Surah yang di Baca Rasulullah Dalam Solat
+categories:
+  - Hadis
+---
+## Solat Subuh
 
     عَنْ أَبِيْ بَرْزَةَ الأَسْلَمِيِّ رضي الله عنه:…وَيُصَلِّي الصُّبْحَ فَيَنْصَرِفُ الرَّجُلُ فَيَعْرَفُ جَلِيْسَهُ، وَكَانَ يَقْرَأُ فِيْ الرَّكْعَتَيْنِ أَوْ إِحْدَاهُمَا مَا بَيْنَ السِّتِّيْنَ إِلَى الْمِئَةِ. رواه البخاري.
 
@@ -17,7 +25,8 @@ Al-Albani menyebut: “Baginda membacakan surah “Tiwalul Mufassal”. Kadang b
 Berkata al-Hafiz Ibnul Qayyim: “Baginda membaca pada subuh hari jumaat dengan tamat kedua-dua surah as-Sajdah dan surah al-Insan.. dan apa yang diamalkan oleh sebahagian manusia pada hari ini dengan membaca sebahagian surah sahaja pada kedua-dua rakaat, atau menamatkan surah as-Sajdah pada dua rakaat adalah menyalahi dengan sunnah. Dan anggapan bahawa subuh hari jumaat dilebihkan daripada sembahyang-sembahyang yang lain dengan adanya sujud sajdah merupakan satu kejahilan yang besar. Kerana inilah sebahagian ulamak memakruhkan membaca surah as-Sajdah, kerana ingin membuang angapan salah ini”. Beliau berpendapat bahawa Nabi membaca surah-surah tersebut kerana kandungan surah tersebut bersesuaian dengan apa yang berlaku pada hari jumaat. Lihat Zadul Maad, juz 1, m/s 203.
 
 Al-Hafiz Ibnul Qayyim juga menceritakan bahawa Saidina Abu Bakar pernah membaca surah al-Baqarah (286 ayat, 48 muka surat) dalam sembahyang subuh. Dan beliau memberi salam hampir naik matahari. Lalu para makmum berkata: Wahai Khalifah Rasulullah, hampir-hampir matahari naik. Beliau menjawab: Kalau matahari naik sekalipun, ia tidak akan dapati kita dalam keadaan lalai.
-Solat Zohor
+
+## Solat Zohor
 
     عَنْ أَبِيْ قَتَادَةَ رضي الله عنه قَالَ: أَنَّ النبيَّ صلى الله عليه وسلم كَانَ يُطَوِّلُ فِيْ الرَّكْعَةِ الأُوْلَى مِنْ صَلاَةِ الظُّهْرِ، وَيُقَصِّرُ فِي الثَّانِيَةِ، وَيَفْعَلُ ذَلِكَ فِيْ صَلاَةِ الصُّبْحِ. رواه البخاري ومسلم.
 
@@ -28,14 +37,16 @@ Solat Zohor
     Abu Said al-Khudri r.a. berkata: Pernah bila diiqamahkan sembahyang zuhur, seorang sahabat pergi ke Baqi untuk qadha hajat, kemudian (balik ke rumahnya untuk) berwudhuk, kemudian barulah dia datang untuk berjemaah, dan dia dapati Rasulullah s.a.w. masih lagi dalam rakaat pertama, kerana baginda memanjangkannya. Riwayat Muslim.
 
 Berkata Syeikh al-Albani: Kadang-kadang baginda membaca surah at-Toriq, surah al-Buruj, surah al-Lail dan seumpamanya.
-Solat Asar
+
+## Solat Asar
 
     عَنْ أَبِيْ سَعِيْدٍ الْخُدْرِيِّ رضي الله عنه، قَالَ: كُنَّا نَحْزُِرُ قِيَامَ رَسُولِ اللهِ صلى الله عليه وسلم فِيْ الظُّهْرِ وَالْعَصْرِ، فَحَزَرْنَا قِيَامَهُ فِي الرَّكْعَتَيْنِ الأُوْلَيَيْنِ مِنَ الظُّهْرِ قَدْرَ قِرَاءَةِ ألم تنـْزيل –السَّجْدَةِ، وَحَزَرْنَا قِيَامَهُ فِيْ الرَّكْعَتَيْنِ الأُخْرَيَيْنِ قَدْرَ النِّصْفِ مِنْ ذَلِكَ، وَحَزَرْنَا قِيَامَهُ فِيْ الرَّكْعَتَيْنِ الأُوْلَيَيْنِ مِنَ الْعَصْرِ عَلَى قَدْرِ قِيَامِهِ فِيْ الأُخْرَيَيْنِ مِنَ الظُّهْرِ، وَفِيْ الأُخْرَيَيْنِ مِنَ الْعَصْرِ عَلَى النِّصْفِ مِنْ ذَلِكَ. رواه مسلم.
 
     Abu Said al-Khudri r.a. berkata: kami menganggar qiam Rasulullah s.a.w. dalam sembahyang zuhur dan asar. Kami anggarkan qiam baginda dalam dua rakat pertama sembahyang zuhur sekadar bacaan surah as-Sajdah (30 ayat, 3 muka surat). Dan pada dua rakaat kedua terakhir sekadar separuh daripada tadi. Dan kami juga menganggar qiam baginda pada dua rakaat pertama sembahyang asar sekadar qiam baginda dalam dua rakaat terakhir sembahyang zuhur. Dan pada dua rakaat terakhir sembahyang asar, sekadar separuh daripada itu. Riwayat Muslim.
 
 Al-Albani menyebut bahawa baginda juga memanjangkan rakaat pertama berbanding rakaat kedua.
-Solat Maghrib
+
+## Solat Maghrib
 
 Syeikh al-Albani berkata: “Kadang-kadang baginda membaca “Qisarul Mufassal”. Ada juga baginda membaga “Tiwalul Mufassal” dan “Ausatul Mufassal”. Baginda pernah membaca surah Muhammad. Baginda pernah membaca surah at-Thur dan juga surah al-Mursalat. Dan pernah baginda membaca surah al-A’raf dalam dua rakaat, dan begitu juga surah al-Anfal”.
 
@@ -66,7 +77,8 @@ Dan hadis-hadis ini tidaklah menunjukan bahawa Nabi s.a.w. sentiasa memanjangkan
     Ibnu Abbas menceritakan bahawa tatkala beliau membaca surah al-Mursalat, Ummul Fadhli berkata: Wahai anakku, demi Allah, sesungguhnya bacaanmu dengan surah ini mengingatkan daku kepada surah terakhir yang aku dengar Rasulullah s.a.w. membacanya dalam solat maghrib. Riwayat Bukhari. (Surah al-Mursalat 50 ayat, dan hampir dua muka surat). 
 
 Berkata al-Hafiz Ibn Hajar: Hadis ini menunjukkan bahawa semasa baginda sihat, baginda membaca dengan surah yang lebih panjang (dalam sembahyang maghrib). Ini kerana baginda dalam keadaan sakit, yang mana biasanya diringkaskan sebahyang.
-Solat Isya’
+
+## Solat Isya’
 
     عَنْ أَبِيْ رَافِعٍ قَالَ: صَلَّيْتُ مَعَ أَبِيْ هُرَيْرَةَ الْعَتَمَةَ، فَقَرَأَ: ﴿ إِذَا السَّمَاء انشَقَّتْ ﴾، فَسَجَدَ، فَقُلْتُ لَهُ: مَا هَذِهِ؟ قَالَ: سَجَدْتُ بِهَا خَلْفَ أَبِيْ الْقَاسِمِ صلى الله عليه وسلم، فَلاَ أَزَالُ أَسْجُدُ بِهَا حَتَّى أَلْقَاهُ. رواه البخاري.
 
@@ -86,7 +98,7 @@ Berkata Imam Nawawi: “Disunatkan membaca dalam sembahyang subuh dan zuhur deng
 
 Dan khilaf ulamak tentang permulaan surah-surah tersebut. Ada pendapat yang mengatakan bahawa surah Mufassal yang panjang bermula daripada Surah al-Hujurat sehingga surah an-Naba’. Surah Mufassal yang pertengahan pula bermula daripada surah an-Naba’ sehingga surah ad-Dhuha, dan surah Mufassal yang pendek pula bermula daripada surah ad-Dhuha hingga akhir Qur’an. Sabilal Muhtadin, j 1, m/s 209.
 
-Antara Hadis Berkaitan Dengan Bacaan Surah
+### Antara Hadis Berkaitan Dengan Bacaan Surah
 
     عَنِ ابْنِ عُمَرَ رضي الله عَنْهُمَا قَالَ: كَانَ رَسُولُ اللهِ صلى الله عليه وسلم يَأْمُرُنَا بِالتَّخْفِيْفِ، وَيَؤُمُّنَا بِالصَّافَّاتِ. رواه النسائي، وإسناده صحيح كما قال الشيخ شعيب وعبد القادر الأرناؤوط.
 
