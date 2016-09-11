@@ -34,17 +34,18 @@ Yang terakhir katanya: “Janganlah engkau berasa susah ketika dia dalam keadaan
 
 INFO: 10 pesanan jadi isteri solehah
 
-    Sentiasa menjadi pendamping suami, menerima segala kekurangan dan tidak membebankan suami.
-    Mendengar dan mentaati suami.
-    Memberi layanan baik kepada suami, pelihara anak dan menjaga rumah tangga.
-    Sentiasa tampil menarik dan wangi untuk suami.
-    Mampu mewujudkan hubungan intim yang baik dengan suami.
-    Menjaga makan minum suami yang betul, tepat serta waktu tidur bagi elak emosi suami terganggu.
-    Sentiasa menjaga kebersihan diri dan tempat tinggal.
-    Amanah menjaga harta benda dalam rumah tangga.
-    Isteri tidak boleh membuka aib suami dan hal rumah tangga kepada orang lain.
-    Isteri kena jadi orang yang paling mengagungkan suami.
 
- 
+- Sentiasa menjadi pendamping suami, menerima segala kekurangan dan tidak membebankan suami.
+- Mendengar dan mentaati suami.
+- Memberi layanan baik kepada suami, pelihara anak dan menjaga rumah tangga.
+- Sentiasa tampil menarik dan wangi untuk suami.
+- Mampu mewujudkan hubungan intim yang baik dengan suami.
+- Menjaga makan minum suami yang betul, tepat serta waktu tidur bagi elak emosi suami terganggu.
+- Sentiasa menjaga kebersihan diri dan tempat tinggal.
+- Amanah menjaga harta benda dalam rumah tangga.
+- Isteri tidak boleh membuka aib suami dan hal rumah tangga kepada orang lain.
+- Isteri kena jadi orang yang paling mengagungkan suami.
+
+
 
 Sumber: http://albakriah.wordpress.com/
