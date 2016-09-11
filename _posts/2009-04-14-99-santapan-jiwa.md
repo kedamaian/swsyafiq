@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: 99 Santapan Jiwa
+categories:
+  - Keilmuan
+---
 01. Bersyukur apabila mendapat nikmat;
 
 02. Sabar apabila mendapat kesulitan;
