@@ -1,5 +1,11 @@
-
-
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Jangan Pandang Remeh Dosa Kecil
+categories:
+  - Tazkirah
+---
 “CUMA berkasar sedikit sahaja, sekadar menyinggung perasaan, cuma buang sampah merata-rata sahaja, tak apalah, hanya dosa kecil,” Begitulah mentaliti kebanyakan umat Islam untuk dijadikan alasan apabila terus menerus melakukan kesalahan kecil.
 
 Beranggapan hanya dosa kecil yang mudah terampun, membuatkan ramai mengambil sikap pandang remeh terhadap sesuatu kesalahan kerana dianggap akan terhapus dengan melakukan amal ibadat dan beristighfar atau bertaubat.
@@ -27,3 +33,5 @@ Sikap tidak mengambil berat terhadap kesalahan dan dosa kecil, tambah Assad, lam
 Justeru, beliau menyeru kepada seluruh umat Islam agar tidak memandang remeh kesalahan kecil dan melakukannya dengan sengaja.
 
 “Selagi diberi peluang hidup, dipanjangkan umur oleh Allah SWT, kita harus menginsafi segala dosa yang telah dilakukan. Telah menjadi fitrah kelahiran manusia tidak lari daripada melakukan dosa dan Allah SWT itu maha pengampun lagi menerima taubat hamba-Nya,”
+
+_Susunan MOHD. SHAH CHE AHMAD_
