@@ -20,7 +20,7 @@ Sekali pun hadis ini seperti menyatakan hukum fardhu ain solat berjemaah, terdap
 
 واعلم ان الجماعة تحصل بصلاة الرجل في بيته مع زوجته وغيرها، لكنها في المسجد افضل
 
-“dan ketahuilah bahawa solat berjemaah itu terhasil dengan solat seorang lelaki bersama isterinya di rumah atau bersama orang lain. Akan tetapi sokat berjemaah itu lebih afdhal dilakukan di masjid”.(Kifayah al akhyar: jld 1/ms 82)
+“dan ketahuilah bahawa solat berjemaah itu terhasil dengan solat seorang lelaki bersama isterinya di rumah atau bersama orang lain. Akan tetapi solat berjemaah itu lebih afdhal dilakukan di masjid”.(Kifayah al akhyar: jld 1/ms 82)
 
 Maka adalah lebih afdhal para suami keluar bersolat di surau atau masjid meninggalkan isteri bersolat bersendirian di rumah, kecuali jika di takuti isteri akan melambat-lambatkan solat jika bersendirian. Namun para ulama mutaakhirin syafie khilaf dalam hal afdhal lelaki solat di masjid atau di rumah mengikut keadaan dan di sini dinyatakan lafaz mughni [syarbini khatib]
 
