@@ -1,6 +1,14 @@
-Akhi Aslan pertanyaan yang diajukan ini agak sensitif kerana ia akan menyentuh hal peribadi dan penampilan orang lain. Namun jika tidak diberi pencerahan juga adalah suatu tindakan yang kurang bijak kerana membiarkan orang seperti rakan saudara sewenang-wenangnya menilai orang lain dengan penilaian dari tafsiran yang salah.
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Tanda Hitam didahi?
+categories:
+  - Tazkirah
+---
+Pertanyaan yang diajukan ini agak sensitif kerana ia akan menyentuh hal peribadi dan penampilan orang lain. Namun jika tidak diberi pencerahan juga adalah suatu tindakan yang kurang bijak kerana membiarkan orang seperti rakan saudara sewenang-wenangnya menilai orang lain dengan penilaian dari tafsiran yang salah.
 
-Ayat yang dimaksudkan oleh rakan sudara itu ialah firman Allah :
+Ayat yang dimaksudkan oleh rakan sudara itu ialah firman Allah:
 
     مُحَمَّدٌ رَسُولُ اللَّهِ وَالَّذِينَ مَعَهُ أَشِدَّاءُ عَلَى الْكُفَّارِ رُحَمَاءُ بَيْنَهُمْ تَرَاهُمْ رُكَّعًا سُجَّدًا يَبْتَغُونَ فَضْلًا مِنَ اللَّهِ وَرِضْوَانًا سِيمَاهُمْ فِي وُجُوهِهِمْ مِنْ أَثَرِ السُّجُودِ
 
@@ -22,7 +30,7 @@ Hanya Allah yang mengetahui rahsia dahi hitam. Ada orang yang bertanda hitam di 
 
 Tetapi awas! Tanda hitam di dahi juga boleh menyebabbkan seseorang menghadapi masalah penyakit hati seperti riyak dan takbur kerana tanggapan salah orang seperti rakan saudara. Semoga Allah menjauhkan kita dari mazmumah ini ameen.
 
-Peringatan!
+**Peringatan!**
 
 Jangan sampai sengaja menggesel dahi dengan kuat ditempat sujud agar dahi berbekas hitam. Ia adalah perbuatan tercela dan ditegah kerana merosakkan wajah:
 
@@ -42,11 +50,11 @@ Dari Salim Abu Nadhr, seorang lelaki datang menemui Ibnu Umar. Setelah orang ter
 
 Dari Humaid bin Abdirrahman, aku berada bersama as Saib bin Yazid ketika seorang yang bernama az Zubair bin Suhail bin Abdirrahman bin Auf datang. Melihat kedatangannya, as Saib berkata, “Sungguh dia telah merosakkan wajahnya. Demi Allah bekas di dahi itu bukanlah bekas sujud. Demi Allah aku telah solat dengan menggunakan wajahku ini selama sekian waktu lamanya namun sujud tidaklah memberi bekas sedikitpun pada wajahku” (Riwayat Baihaqi dalam Sunan Kubro no 3701).
 
-Kesimpulan
+**Kesimpulan**
 
 Kesolehan seseorang bukan terletak pada hitam dahinya. Tetapi pada taqwa, taat dan ikhlasnya dalam kehidupan beragama. Lihatlah berapa ramai para ulama yang kita kenali di zaman ini hitam dahinya?
 
-P/s : Saya yang faqir memohon jutaan kemaafan kepada semua yang mungkin tersinggung dengan penulisan ini. Tidak ada niat untuk memalukan sesiapa. Hanya ingin menyatakan yang hak agar ummah tidak semudah itu menolak para ilmuwan yang tidak bertanda di dahi.. Wallahu a’lam
+P/S: Saya yang faqir memohon jutaan kemaafan kepada semua yang mungkin tersinggung dengan penulisan ini. Tidak ada niat untuk memalukan sesiapa. Hanya ingin menyatakan yang hak agar ummah tidak semudah itu menolak para ilmuwan yang tidak bertanda di dahi.. Wallahu a’lam
 
 Akhukum Ustaz Mohd Hazri al-Bindany
-Pembimbing Majlis Ta’lim Darul Muhajirin 
+Pembimbing Majlis Ta’lim Darul Muhajirin
