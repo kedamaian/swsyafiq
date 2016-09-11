@@ -49,9 +49,9 @@ Perkataan ‘Kamu akan melihat perselisihan yang sangat dahsyat sesudahku’ ada
 
 Tetapi bukan perkara itu yang hendak dibincangkan dalam risalah ini tetapi apa yang ingin dikongsi atau difikirkan bersama adalah, apakah lagi perselisihan yang dahsyat itu atau fitnah-fitnah yang lainnya yang mungkin sama besar dan lebih besar lagi? 
 
-1. Memerangi Sesama Muslim 
+> 1. Memerangi Sesama Muslim 
 
-Dari Abdullah bin Umar r.a : Rasulullah saw bersabda, “Hati-hatilah kamu! Janganlah kamu kafir kembali sepeninggalanku, di mana sebahagian kamu membunuh sebahagian yang lain (memerangi saudara se-Islam).” (0054) 
+Dari Abdullah bin Umar r.a : Rasulullah saw bersabda, “Hati-hatilah kamu! Janganlah kamu kafir kembali sepeninggalanku, di mana sebahagian kamu membunuh sebahagian yang lain (memerangi saudara se-Islam).” (0054)
 
 Dari Jarir bin Abdullah r.a katanya : Rasulullah saw bersabda ketika haji Wada’, “Dengarkanlah wahai orang-orang!” Beliau (SAW) kemudian bersabda, “Janganlah kalian kembali kepada kekafiran setelah (sepeninggalan)ku dengan saling memerangi antara sesama (orang Islam).” [3200] Sahih Ibnu Majah 
 
@@ -71,7 +71,10 @@ Orang yang duduk akan menjadi lebih baik dari orang yang berdiri, orang yang ber
 
 (b). Dari Ahnaf bin Qais r.a : (Diringkaskan)... Rasulullah saw bersabda, “Apabila dua Muslim berkelahi dengan menggunakan pedang masing-masing, maka yang terbunuh dan membunuh masuk neraka.” [2459] Sahih Muslim 
 
-2. Tiga Gabungan yang Mencemar Islam Dari Tsauban r.a (pembantu Rasulullah saw) : Rasulullah saw bersabda, (telah diringkaskan dalam hadis yang panjang).... “Di antara yang aku takuti atas umatku adalah; 
+> 2. Tiga Gabungan yang Mencemar Islam
+
+
+Dari Tsauban r.a (pembantu Rasulullah saw) : Rasulullah saw bersabda, (telah diringkaskan dalam hadis yang panjang).... “Di antara yang aku takuti atas umatku adalah; 
 
 (a). Para pemimpin yang menyesatkan, dan 
 (b). Sebahagian umat ku yang menyembah al-autsan (berhala), 
@@ -79,11 +82,17 @@ Orang yang duduk akan menjadi lebih baik dari orang yang berdiri, orang yang ber
 
 Tiga gabungan ini boleh mencemar agama Islam kerana orang-orang kafir akan mengambil contoh Islam daripada mereka, lalu mereka yang mengikuti sunnah Rasulullah saw akan dipanggil ‘jumud’, fanatik, kasar dan lainnya. 
 
-3. Fanatik Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Barangsiapa berperang di bawah panji kesesatan, menyerukan kepada ‘asobiyyah atau marah kerana ‘asobiyyah, maka matinya adalah Jahiliyyah.” [3205] Sahih Ibnu Majah 
+> 3. Fanatik
+
+
+Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Barangsiapa berperang di bawah panji kesesatan, menyerukan kepada ‘asobiyyah atau marah kerana ‘asobiyyah, maka matinya adalah Jahiliyyah.” [3205] Sahih Ibnu Majah 
 
 Maksud ‘Asobiyyah’ yang diletakkan di dalam kitab Ibnu Majah ini sebagai fanatisme. Iaitu orang yang fanatik dan taksub hingga berlakunya kezaliman. Kefanatikannya hingga menghalalkan membunuh sesama Muslim, mengkafirkan orang sesuka hati dan lain-lain yang bertentangan dengan Islam. 
 
-4. Hanya Umat Islam Boleh Menghancurkan Islam Dari Amir bin Sa’ad r.a : Rasulullah saw bersabda, (Diringkaskan pada hadis yang panjang) “Aku memohon kepada Tuhanku supaya jangan membinasakan umatku dengan musim susah yang panjang, maka diperkenankan, 
+> 4. Hanya Umat Islam Boleh Menghancurkan Islam
+
+
+Dari Amir bin Sa’ad r.a : Rasulullah saw bersabda, (Diringkaskan pada hadis yang panjang) “Aku memohon kepada Tuhanku supaya jangan membinasakan umatku dengan musim susah yang panjang, maka diperkenankan, 
 
 Aku memohon supaya umatku jangan dibinasakan dengan bencana tenggelam (seperti terjadi pada kaum Nabi Nuh a.s, Firaun) permohonanku itu diperkenankan-Nya juga. (Dalam lafaz lain, ‘Tidak ada satu kekuatan musuh yang dapat menghancurkan mereka (umat Islam) kecuali mereka sendiri walaupun musuh mereka bersatu mengelilingi mereka’-Rujukan Hadis [2463] dari Tsauban r.a)
 
