@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Mulut Menzahirkan Hati & Iman
+categories:
+  - Tazkirah
+---
 Daripada Sufyan bin Abdillah radhiyallahu ‘anhu dia berkata, Aku berkata: “Ya Rasulullah, beritahulah aku sesuatu yang dapat aku jadikan pegangan.” Baginda bersabda, “Katakanlah: Allah adalah Tuhanku, kemudian istiqamahlah.” Aku berkata, “Wahai Rasulullah, apakah yang paling engkau takutkan atasku? Maka Rasulullah memegang lidahnya kemudian berkata: “Ini.” (Riwayat Al-Tirmizi)
 
 Daripada Abu Musa Al-Asy’ari radhiyallahu ‘anhu dia berkata, aku berkata, “Wahai Rasulullah, orang Islam yang bagaimanakah yang paling utama? Baginda menjawab, “Orang yang kaum Muslimin selamat dari lisannya dan tangannya.” (Riwayat Al-Bukhari dan Muslim)
