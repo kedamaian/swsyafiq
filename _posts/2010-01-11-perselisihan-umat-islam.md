@@ -11,7 +11,9 @@ categories:
 
 Surah Al Baqarah [2] : [255] .....(Allah) yang mengetahui apa yang ada di hadapan mereka dan apa yang ada di belakang mereka, sedang mereka tidak mengetahui sesuatu pun dari (kandungan) ilmu Allah melainkan apa yang Allah kehendaki (memberitahu kepadanya). 
 
-## PENGENALAN Dari Irbadh bin Sariyah r.a : Pada suatu hari, Rasulullah saw berdiri berkhutbah di tengah-tengah kami. Kemudian beliau saw memberikan nasihat yang sangat mengesankan, yang menggetarkan hati dan membuat air mata bercucuran. 
+## PENGENALAN 
+
+Dari Irbadh bin Sariyah r.a : Pada suatu hari, Rasulullah saw berdiri berkhutbah di tengah-tengah kami. Kemudian beliau saw memberikan nasihat yang sangat mengesankan, yang menggetarkan hati dan membuat air mata bercucuran. 
 
 Beliau saw ditanya, “Ya Rasulullah saw, engkau menasihati kami dengan nasihat perpisahan, maka berilah kami amanat.” 
 
