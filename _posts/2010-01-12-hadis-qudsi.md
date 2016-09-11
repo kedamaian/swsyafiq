@@ -8,8 +8,7 @@ categories:
 ---
 ## Hadis Al-Qudsi 
 
-**Takrif Hadis Al-Qudsi**
-
+**Takrif**
 Hadis Al-Qudsi adalah hadis yang diriwayatkan oleh Rasulullah SAW daripada Allah Azza wa Jalla kadangkala dengan perantaraan Jibril 'alaihi salam, kadangkala dengan perantaraan wahyu atau ilham atau mimpi. Lafaz hadis ini terpulang kepada Rasulullah saw untuk mengucapkannya. Tiada perbezaan mahupun percanggahan antara hadis Al-Qudsi dengan hadis An-Nabawi melainkan pada isnadnya terus kepada Allah Subhana wa Ta'ala. 
 
 Peranan Hadis Qudsi Biasanya hadis Al-Qudsi lebih tertumpu ke arah pembinaan dan pembentukan jiwa insani yang lurus, iaitu menyeru kepada kebaikan, kelebihan dan akhlak-akhlak mulia, memandu nafsu agar mencintai Allah yang Maha Agung dan berusaha memperoleh keredhaan-Nya. Semua hadis ini diambil dari kitab Mustika Hadis-Hadis Al-Qudsi Sahih karangan ‘Isomuddin bin Sayyid Abdul Robbuni Al-Soobaathi. Hadis di dalam kitab ini tidak diubah sedikit pun, kecuali bahagian penjelasan dan pengajaran, telah diringkaskan dan ditambah sedikit dari segi perkataan dan contoh-contoh tanpa menyalahi maksud sebenar dari kitab. Wallahu’alam.
