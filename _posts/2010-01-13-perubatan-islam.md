@@ -85,12 +85,15 @@ Kembalilah kepada tauhid yang benar sebelum membicarakan mengenai hukum-hukum pe
 Rujukan dan kitab yang DIANJURKAN untuk dibaca: 
 
 Al-Quran dan hadith yang sahih 
-Sirah Nabi Muhammad [Abu Mazaya al-Hafiz] 
-Mengubat Cara Nabi [Ibnu Qayyim al-Jauziyah] 
-Perdukunan Karomah [Zainal Abidin Bin Syamsudin] 
-Fikah Perubatan [Dr. Harmy dan lain-lain keluaran PTS] 
-Perubatan Al-Quran dan Al-Sunnah [Abdul Aziz Ismail] 
+- Sirah Nabi Muhammad [Abu Mazaya al-Hafiz] 
+- Mengubat Cara Nabi [Ibnu Qayyim al-Jauziyah] 
+- Perdukunan Karomah [Zainal Abidin Bin Syamsudin] 
+- Fikah Perubatan [Dr. Harmy dan lain-lain keluaran PTS] 
+- Perubatan Al-Quran dan Al-Sunnah [Abdul Aziz Ismail]
+
 
 Rujukan yang DILARANG untuk dibaca atau diamalkan: 
-Kitab Mujarrobat 
-Ilmu Rohani dan Mengenal Manusia Serta beberapa lagi yang tidak wajar disampaikan di sini.
+
+- Kitab Mujarrobat 
+- Ilmu Rohani dan Mengenal Manusia Serta beberapa lagi yang tidak wajar disampaikan di sini.
+
