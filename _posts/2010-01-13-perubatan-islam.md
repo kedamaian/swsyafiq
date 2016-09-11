@@ -84,7 +84,7 @@ Kembalilah kepada tauhid yang benar sebelum membicarakan mengenai hukum-hukum pe
 
 Rujukan dan kitab yang DIANJURKAN untuk dibaca: 
 
-Al-Quran dan hadith yang sahih 
+- Al-Quran dan hadith yang sahih 
 - Sirah Nabi Muhammad [Abu Mazaya al-Hafiz] 
 - Mengubat Cara Nabi [Ibnu Qayyim al-Jauziyah] 
 - Perdukunan Karomah [Zainal Abidin Bin Syamsudin] 
