@@ -10,7 +10,7 @@ categories:
 
 02. Sabar apabila mendapat kesulitan;
 
-03. Tawakal apabila mempunyai rencana/ rancangan;
+03. Tawakal apabila mempunyai rancangan;
 
 04. Ikhlas dalam segala amal perbuatan;
 
