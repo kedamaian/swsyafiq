@@ -1,3 +1,9 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Welcome to kedamaian
+---
 Welcome to kedamaian.
 
 kedamaian began as a new platform for [my personal blog][1], but has now taken
