@@ -8,7 +8,7 @@ categories:
 ---
 ## Hadis Al-Qudsi 
 
-### Takrif Hadis Al-Qudsi 
+**Takrif Hadis Al-Qudsi**
 
 Hadis Al-Qudsi adalah hadis yang diriwayatkan oleh Rasulullah SAW daripada Allah Azza wa Jalla kadangkala dengan perantaraan Jibril 'alaihi salam, kadangkala dengan perantaraan wahyu atau ilham atau mimpi. Lafaz hadis ini terpulang kepada Rasulullah saw untuk mengucapkannya. Tiada perbezaan mahupun percanggahan antara hadis Al-Qudsi dengan hadis An-Nabawi melainkan pada isnadnya terus kepada Allah Subhana wa Ta'ala. 
 
@@ -16,7 +16,7 @@ Peranan Hadis Qudsi Biasanya hadis Al-Qudsi lebih tertumpu ke arah pembinaan dan
 
 ## Amaran Terhadap Perbuatan Syirik dan Kelebihan Tauhid 
 
-~ Dari Anas r.a : Rasulullah saw bersabda, "Allah Ta'ala berfirman kepada orang yang menerima azab yang paling ringan pada hari kiamat; 'Jika kamu mempunyai sesuatu di atas permukaan bumi sebagai tebusan, adakah kamu menebus azab ini dengannya?' Orang itu pun menjawab, 'Ya'. Allah Ta'ala pun berfirman, 'Aku menghendaki darimu agar melakukan sesuatu yang lebih mudah dari ini sewaktu kamu berada di dalam tulang sulbi Adam (iaitu) agar kamu tidak mempersekutukan sesuatu dengan-Ku, namun kamu telah ingkar (enggan) melakukannya, melainkan kamu telah mempersekutukan Daku." (Sahih, Al-Bukhari dan seumpamanya oleh Imam Ahmad) [001] 
+> ~ Dari Anas r.a : Rasulullah saw bersabda, "Allah Ta'ala berfirman kepada orang yang menerima azab yang paling ringan pada hari kiamat; 'Jika kamu mempunyai sesuatu di atas permukaan bumi sebagai tebusan, adakah kamu menebus azab ini dengannya?' Orang itu pun menjawab, 'Ya'. Allah Ta'ala pun berfirman, 'Aku menghendaki darimu agar melakukan sesuatu yang lebih mudah dari ini sewaktu kamu berada di dalam tulang sulbi Adam (iaitu) agar kamu tidak mempersekutukan sesuatu dengan-Ku, namun kamu telah ingkar (enggan) melakukannya, melainkan kamu telah mempersekutukan Daku." (Sahih, Al-Bukhari dan seumpamanya oleh Imam Ahmad) [001]
 
 Penjelasan dan Pengajaran: 
 
@@ -26,7 +26,7 @@ b. Syirik bermaksud mempersekutukan Allah SWT dengan sesuatu yang lain seperti m
 
 c. Syirik boleh juga terjadi melalui perkataan atau percakapan kita sehari-hari seperti “Kejayaan aku hari ini adalah kerana usaha aku!”, sama seperti percakapan Qarun dalam Surah Al-Qasas [28] : 78, contoh dua: “Jika tiada ubat ini, tentulah aku mati,” dan yang seumpama dengannya. d. Rujuk Surah Al-A’raaf [7] : 172, perihal janji manusia kepada Allah SWT sebelum dilahirkan. 
 
-~ Dari Anas r.a: Nabi saw bersabda, “Seorang kafir akan ditampilkan ke muka (pengadilan) pada hari kiamat, lalu dikatakan kepadanya; ‘Apa pandangan kamu sekiranya kamu mempunyai emas sepenuh bumi, adakah kamu akan menggunakannya sebagai tebusan (untuk menggantikan azab yang kamu rasai)?” Si kafir itupun berkata, ‘Ya.’ 
+> ~ Dari Anas r.a: Nabi saw bersabda, “Seorang kafir akan ditampilkan ke muka (pengadilan) pada hari kiamat, lalu dikatakan kepadanya; ‘Apa pandangan kamu sekiranya kamu mempunyai emas sepenuh bumi, adakah kamu akan menggunakannya sebagai tebusan (untuk menggantikan azab yang kamu rasai)?” Si kafir itupun berkata, ‘Ya.’ 
 
 Sabda Rasulullah saw, “Maka dikatakan kepada si kafir itu, ‘Sesungguhnya Aku telah meminta dari kamu suatu yang lebih mudah dari sedemikian itu.’ Yang sedemikian itu adalah Firman Allah Azza wa Jalla (maksudnya) : Sesungguhnya orang-orang kafir dan mati sedangkan mereka tetap dalam kekafirannya, maka tidaklah akan diterima dari seseorang dari mereka emas sepenuh bumi, walaupun dia menebus diri dengan emas (yang sebanyak) itu.......” (Surah Ali Imran [3] : 91) [003] (Sahih, Imam Ahmad. Hadis di dalam kitab Kanzul Ummal - Al-Hindi) 
 
@@ -38,7 +38,7 @@ b. Tiada azab yang paling pedih dan dahsyat melainkan azab ‘Khulud’, iaitu t
 
 c. Jika ada orang-orang munafik dan kafir bertanya, “Adilkah Allah SWT menyiksa orang-orang kafir dalam neraka untuk selamanya, walhal mereka hanya hidup selama beberapa tahun di dunia?” Jawablah, sekiranya mereka diberi kehidupan seribu tahunpun mereka tetap tidak berniat untuk beriman kepada Allah SWT kerana hati dan mata mereka buta pada kebenaran. Sesungguhnya Allah yang Maha Mengetahui. (Rujuk Surah Al-An’aam [6] : 28) 
 
-~ Dari Abu Hurairah r.a : Nabi saw bersabda, “(Nabi) Ibrahim bertemu dengan bapanya Aazar pada hari kiamat. Pada muka Aazar terdapat tanda-tanda legam bagaikan terkena asap (akibat ketakutan terhadap kedahsyatan hari kiamat tersebut) dan dicemari dengan debu. Lalu Ibrahim berkata kepadanya, ‘Tidakkah aku telah memberitahumu agar jangan mengingkari daku (seruan dakwahku)?’ 
+> ~ Dari Abu Hurairah r.a : Nabi saw bersabda, “(Nabi) Ibrahim bertemu dengan bapanya Aazar pada hari kiamat. Pada muka Aazar terdapat tanda-tanda legam bagaikan terkena asap (akibat ketakutan terhadap kedahsyatan hari kiamat tersebut) dan dicemari dengan debu. Lalu Ibrahim berkata kepadanya, ‘Tidakkah aku telah memberitahumu agar jangan mengingkari daku (seruan dakwahku)?’
 
 Bapanya pun menjawab, ‘Maka pada hari ini aku tidak akan mengingkari kamu.’ Ibrahim pun berkata padanya, ‘Wahai Tuhanku, sesungguhnya Engkau telah berjanji denganku agar tidak menghinakan daku pada hari di mana semua manusia dibangkitkan (dari kubur masing-masing), maka apakah kehinaan yang lebih dahsyat dari kehinaan yang menimpa bapaku yang terjauh dari rahmat (syurga)Mu?’ Allah Azza wa Jalla berfirman : ‘Sesungguhnya aku mengharamkan syurga itu ke atas orang-orang kafir.’ Kemudian dikatakan kepada Ibrahim, ‘Wahai Ibrahim, apakah yang berada di bawah kedua kakimu?’ 
 
@@ -52,7 +52,7 @@ b. Keimanan pada hari kiamat adalah tidak bermanfaat kerana tidak beriman ketika
 
 c. Bapa tidak dapat memberi manfaat, anak juga tidak dapat memberi manfaat kecuali Allah SWT menghendaki atau diizinkan oleh-Nya. d. Pertukaran Aazar kepada seekor serigala hutan oleh Allah SWT, sehingga Nabi Ibrahim a.s tidak mengenalinya. Inilah hakikat hari kiamat, hubungan kekeluargaan tidak mempunyai erti apa-apa, yang tinggal hanya keimanan yang diadili pada hari kiamat. Hanya Amalan yang Ikhlas Diterima Oleh Allah SWT – (Golongan Manusia yang Pertama Dihisab di Hari Penghisaban) 
 
-~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Manusia yang awal-awal akan diadili pada hari kiamat adalah seorang lelaki yang telah mati syahid. Lalu lelaki itu dibawa ke muka (pengadilan-pent). Allah SWT telah memperingatkan kepadanya segala nikmat yang telah dikurniakan-Nya kepadanya, lantaran itu, lelaki itupun mengakui akan segala nikmat kurniaan Allah SWT tersebut. 
+> ~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Manusia yang awal-awal akan diadili pada hari kiamat adalah seorang lelaki yang telah mati syahid. Lalu lelaki itu dibawa ke muka (pengadilan-pent). Allah SWT telah memperingatkan kepadanya segala nikmat yang telah dikurniakan-Nya kepadanya, lantaran itu, lelaki itupun mengakui akan segala nikmat kurniaan Allah SWT tersebut.
 
 (i). Allah SWT bertanya kepadanya (sedangkan Dia Maha Mengetahui): ‘Maka apakah yang telah dikau lakukan dengan nikmat-nikmat itu?’ Lelaki itupun menjawab: ‘Aku berperang kerana-Mu sehinggalah aku mati mati syahid.’Allah SWT berfirman: ‘Kamu berdusta. Akan tetapi kamu berperang supaya kamu dipanggil seorang yang berani. Oleh yang demikian, sesungguhnya kamu telah telahpun dipanggil sedemikian.’ Kemudian Allah SWt memerintahkan agar lelaki itu dicampakkan ke dalam api neraka, lalu beliaupun ditarik dengan mukanya ke bawah hinggalah dicampakkan ke dalam api neraka. 
 
@@ -68,7 +68,7 @@ b. Hendaklah melaksanakan ibadah dengan niat kerana Allah SWT dan untuk memperol
 
 c. Hadis ini perlu dijadikan pengajaran bagi setiap lapisan masyarakat kerana segala nikmat Allah SWT akan ditanya untuk apa kita gunakan di dunia ini, terutama para ilmuwan, hartawan dan mereka yang mendakwa berjihad di jalan Allah SWT. Adakah kita benar-benar mengikut jalan yang ditunjuk oleh Rasulullah saw dan para sahabat? Syirik - Perkara yang Paling Ditakuti Rasulullah SAW Atas Umatnya 
 
-~ Dari Mahmud bin Labid r.a : Rasulullah saw bersabda, “Sesungguhnya perkara yang paling aku takuti atas kamu adalah syirik asghar (syirik kecil).” Para sahabat bartanya, ‘Ya Rasulullah, apa kah syirik asghar itu?’ 
+> ~ Dari Mahmud bin Labid r.a : Rasulullah saw bersabda, “Sesungguhnya perkara yang paling aku takuti atas kamu adalah syirik asghar (syirik kecil).” Para sahabat bartanya, ‘Ya Rasulullah, apa kah syirik asghar itu?’
 
 Baginda Saw menjawab, “Riya’. Sesungguhnya Allah Tabaaraka wa Ta’ala berfirman pada hari semua amalan-amalan diganjari, ‘Pergilah kamu kepada orang-orang yang telah kamu perlihatkan amalan-amalan kamu kepada mereka dan lihatlah samada ada balasan di sisi mereka itu (untuk kamu).” [014] (Sahih, dikeluarkan oleh Ahmad, Al-Baghawi dalam Syarhul As-Sunnah. Kanzul Ummal dan At-Targhib wa Tarhib lil Al-Hafidz Al-Mundziri) 
 
@@ -80,7 +80,7 @@ b. Perkataan ‘syirik kecil’ bukanlah bermakna meringan-ringankan perkara syi
 
 c. Hari di mana segala rahsia terbongkar dan para pelaku riya’ berasa amat sengsara dan menyesal sekali kerana disuruh meminta pengurniaan pahala daripada orang yang mereka perlihatkan amalan itu. 
 
-~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Allah Azza Jalla berfirman, ‘Hamba-Ku akan berterusan bertanya tentang Daku’ : Allah ini telah menciptakan aku, maka siapakah pula yang menciptakan Allah?” [016] (Sahih Bukhari dan Muslim) 
+> ~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Allah Azza Jalla berfirman, ‘Hamba-Ku akan berterusan bertanya tentang Daku’ : Allah ini telah menciptakan aku, maka siapakah pula yang menciptakan Allah?” [016] (Sahih Bukhari dan Muslim)
 
 Penjelasan dan Pengajaran : 
 
@@ -88,7 +88,7 @@ a. Apa yang telah disabdakan oleh Rasulullah saw benar-benar telah terjadi seper
 
 b. Tambahan: Telah muncul zaman kita ini, tentang fahaman ‘Scientology’ yang kini menular di Malaysia. Golongan ini mengingkari takdir dan mengatakan setiap yang berlaku ada penjelasan sains tentangnya. Manusia semua bebas tanpa terikat dengan peraturan alam. Moga kita dilindungi oleh Allah yang Maha Penyayang dari tergolong di kalangan mereka ini. Pagi Seorang Mukmin, Petang Menjadi Kafir 
 
-~ Dari Zaid bin Kholid Al-Juhni r.a : Beliau telah berkata, Rasulullah saw telah bersolat subuh dengan kami di Hudaibiyyah di penghujung malam. Apabila selesai bersolat, baginda berpaling menghadap ke arah orang ramai (para sahabatnya) seraya bersabda, “Adakah kamu sekalian mengetahui apakah yang difirmankan oleh Tuhan kamu?” Mereka menjawab ‘Allah dan Rasul-Nya lebih mengetahui.’ 
+> ~ Dari Zaid bin Kholid Al-Juhni r.a : Beliau telah berkata, Rasulullah saw telah bersolat subuh dengan kami di Hudaibiyyah di penghujung malam. Apabila selesai bersolat, baginda berpaling menghadap ke arah orang ramai (para sahabatnya) seraya bersabda, “Adakah kamu sekalian mengetahui apakah yang difirmankan oleh Tuhan kamu?” Mereka menjawab ‘Allah dan Rasul-Nya lebih mengetahui.’
 
 Rasulullah saw pun bersabda, “Allah berfirman, ‘Berpagi-pagi hamba-hamba-Ku beriman dengan-Ku. Maka adapun orang-orang yang berkata, ‘Kami diberi hujan justeru dengan kurniaan Allah SWT dan rahmat-Nya’, orang yang berkata sedemikian itu adalah orang yang beriman dengan-Ku dan kufur dengan bintang-bintang. 
 
@@ -104,7 +104,7 @@ b. Tambahan Blog : Perlu berhati-hati ketika mengeluarkan perkataan atau percaka
 
 Al-Hakim telah memulakan hadis di atas dengan kata-kata perawinya, Sufyan bin ‘Uyainah : Orang-orang jahiliyah telah berkata, ‘Sesungguhnya zaman (masa) itulah yang membinasakan kita semua. Dialah (perjalanan masa) yang mematikan dan menghidupkan kita.’ (Maksudnya, kaum jahiliyah menolak kekuasaan Allah yang Maha Agung). Penciptaan Makhluk Di Dalam Rahim Ibunya 
 
-~ Dari Abdullah bin Mas’ud : Rasulullah saw bersabda, “Penciptaan salah seorang kamu disempurnakan dalam rahim ibunya sepanjang tempoh beberapa kali (dalam) empat puluh hari. Empat puluh hari yang kedua dalam bentuk segumpal darah kemudian dalam empat puluh hari yang ketiga dalam bentuk segumpal daging. 
+> ~ Dari Abdullah bin Mas’ud : Rasulullah saw bersabda, “Penciptaan salah seorang kamu disempurnakan dalam rahim ibunya sepanjang tempoh beberapa kali (dalam) empat puluh hari. Empat puluh hari yang kedua dalam bentuk segumpal darah kemudian dalam empat puluh hari yang ketiga dalam bentuk segumpal daging.
 
 Kemudian Allah mengutuskan malaikat kepadanya lalu diperintahkan agar menulis untuknya empat kalimah dengan firman-Nya : ‘Tulislah baginya amalannya, ajalnya, rezekinya dan samada celaka atau bahagia.’ 
 
@@ -114,7 +114,7 @@ Keterangan Hadis: Begitu banyak pengajaran yang terdapat dalam hadis ini, namun 
 
 Tambahan: Mengenai penciptaan dalam masa empat puluh hari itu bererti keseluruhannya dalam tempoh masa empat puluh hari, bukan tiga atau empat bulan. Begitulah kajian ulama kini. Sila rujuk kajian Prof. Dr. Sharaf al-Qudhah [Fakulti Syariah, Universiti Jordan] dan diterjemahkan oleh Zulkifli Hj Mohd Yusoff Abdurrahim Yapono [Universiti Malaya] dalam bukunya berjudul ‘Bilakah Waktu Janin Ditiupkan Roh?’. Pena (Al-Qalam) 
 
-~ Dari Ubadah bin As-Somit r.a : Rasulullah saw bersabda, “Sesungguhnya yang pertama-tama diciptakan oleh Allah adalah ‘Al-Qalam’. Allah berfirman kepadanya : ‘Tulislah.’ Al-Qalam pun berkata : ‘Apakah yang aku akan tulis?’ Allah berfirman : ‘Tulislah akan qadar (takdir) dan apa yang terjadi untuk selama-lamanya.” [041] ( Sahih. Dikeluarkan oleh At-Tirmidzi dan Abu Daud At-Tayaalisi) 
+> ~ Dari Ubadah bin As-Somit r.a : Rasulullah saw bersabda, “Sesungguhnya yang pertama-tama diciptakan oleh Allah adalah ‘Al-Qalam’. Allah berfirman kepadanya : ‘Tulislah.’ Al-Qalam pun berkata : ‘Apakah yang aku akan tulis?’ Allah berfirman : ‘Tulislah akan qadar (takdir) dan apa yang terjadi untuk selama-lamanya.” [041] ( Sahih. Dikeluarkan oleh At-Tirmidzi dan Abu Daud At-Tayaalisi) 
 
 Penjelasan dan Pengajaran : 
 
@@ -126,7 +126,7 @@ Penjelasan dan Pengajaran :
 
 ## Bab Solat: Bangun Di Waktu Malam 
 
-~ Dari ‘Uqbah bin ‘Amir Al-Juhni r.a : Nabi saw bersabda, “Dua orang lelaki dari kalangan umat ku; salah seorang dari mereka bangun di waktu malam seraya melawan keinginannya untuk terus tidur dan malas beribadat, lalu berwudhuk. Diikat pada tubuhnya (orang yang tidur) beberapa ikatan (oleh syaitan). 
+> ~ Dari ‘Uqbah bin ‘Amir Al-Juhni r.a : Nabi saw bersabda, “Dua orang lelaki dari kalangan umat ku; salah seorang dari mereka bangun di waktu malam seraya melawan keinginannya untuk terus tidur dan malas beribadat, lalu berwudhuk. Diikat pada tubuhnya (orang yang tidur) beberapa ikatan (oleh syaitan).
 
 Maka apabila beliau berwudhuk dan mewudhukkan kedua-dua tangannya, terlepaslah satu ikatan. Dan apabila dia mewudhukkan wajahnya terlepaslah pula satu ikatan. Apabila mengusap wajahnya, terlepaslah pula satu ikatan. Apabila mengusap kepalanya terlepas lagi satu ikatan dan apabila beliau mewudhukkan kakinya terlepas pula ikatan yang lain. 
 
@@ -142,7 +142,7 @@ Penjelasan dan Pengajaran :
 
 ## Malaikat Pencatat Amalan 
 
-~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Malaikat-malaikat pencatat amalan yang dilakukan di waktu malam dan siang silih berganti mencatat amalan-amalan kamu. Mereka berkumpul di waktu solat Asar dan solat Subuh. 
+> ~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Malaikat-malaikat pencatat amalan yang dilakukan di waktu malam dan siang silih berganti mencatat amalan-amalan kamu. Mereka berkumpul di waktu solat Asar dan solat Subuh.
 
 Kemudian malaikat yang bermalam di kalangan mereka naik. Allah bertanya kepada mereka (sedangkan Allah Maha Mengetahui) : ‘Dalam keadaan bagaimanakah kamu meninggalkan hamba-hambaKu?’ Mereka menjawab : ‘Kami meninggalkan mereka dalam keadaan mereka bersolat dan kami telah datang kepada mereka dalam keadaan mereka juga bersolat.” [062] (Sahih. Dikeluarkan oleh Imam Malik. Al-Bukhari dan Muslim, Imam Ahmad, Abu ‘Awanah dan Al-Baghowi) 
 
@@ -154,7 +154,7 @@ Penjelasan dan Pengajaran :
 
 ## Solat Adalah Amalan yang Pertama Dihisab 
 
-~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Sesungguhnya amalan pertama akan dihisab pada seseorang hamba ialah solatnya. Jika solatnya baik maka sesungguhnya beliau telah berjaya dan selamat dan sekiranya solatnya rosak maka sesungguhnya rugi dan binasalah ia. Sekiranya berlaku sesuatu kekurangan pada solat fardhunya, maka Tuhan Pemelihara Azza wa Jalla akan berfirman (kepada para malaikat-Nya) : Lihatlah oleh kamu adakah hamba-Ku mempunyai ibadat tathowwu’? 
+> ~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Sesungguhnya amalan pertama akan dihisab pada seseorang hamba ialah solatnya. Jika solatnya baik maka sesungguhnya beliau telah berjaya dan selamat dan sekiranya solatnya rosak maka sesungguhnya rugi dan binasalah ia. Sekiranya berlaku sesuatu kekurangan pada solat fardhunya, maka Tuhan Pemelihara Azza wa Jalla akan berfirman (kepada para malaikat-Nya) : Lihatlah oleh kamu adakah hamba-Ku mempunyai ibadat tathowwu’?
 
 Lalu solat fardhunya itu disempurnakan dengan solat tathowwu’-nya itu. Kemudian seluruh amalan dihisab sedemikian juga.” [065] (Sahih. Dikeluarkan oleh At-Tirmidzi dan An-Nasa’i. Juga dikeluarkan oleh Ahmad, Abu Daud, Ibnu Majah, Al-Hakim dll dengan lafaz sedikit berbeza) 
 
@@ -168,7 +168,7 @@ Penjelasan dan Pengajaran :
 
 ## Tertolak Solat yang Tidak Dibacakan Al-Fatihah 
 
-~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Barangsiapa yang mengerjakan satu solat tanpa Ummul Quran (Al-Fatihah) maka beliau seorang penipu (diulang tiga kali), (iaitu) tidak sempurna.” 
+> ~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Barangsiapa yang mengerjakan satu solat tanpa Ummul Quran (Al-Fatihah) maka beliau seorang penipu (diulang tiga kali), (iaitu) tidak sempurna.” 
 
 Lalu ditanya (oleh orang) kepada Abu Hurairah : “Sesungguhnya (jika) kami bersolat di belakang imam?” 
 
@@ -195,13 +195,13 @@ Penjelasan dan Pengajaran :
 
 ## Membelanjakan Harta di Jalan Allah 
 
-~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Allah Azza wa Jalla berfirman : Belanjalah wahai anak Adam, Aku akan berbelanja atasmu.” [079] (Sahih. Riwayat Bukhari, Imam Ahmad dan Ibnu Majah) 
+> ~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Allah Azza wa Jalla berfirman : Belanjalah wahai anak Adam, Aku akan berbelanja atasmu.” [079] (Sahih. Riwayat Bukhari, Imam Ahmad dan Ibnu Majah)
 
 Penjelasan dan Pengajaran : Membelanjakan harta di jalan Allah bermaksud : Belanja yang membawa erti menafkahkan harta kepada ibu bapa yang miskin, isteri, anak-anak dalam tanggungan dan tiada sumber pendapatan, kaum kerabat terdekat yang miskin, kaum fakir miskin, orang-orang yang dalam kesusahan dan segala kebaikan yang lainnya kerana Allah Ta’ala. 
 
 ## Mengutamakan yang Lebih Utama 
 
-~ Dari Abu Umamah r.a : Rasulullah saw bersabda, “(Allah Azza wa Jalla berfirman) : Wahai anak Adam, sekiranya engkau membelanjakan kelebihan yang ada pada kamu maka itu adalah baik untuk kamu dan jika kamu menahannya maka ia adalah buruk bagi mu. Dan kamu tidak akan ditempelak (dicela atau dicerca) di atas kadar keperluan yang ada pada kamu. Dan mulakannya (pemberian) itu dengan orang yang bergantung pada mu. Dan tangan di atas adalah lebih baik dari tangan yang di bawah.” [082] (Sahih. Riwayat Muslim, Imam Ahmad, At-Tirmidzi dan Al-Baihaqi) 
+> ~ Dari Abu Umamah r.a : Rasulullah saw bersabda, “(Allah Azza wa Jalla berfirman) : Wahai anak Adam, sekiranya engkau membelanjakan kelebihan yang ada pada kamu maka itu adalah baik untuk kamu dan jika kamu menahannya maka ia adalah buruk bagi mu. Dan kamu tidak akan ditempelak (dicela atau dicerca) di atas kadar keperluan yang ada pada kamu. Dan mulakannya (pemberian) itu dengan orang yang bergantung pada mu. Dan tangan di atas adalah lebih baik dari tangan yang di bawah.” [082] (Sahih. Riwayat Muslim, Imam Ahmad, At-Tirmidzi dan Al-Baihaqi) 
 
 Penjelasan dan Pengajaran : 
 
@@ -215,7 +215,7 @@ Penjelasan dan Pengajaran :
 
 [e]. Menggalakkan berusaha kepada peningkatan taraf hidup dan bukan hanya berpeluk tubuh mengharap bulan jatuh ke riba. 
 
-~ Dari Abu Waaqid Al-Laithi r.a, katanya : Rasulullah saw bersabda, “Sesungguhnya Allah Azza wa Jalla berfirman : Sesungguhnya Kami telah menurunkan (mengurniakan) harta bagi mendirikan solat dan mengeluarkan zakat. 
+> ~ Dari Abu Waaqid Al-Laithi r.a, katanya : Rasulullah saw bersabda, “Sesungguhnya Allah Azza wa Jalla berfirman : Sesungguhnya Kami telah menurunkan (mengurniakan) harta bagi mendirikan solat dan mengeluarkan zakat. 
 
 Jika seorang anak Adam itu mempunyai satu wadi (satu lembah harta) maka sudah pasti ia suka andainya beliau mempunyai wadi kedua; dan sekiranya beliau mempunyai dua wadi sudah pasti beliau suka untuk mempunyai wadi yang ketiga. 
 
@@ -235,11 +235,11 @@ Pemusnah bagi sifat tamak yang bermaharajalela ini adalah mengingat pemutus keni
 
 ## Kelebihan Berpuasa 
 
-~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, (Allah Subhana wa Ta’ala berfirman), “Setiap amalan anak Adam adalah untuknya melainkan puasa, maka ia adalah untuk-Ku dan Aku yang mengganjarinya. 
+> ~ Dari Abu Hurairah r.a : Rasulullah saw bersabda, (Allah Subhana wa Ta’ala berfirman), “Setiap amalan anak Adam adalah untuknya melainkan puasa, maka ia adalah untuk-Ku dan Aku yang mengganjarinya. 
 
 Dan demi Dia (Allah) yang memegang jiwaku (Nabi Muhammad saw) di dalam Tangan-Nya, sesungguhnya bau mulut orang yang berpuasa itu adalah lebih harum di sisi Allah dari bau kasturi. Dan puasa itu adalah perisai (yang melindungi dari api neraka). 
 
-Bagi orang yang berpuasa itu ada dua kegembiraan, kegembiraan ketika berbuka dan kegembiraan ketika bertemu Rabb Azza wa Jalla di mana dia bergembira dengan puasanya.” [104] Sahih. Riwayat Imam Ahmad dan Ibnu Khuzaimah 
+Bagi orang yang berpuasa itu ada dua kegembiraan, kegembiraan ketika berbuka dan kegembiraan ketika bertemu Rabb Azza wa Jalla di mana dia bergembira dengan puasanya.” [104] Sahih. Riwayat Imam Ahmad dan Ibnu Khuzaimah
 
 Penjelasan dan Pengajaran : 
 
@@ -251,7 +251,7 @@ Penjelasan dan Pengajaran :
 
 ## Allah Tertawa Kepada Dua Orang 
 
-~ Dari Ibnu Mas’ud r.a, katanya : (Bersabda Rasulullah saw), “Dua orang lelaki yang mana Allah tertawa (dalam riwayat Abu Darda’ r.a dengan darjat Hasan juga dari Thabrani, ditulis ‘ketawa dan bergembira’) melihat kedua-dua mereka; 
+> ~ Dari Ibnu Mas’ud r.a, katanya : (Bersabda Rasulullah saw), “Dua orang lelaki yang mana Allah tertawa (dalam riwayat Abu Darda’ r.a dengan darjat Hasan juga dari Thabrani, ditulis ‘ketawa dan bergembira’) melihat kedua-dua mereka;
 
 (a). Seorang lelaki yang berada di atas kudanya yang menyerupai kuda-kuda para sahabatnya. Musuhpun berhadapan dengan mereka lalu tumpas. Manakala lelaki itu tetap teguh atas kudanya (berjihad). Sekiranya beliau terbunuh, maka beliau telahpun menemui kesyahidan. Maka itulah lelaki yang mana Allah tertawa melihatnya. 
 
