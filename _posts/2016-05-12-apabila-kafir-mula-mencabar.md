@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Apabila Kafir Mula Mencabar
+categories:
+  - Keilmuan
+---
 "Pada suatu ketika, kota Baghdad didatangi oleh seorang pendakyah Yahudi bernama Dahri. Kedatangannya mencetuskan kegemparan dikalangan umat Islam. Dahri cuba merosakkan pegangan umat Islam dengan membahaskan soal-soal yang berhubung kait dengan ketuhanan. Dicabarnya para ulama Baghdad untuk berdebat dengannya.
 
 Setiap kali cabarannya disahut, hujah-hujah Dahri tidak pernah dapat dipatahkan sehingga akhirnya tidak ada lagi ulama Baghdad dan ulama-ulama disekitarnya yang sanggup berhadapan dengannya. Dari kejadiannya ini, tahulah Khalifah bahawa Baghdad sudah ketiadaan ulama yang benar-benar berwibawa dan tinggi ketaqwaannya.
