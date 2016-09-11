@@ -1,6 +1,17 @@
-Bagimanakah cara Nabi s.a.w duduk ketika makan?
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Bagaimanakah Nabi Duduk Ketika Makan
+categories:
+  - Howto
+---
+## Bagimanakah cara Nabi s.a.w duduk ketika makan?
 
-Jawapan:
+**Jawapan:**
+
+![]({{site.baseurl}}/images/Cara-Duduk-Nabi-Muhammad-SAW-Ketika-Makan.jpg)
+![Cara-Duduk-Nabi-Muhammad-SAW-Ketika-Makan.jpg]({{site.baseurl}}/images/Cara-Duduk-Nabi-Muhammad-SAW-Ketika-Makan.jpg)
 
 Terdapat hadith-hadith yang menceritakan secara jelas cara duduknya Nabi s.a.w ketika makan, diantaranya yang diriwayatkan daripada Abi Juhaifah r.a., beliau menceritakan:
 
