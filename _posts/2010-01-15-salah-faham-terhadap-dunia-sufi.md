@@ -28,19 +28,23 @@ Tiba-tiba anda sudah merasa tenggelam?
 Mengenai akidah Sufi tentang Rasulullah, tentang para Wali, tentang Fir’aun dan Iblis, Syurga dan neraka, bahkan pengalaman-pengalaman para Sufi akan kita jawab secara bersambung di edisi berikutnya.
 
 ## Tuduhan terhadap Dunia Wali
-Mereka menuduh kaum Sufi, dengan suatu tundingan keliru. Diantara tundingan mereka yang kontra pada dunia Sufi, tentang Kewalian antara lain:
-1.    Sufi dituduh mengutamakan Wali daripada Nabi.
-2.    Para Wali dianggap sama dengan Allah dalam setiap sifatNya, bermula dari salah paham mereka mempersepsi tentang ragam dunia Wali dengan tugas-tugas rohani masing-masing, seakan-akan tugas itu menyamai tugas Allah.
-3.    Para Wali seperti memiliki dewan, majlis, berkumpul di gua Hira untuk menunggu takdir.
+Mereka menuduh kaum Sufi, dengan suatu tundingan keliru. Diantara tundingan mereka yang kontra pada dunia 
+Sufi, tentang Kewalian antara lain:
+
+- Sufi dituduh mengutamakan Wali daripada Nabi.
+- Para Wali dianggap sama dengan Allah dalam setiap sifatNya, bermula dari salah paham mereka mempersepsi tentang ragam dunia Wali dengan tugas-tugas rohani masing-masing, seakan-akan tugas itu menyamai tugas Allah.
+- Para Wali seperti memiliki dewan, majlis, berkumpul di gua Hira untuk menunggu takdir.
+
 
 Tiga tundingan itulah yang membuat orang salah paham terhadap dunia Sufi.
 
 ## Jawapan:
 Ummat Islam sepakat adanya para Auliya' atau kekasih-kekasih Allah. Bahkan mereka yang kontra terhadap dunia Tasawuf pun memiliki definisi khusus, menurut penafsiran rasmi mengenai para Wali ini, yang tentu saja berbeza jauh antara langit dan bumi dengan pemahaman kaum sufi.
 
-1.    Kaum Sufi tidak pernah menempatkan darjat para Wali lebih unggul dibanding para Nabi dan Rasul. Para Auliya adalah sebagai pewaris dan pemegang amanah Risalah setelah Nabi Muhammad SAW wafat. Sebagai Khalifah dan sekaligus juga sebagai pewaris Nubuwwah. Jika, muncul ungkapan-ungkapan kehebatan para Auliya dalam kitab-kitab Tasawuf, sama sekali tidak ada satu pun kata atau isyarat yang menunjukkan keunggulan maqam Auliya' dibanding maqam Anbiya dan Rasul. Semata hanya ingin memperkenalkan jika para Auliya' diberi karomah (hal-hal yang di luar nalar akal rasional) oleh Allah swt, apalagi para Anbiya dan Mursalin.
+-    Kaum Sufi tidak pernah menempatkan darjat para Wali lebih unggul dibanding para Nabi dan Rasul. Para Auliya adalah sebagai pewaris dan pemegang amanah Risalah setelah Nabi Muhammad SAW wafat. Sebagai Khalifah dan sekaligus juga sebagai pewaris Nubuwwah. Jika, muncul ungkapan-ungkapan kehebatan para Auliya dalam kitab-kitab Tasawuf, sama sekali tidak ada satu pun kata atau isyarat yang menunjukkan keunggulan maqam Auliya' dibanding maqam Anbiya dan Rasul. Semata hanya ingin memperkenalkan jika para Auliya' diberi karomah (hal-hal yang di luar nalar akal rasional) oleh Allah swt, apalagi para Anbiya dan Mursalin.
 
-2.    Para Sufi yang diangkat darjatnya oleh Allah meraih maqam Kewalian atas KehendakNya, diberi anugerah, fadlal dan rahmatNya, menurut kehendakNya. Kesalahpamahan mereka yang kontra terhadap dunia Wali semacam ini bersumber pada fenomena karomah, fenomena hikmah-hikmah terdalam yang tidak boleh dipahami oleh mereka, kerana hanya merujuk pada teks Qur'an dan Hadits tanpa mengenal hakikat kedalaman dibalik ayat-ayat Al-Qur'an dan Sunnah itu.
+-    Para Sufi yang diangkat darjatnya oleh Allah meraih maqam Kewalian atas KehendakNya, diberi anugerah, fadlal dan rahmatNya, menurut kehendakNya. Kesalahpamahan mereka yang kontra terhadap dunia Wali semacam ini bersumber pada fenomena karomah, fenomena hikmah-hikmah terdalam yang tidak boleh dipahami oleh mereka, kerana hanya merujuk pada teks Qur'an dan Hadits tanpa mengenal hakikat kedalaman dibalik ayat-ayat Al-Qur'an dan Sunnah itu.
+
 
 Apakah anda tega menyalahkan Syeikh Abdul Qadir al-Jilany, Abul Hasan Asy-Syadzily, Hujjatul Islam al-Ghazaly, Ibnu Araby. Al-Bisthamy, Asy-Syibly, Junaid al-Bahgdady, para Imam Mazhab, yang sangat terkenal sebagai para Auliya' Allah, dan sama sekali mereka jauh dari persepsi anda tentang kewalian itu?
 
@@ -58,7 +62,8 @@ Kerana itu Ibnu Araby, membagi komuniti para auliya’ menurut komuniti kebajika
 
 Munculnya istilah Ghauts, Quthub, Abdal, Nuqaba', Nujaba', tentu memiliki dasar-dasar yang tersirat dalam Al-Qur'an dan Sunnah, dan tugas-tugas amanah kewaliyan mereka tentu Allah sendiri Yang Maha Tahu, yang dengan KemahakuasaanNya, dan Irodah MutlakNya, memberikan wewenang dan tugas khusus. Dan semua tugas itu juga dalam rangka meneruskan amanah Rasul SAW.
 
-3.    Soal adanya dewan para Wali, sesungguhnya juga tidak boleh disamakan sebagaimana kita memahami majlis sosial politik, dengan dewan pimpinan tertentu itu, dengan cara pemilihan ketua dewan atau ketua organisasi. Bahawa dalam dunia Kewalian ada hirarki struktur secara rohani, pasti sangat berbeza hirarki strukturalnya dengan dunia sosial manusiaw. Kalau suatu saat memang ada tugas bermajlis di gua Hira', itu bukan suatu tugas yang boleh dinilai sebagaimana berkumpulnya sebuah majlis PBB atau lainnya. Namun, kerana tugas kasuistis, menyangkut perkara moralitas ummat manusia di dunia, bahkan yang hidup maupun yang sudah mati, yang begitu tampak jelas dalam Alam Mukasyafah mereka, melalui Nur Ilahi.
+-    Soal adanya dewan para Wali, sesungguhnya juga tidak boleh disamakan sebagaimana kita memahami majlis sosial politik, dengan dewan pimpinan tertentu itu, dengan cara pemilihan ketua dewan atau ketua organisasi. Bahawa dalam dunia Kewalian ada hirarki struktur secara rohani, pasti sangat berbeza hirarki strukturalnya dengan dunia sosial manusiaw. Kalau suatu saat memang ada tugas bermajlis di gua Hira', itu bukan suatu tugas yang boleh dinilai sebagaimana berkumpulnya sebuah majlis PBB atau lainnya. Namun, kerana tugas kasuistis, menyangkut perkara moralitas ummat manusia di dunia, bahkan yang hidup maupun yang sudah mati, yang begitu tampak jelas dalam Alam Mukasyafah mereka, melalui Nur Ilahi.
+
 
 Tetapi wajar jika anda mempersoalkan, adanya kelompok tertentu yang mengaku dewan para wali, lalu membuat pertemuan alam ghaib, lalu mereka merasa sebagai para wali, padahal tidak lebih dari sebuah tipudaya alam Jin dan Iblis, boleh saja demikian. Kerana Iblis dan Syaitan pun punya kelompok tandingan Wali yang disebut dalam Al-Qur'an "Auliya' as-Syayathin". Atau para Wali Syaitan, yang seringkali menggunakan jubah agama. Mereka berjubah, tapi penuh dengan kebusukan, ketakaburan, riya' dan 'ujub, hubbud dunya (cinta dunia), penghamba nafsu dan takut mati.
 
