@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Jagalah Lidah
+categories:
+  - Tazkirah
+---
 
 Menurut Imam Al-Ghazali, lidah antara nikmat Allah SWT yang besar dan antara ciptaan Tuhan yang amat halus dan ganjil. Lidah mempunyai bentuk yang indah, kecil dan menarik. Selanjutnya Imam al-Ghazali berkata: “Keimanan dan kekufuran seseorang tiada terang dan jelas, selain dengan kesaksian lidah. Lidah mempunyai ketaatan yang besar dan mempunyai dosa besar pula. Anggota tubuh yang paling derhaka kepada manusia ialah lidah. Sesungguhnya lidah alat perangkap syaitan yang paling jitu untuk menjerumuskan manusia.” Daripada kata Imam al-Ghazali itu jelas menunjukkan kepada kita besarnya peranan lidah dalam kehidupan manusia kerana lidah kita boleh masuk syurga dan kerana lidah juga boleh dihumban kita ke neraka.
 
