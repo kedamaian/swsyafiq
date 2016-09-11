@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Hadis Qudsi
+categories:
+  - Hadis
+---
 Hadis Al-Qudsi 
 
 Takrif Hadis Al-Qudsi 
