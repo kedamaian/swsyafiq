@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: 10 Nasihat Untuk Menjadi Isteri Solehah
+categories:
+  - Howto
+---
 HATI ibu mana yang tidak gembira tatkala anak gadisnya dipinang orang. Sukanya hati bukan kepalang lalu pelbagai langkah bersiap untuk melangsungkan pernikahan dijalankan menurut tertib dan adat.
 
 Biasanya ibu dan ayah akan bertungkus-lumus berusaha menjadikan majlis akad nikah puteri kesayangannya dengan penuh komitmen supaya meriah dan ceria.
