@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: Masa Sudah Hampir Tiba!
+categories:
+  - Tazkirah
+---
 Dunia kini bergolak dengan pelbagai musibah yang melanda, hasil ciptaan manusia itu sendiri. Daripada bencana alam, tragedi kemanusiaan yang mengorbankan nyawa, kejatuhan ekonomi yang melampau, keruntuhan moral dan akhlak yang serius terutama di kalangan anak muda atau generasi muda, gejala sosial, dan seribu satu macam lagi bencana yang melanda; semua ini hasil ciptaan atau bayaran daripada apa yang manusia itu sendiri kerjakan!
 
 Firman Allah Taala,
