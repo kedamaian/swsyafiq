@@ -1,3 +1,11 @@
+---
+layout: post
+published: true
+author: tehnoblequran
+title: ' Salah Faham Terhadap Dunia Sufi'
+categories:
+  - Ilmu dan Amalan
+---
 Sementara kaum yang anti Tarekat Sufi merasa telah bercermin dengan benar, padahal mereka tidak mengetahui jika cermin yang digunakan itu adalah cermin yang buram, retak, dan cara bercermin yang keliru. Ketika mereka menuding orang lain, sesusungguhnya mereka sedang menuding diri sendiri.
 
 Kata-kata yang muncul dari para Sufi sesungguhnya harus difahami menurut kesimpulan Bathiniyah dari kandung Al-Qur’an dan Sunnah. Misalnya ketika seseorang mempraktikkan Ihsan, “Seakan-akan engkau melihat Allah, dan jika tidak melihatNya, Allah melihatmu” pastilah menimbulkan pantulan cahaya Ubudiyah yang agung dengan sesuai dengan kondisi psikholohis rohani masing-masinghamba Allah. Pantulan cahaya Ilahi inilah yang tidak boleh difahami oleh orang yang tidak pernah mengalami perjalaan rohani keimanan dan keihsanan.
@@ -19,7 +27,7 @@ Tiba-tiba anda sudah merasa tenggelam?
 
 Mengenai akidah Sufi tentang Rasulullah, tentang para Wali, tentang Fir’aun dan Iblis, Syurga dan neraka, bahkan pengalaman-pengalaman para Sufi akan kita jawab secara bersambung di edisi berikutnya.
 
-Tuduhan terhadap Dunia Wali
+## Tuduhan terhadap Dunia Wali
 Mereka menuduh kaum Sufi, dengan suatu tundingan keliru. Diantara tundingan mereka yang kontra pada dunia Sufi, tentang Kewalian antara lain:
 1.    Sufi dituduh mengutamakan Wali daripada Nabi.
 2.    Para Wali dianggap sama dengan Allah dalam setiap sifatNya, bermula dari salah paham mereka mempersepsi tentang ragam dunia Wali dengan tugas-tugas rohani masing-masing, seakan-akan tugas itu menyamai tugas Allah.
@@ -27,7 +35,7 @@ Mereka menuduh kaum Sufi, dengan suatu tundingan keliru. Diantara tundingan mere
 
 Tiga tundingan itulah yang membuat orang salah paham terhadap dunia Sufi.
 
-JAWAPAN
+## Jawapan:
 Ummat Islam sepakat adanya para Auliya' atau kekasih-kekasih Allah. Bahkan mereka yang kontra terhadap dunia Tasawuf pun memiliki definisi khusus, menurut penafsiran rasmi mengenai para Wali ini, yang tentu saja berbeza jauh antara langit dan bumi dengan pemahaman kaum sufi.
 
 1.    Kaum Sufi tidak pernah menempatkan darjat para Wali lebih unggul dibanding para Nabi dan Rasul. Para Auliya adalah sebagai pewaris dan pemegang amanah Risalah setelah Nabi Muhammad SAW wafat. Sebagai Khalifah dan sekaligus juga sebagai pewaris Nubuwwah. Jika, muncul ungkapan-ungkapan kehebatan para Auliya dalam kitab-kitab Tasawuf, sama sekali tidak ada satu pun kata atau isyarat yang menunjukkan keunggulan maqam Auliya' dibanding maqam Anbiya dan Rasul. Semata hanya ingin memperkenalkan jika para Auliya' diberi karomah (hal-hal yang di luar nalar akal rasional) oleh Allah swt, apalagi para Anbiya dan Mursalin.
