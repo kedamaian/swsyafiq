@@ -48,7 +48,7 @@ Al-Albani menyebut bahawa baginda juga memanjangkan rakaat pertama berbanding ra
 
 ## Solat Maghrib
 
-Syeikh al-Albani berkata: “Kadang-kadang baginda membaca “Qisarul Mufassal”. Ada juga baginda membaga “Tiwalul Mufassal” dan “Ausatul Mufassal”. Baginda pernah membaca surah Muhammad. Baginda pernah membaca surah at-Thur dan juga surah al-Mursalat. Dan pernah baginda membaca surah al-A’raf dalam dua rakaat, dan begitu juga surah al-Anfal”.
+Syeikh al-Albani berkata: “Kadang-kadang baginda membaca “Qisarul Mufassal”. Ada juga baginda membaca “Tiwalul Mufassal” dan “Ausatul Mufassal”. Baginda pernah membaca surah Muhammad. Baginda pernah membaca surah at-Thur dan juga surah al-Mursalat. Dan pernah baginda membaca surah al-A’raf dalam dua rakaat, dan begitu juga surah al-Anfal”.
 
     عَنْ سُلَيْمَانَ بْنِ يَسَارٍ، عَنْ أبي هريرة رضي الله عنه أَنَّهُ قَالَ: مَا رَأَيْتُ أَحَدًا أَشْبَهَ صَلاَةٍ بِرَسُولِ اللهِ صلى الله عليه وسلم مِنْ فُلاَنٍ، قَالَ سُلَيْمَانُ: فَكَانَ يَقْرَأُ فِيْ الصُّبْحِ بِطِوَالِ الْمُفَصَّلِ، وَفِيْ الْمَغْرِبِ بِقِصَارِ الْمُفَصَّلِ. قال الحافظ ابن حجر في فتح الباري: أخرجه النسائي وصححه ابن خزيمة وغيره.
 
@@ -88,7 +88,7 @@ Berkata al-Hafiz Ibn Hajar: Hadis ini menunjukkan bahawa semasa baginda sihat, b
 
     Al-Bara’ bin Azib menceitakan bahawa beliau pernah mendengar Nabi s.a.w. (semasa musafir) membaca surah at-Tin dalam sembahyang isyak. Dan beliau berkata: Dan aku tidak pernah mendengar seseorang pun yang lebih merdu daripada suara baginda. Riwayat Bukhari dan Muslim.
 
-Dan dalam cerita Muaz bin Jabal r.a. mengimami sembahyang isayk dengan surah al-Baqarah, baginda menegurnya dan bersabda:
+Dan dalam cerita Muaz bin Jabal r.a. mengimami sembahyang insya' dengan surah al-Baqarah, baginda menegurnya dan bersabda:
 
     أَتُرِيْدُ أَنْ تَكُوْنَ فَتَّانًا يَا مُعَاذُ؟ إِذَا أَمَمْتَ النَّاسَ فَاقْرَأْ بِالشَّمْسِ وَضُحَاهَا، وَسَبِّحِ اسْمَ رَبِّكَ الأَعْلى، وَاقْرَأْ بِاسْمِ رَبِّكَ، وَاللَّيْلِ إِذَا يَغْشى. رواه مسلم.
 
