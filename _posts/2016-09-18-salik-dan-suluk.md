@@ -12,7 +12,7 @@ Orang yang mahu memasuki suluk mestilah mempunyai azam yang kuat. Perkara-perkar
 
 Salik yang berhasrat memperolehi hasil yang baik perlu menjaga sopan santun semasa bersuluk. Perkara yang perlu dijaga adalah:
 
-1. mengikhlaskan kasih kepada Allah s.w.t dan melakukan ibadat semata-mata kerana Allah s.w.t bukan kerana mahukan kasyaf dan keramat.
+1. Mengikhlaskan kasih kepada Allah s.w.t dan melakukan ibadat semata-mata kerana Allah s.w.t bukan kerana mahukan kasyaf dan keramat.
 
 2. Amal ibadat yang dilakukan hendaklah sesuai dengan peraturan yang ditentukan oleh syariat, tidak boleh mengubahnya sehingga bercanggah dengan syariat.
 
