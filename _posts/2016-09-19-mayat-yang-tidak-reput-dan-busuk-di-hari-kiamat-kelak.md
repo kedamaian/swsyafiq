@@ -7,7 +7,7 @@ categories:
   - Tazkirah
 ---
 ## SEPULUH ORANG YANG MAYATNYA TIDAK BUSUK DAN TIDAK REPUT DI HARI QIAMAT KELAK
-Disebutkan di dalam satu riwayat, bahawasanya apabila para makhluk dibangkitkan dari kubur, mereka semuanya berdiri tegak di kubur masing-masing selama 44 tahun UMUR AKHIRAT dalam keadaan TIDAK MAKAN dan TIDAK MINUM, TIDAK DUDUK dan TIDAKBERCAKAP.
+Disebutkan di dalam satu riwayat, bahawasanya apabila para makhluk dibangkitkan dari kubur, mereka semuanya berdiri tegak di kubur masing-masing selama 44 tahun UMUR AKHIRAT dalam keadaan TIDAK MAKAN dan TIDAK MINUM, TIDAK DUDUK dan TIDAK BERCAKAP.
 
 Bertanya orang kepada Rasulullah saw: 'Bagaimana kita dapat mengenali ORANG-ORANG MUKMIN kelak di hari qiamat?'
 
@@ -39,7 +39,7 @@ Disebutkan oleh hadith Rasulullah saw bahawa sepuluh orang yang mayatnya TIDAK B
 
 Didalam satu riwayat yang lain dari Jabir bin Abdullah ra sabda Rasulullah saw: Apabila datang hari QIAMAT dan orang-orang yang berada di dalam kubur dibangkitkan maka Allah swt memberi wahyu kepada Malaikat Ridhwan:
 
-`Wahai Ridhwan, sesungguhnya Aku telah mengeluarkan hamba-hamba Ku berpuasa ( Ahli Puasa ) dari kubur mereka di dalam keadaan letih dan dahaga. Maka ambillah dan berikan mereka segala makanan yang digoreng dan buah-buahan SYURGA.`
+> Wahai Ridhwan, sesungguhnya Aku telah mengeluarkan hamba-hamba Ku berpuasa ( Ahli Puasa ) dari kubur mereka di dalam keadaan letih dan dahaga. Maka ambillah dan berikan mereka segala makanan yang digoreng dan buah-buahan SYURGA.
 
 Maka Malaikat Ridhwan menyeru, wahai sekelian kawan-kawan dan semua anak-anak yang belum baligh, lalu mereka semua datang dengan membawa dulang dari nur dan berhimpun dekat Malaikat Ridhwan bersama dulang yang penuh dengan buahan dan minuman yang lazat dari syurga dengan sangat banyak melebihi daun-daun kayu di bumi.
 
