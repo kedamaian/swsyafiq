@@ -2,11 +2,11 @@
 layout: post
 published: true
 author: tehnoblequran
-title: Mayat yang Tidak Reput dan Busuk Di Hari Kiamat Kelak
+title: Mayat yang Tidak Reput dan Busuk Di Hari Kiamat
 categories:
   - Tazkirah
 ---
-## SEPULUH ORANG YANG MAYATNYA TIDAK BUSUK DAN TIDAK REPUT DI HARI QIAMAT KELAK
+### SEPULUH ORANG YANG MAYATNYA TIDAK BUSUK DAN TIDAK REPUT DI HARI QIAMAT KELAK
 Disebutkan di dalam satu riwayat, bahawasanya apabila para makhluk dibangkitkan dari kubur, mereka semuanya berdiri tegak di kubur masing-masing selama 44 tahun UMUR AKHIRAT dalam keadaan TIDAK MAKAN dan TIDAK MINUM, TIDAK DUDUK dan TIDAK BERCAKAP.
 
 Bertanya orang kepada Rasulullah saw: 'Bagaimana kita dapat mengenali ORANG-ORANG MUKMIN kelak di hari qiamat?'
