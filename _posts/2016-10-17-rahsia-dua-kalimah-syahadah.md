@@ -6,7 +6,8 @@ title: Rahsia Dua Kalimah Syahadah
 categories:
   - Keilmuan
 ---
-![Rahsia Ilmu Syahadah]({{site.baseurl}}/http://4.bp.blogspot.com/-HHv1zxZMSKs/VKY_O7tAOEI/AAAAAAAALcw/ukjO32DAQH4/s1600/shahadat-tok-ku-paloh-tulisan-jawi.jpg)
+![Rahsia Ilmu Syahadah]({{site.baseurl}}/images/shahadat-tok-ku-paloh-tulisan-jawi.jpg)
+
 
 ### Kisah Paderi dan Kunci Syurga
 Seorang pemuda yang dikejutkan oleh mimpinya supaya pergi ke gereja Samaan. Tiga kali mimpinya itu berulang. Lalu ia bersiap sedia dengan pakaian dan cara yang diberitahu dalam mimpinya.
