@@ -129,7 +129,9 @@ Mereka menjawab, "Kami akan jamin keselamatan anda. "
 Paderi pun berkata,
 
 Jawapannya ialah:
+
 > "أَشْهَدُ ألا إله الا الله و أشْهَدُ ان مُحَمدا رَسُوْل الله"
+
 
 Lantas paderi dan orang-orang yang hadir di gereja itu terus memeluk agama Islam. Sungguh Allah telah menganugerahkan kebaikan dan menjaga mereka dengan Islam melalui tangan seorang pemuda Muslim yang bertakwa.
 
