@@ -20,7 +20,7 @@ Paderi berkata, "Aku akan mengajukan kepada anda 22 pertanyaan Dan anda harus me
 
 Si pemuda tersenyum Dan berkata, "Silakan!"
 
-Sang paderi pun mulai bertanya,
+Si paderi pun mulai bertanya,
 
 "Sebutkan satu yang tiada duanya,
 
