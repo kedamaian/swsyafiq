@@ -19,7 +19,7 @@ _Masjid Al Aqsa, Palestin_
 
 Dari Abi Hurairah ra. Nabi Muhammad SAW bersabda, "Satu solat di masjid ku ini (masjid Nabawi) lebih baik dari seribu solat di tempat lain kecuali Masjidil-Haram". (HR Bukhari dan Muslim)
 
-"Solat di masjidku ini (masjid Nabawi) lebih afdal dari 1,000 solat di masjid lain kecuali masjidil Haram dan solat di masjid Haram lebih afdal dari 100,000 solat di masjid lain". (HR Ahmad dan Ibnu Majah).
+> "Solat di masjidku ini (Masjid Nabawi) lebih afdal dari 1,000 solat di masjid lain kecuali masjidil Haram dan solat di masjid Haram lebih afdal dari 100,000 solat di masjid lain". (HR Ahmad dan Ibnu Majah).
 
 Dari Jabir, katanya, Nabi SAW bersabda, Nabi Ibrahim telah menjadikan Makkah sebagai Tanah Haram, sementara Aku pula menjadikan Madinah sebagai Tanah Haram meliputi kawasan di antara dua kawasan berbatu hitam. Pokoknya tidak boleh dipotong dan binatang buruannya tidak boleh diburu. (HR. Muslim)
 
