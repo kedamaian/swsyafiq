@@ -11,10 +11,11 @@ Ulama telah berijma' bahawa tempat yang dihuni oleh jasad Rasulullah SAW adalah 
 Syaikh Nuruddin al-Hallabi di dalam al-Sirah al-Halabiyyah juga menerangkan: "Ulama telah berijma' bahawa tempat dimakamkan padanya jasad Rasulullah SAW merupakan tempat paling mulia diseluruh bumi, bahkan lebih mulia dari Ka'bah al-Syarifah. Sebahagian ulama berkata: bahkan lebih mulia dari seluruh langit hingga 'Arsy sekalipun".
 
 ![Masjidil Haram, Mekah]({{site.baseurl}}/images/makkah.jpg)
-
+_Masjidil Haram, Mekah_
 ![Masjid Nabawi, Madinah.]({{site.baseurl}}/images/nabawi.jpg)
-
+_Masjid Nabawi, Madinah_
 ![Masjid Al Aqsa, Palestin]({{site.baseurl}}/images/Al_aqsa_moschee_2-660x330.jpg)
+_Masjid Al Aqsa, Palestin_
 
 Dari Abi Hurairah ra. Nabi Muhammad SAW bersabda, "Satu solat di masjid ku ini (masjid Nabawi) lebih baik dari seribu solat di tempat lain kecuali Masjidil-Haram". (HR Bukhari dan Muslim)
 
