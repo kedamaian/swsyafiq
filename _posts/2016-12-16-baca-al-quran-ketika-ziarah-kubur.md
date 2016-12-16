@@ -6,7 +6,6 @@ title: Baca Al-Quran Ketika Ziarah Kubur
 categories:
   - Tazkirah
 ---
-عَنِ ابْنِ عُمَرَ رَضِيَ اللهُ عَنْهُمَا قَالَ سَمِعْتُ رَسُوْلَ اللهِ صَلَّى اللهُ عَلَيْهِ وَسَلَّمَ يَقُوْلُ إِذَا مَاتَ أَحَدُكُمْ فَلاَ تَحْبِسُوْهُ وَأَسْرِعُوْا بِهِ إِلَى قَبْرِهِ وَلْيُقْرَأْ عِنْدَ رَأْسِهِ بِفَاتِحَةِ الْكِتَابِ وَعِنْدَ رِجْلَيْهِ بِخَاتِمَةِ سُوْرَةِ الْبَقَرَةِ فِي قَبْرِهِ (رواه الطبراني في الكبير رقم 13613 والبيهقي في الشعب رقم 9294 وتاريخ يحي بن معين 4 / 449)
 "Diriwayatkan dari Ibnu Umar, dia berkata: Saya mendengar Rasulullah Saw bersabda: Jika di antara kalian ada yang meninggal dunia, maka janganlah ditangguhkan, segeralah dikebumikan. Dan hendaklah di dekat kepalanya dibacakan pembukaan al-Quran (Surat al-Fatihah) dan dekat kakinya dengan penutup surat al-Baqarah di kuburnya" (HR al-Thabrani dalam al-Mu'jam al-Kabir No 13613, al-Baihaqi dalam Syu'ab al-Iman No 9294, dan Tarikh Yahya bin Maid 4/449). Al-Hafidz Ibnu Hajar memberi penilaian pada hadis tersebut:
 فَلاَ تَحْبِسُوْهُ وَأَسْرِعُوْا بِهِ إِلَى قَبْرِهِ أَخْرَجَهُ الطَّبْرَانِي بِإِسْنَادٍ حَسَنٍ (فتح الباري لابن حجر 3 / 184)
 "HR al-Thabrani dengan sanad yang hasan" (Fath al-Bari III/184)
@@ -20,12 +19,12 @@ Riwayat Imam Baihaqi dengan sanad hasan bahwa Ibnu Umar menyukai agar dibaca di 
 *
 Imam al-Baihaqi meriwayatkan: “Menceritakan kepada kami Abu Abdullah al-Hafiz dari Abu al-Abbas bin Ya’qub dari al-Abbas bin Muhammad, katanya: “Aku bertanya Yahya bin Ma’in tetang membaca al-Qur’an di atas kubur? Lalu beliau menjawab berdasarkan kepada riwayat Abd Rahman bin al-‘Ala bin al-Lajlaj daripada ayahnya daripada Ibn Umar yang menggalakkan amalan sedemikian.” Imam Ibn Hajr al-Asqalani di dalam Amali al-Azkar mengesahkan bahawa hadis ini bertaraf mauquf dan hasan.
 
-Dari Sahabat Ali ra Rasulullah SAW bersabda, Sesiapa masuk kawasan perkuburan lalu **membaca Surah Al-Ikhlas sebelas kali dan menghadiahkan pahalanya kepada ahli kubur maka ia akan diberi pahala sebanyak orang yang mati disitu.**” ( HR Imam Daruqutni, Abu Muhammad Al-Samarqandi dan Imam Rafi’I lihat Haula Khashaish Al-Qur’an hal 45 )
+Dari Sahabat Ali ra Rasulullah SAW bersabda, Sesiapa masuk kawasan perkuburan lalu **membaca Surah Al-Ikhlas sebelas kali dan menghadiahkan pahalanya kepada ahli kubur maka ia akan diberi pahala sebanyak orang yang mati disitu.**” ( HR Imam Daruqutni, Abu Muhammad Al-Samarqandi dan Imam Rafi’ lihat Haula Khashaish Al-Qur’an hal 45 )
 
 Pernyataan dari al-Imam al-’Alim al-’Amil Syaikhul Islam Qudwatul Anam Majmu’ul Fadlail Muwaffaquddin Abu Muhammad Abdullah bin Ahmad bin Muhammad bin Qudamah al-Maqdisi, atau lebih dikenal dengan Imam Ibnu Qudamah rahimahullah [w. 620 H]. Di dalam kitabnya al-Mughni [2/422], beliau menuturkan:
 فصل: قال: ولا بأس بالقراءة عند القبر، وقد روي عن أحمد أنه قال: إذا دخلتم المقابر اقرءوا آية الكرسي
 وثلاث مرات قل هو الله أحد، ثم قل: اللهم إن فضله لأهل المقابر
-“Tidak dilarang membaca al-Qur’an di sisi kubur, dan sungguh telah diriwayatkan dari Imam Ahmad bahawa dia berkata: apabila kalian masuk kawasan perkuburan maka bacalah oleh kalian ayat Kursi dan 3 kali Qul huwallahu Ahad (surah al-Ikhlas) kemudian ucapkanlah: ya Allah sesungguhnya fadlilahnya untuk penghuni kubur”.
+“Tidak dilarang membaca al-Qur’an di sisi kubur, dan sungguh telah diriwayatkan dari Imam Ahmad bahawa dia berkata: apabila kalian masuk kawasan perkuburan maka bacalah oleh kalian **ayat Kursi dan 3 kali Qul huwallahu Ahad (surah al-Ikhlas) kemudian ucapkanlah: ya Allah sesungguhnya fadlilahnya untuk penghuni kubur”.**
 
 قال الشافعى : وأحب لو قرئ عند القبر ودعى للميت
 Imam Asy syafi'i berkata aku menyukai seandainya dibacakan al Quran disamping kubur dan dibacakan doa untuk mayat. (Ma'rifatus Sunani wal Atsar [7743] lil Imam al Muhaddits al Baihaqi)
