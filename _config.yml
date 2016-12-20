@@ -86,22 +86,34 @@ prose:
               value: Tazkirah
             - name: "Ilmu dan Amalan"
               value: Ilmu dan Amalan
-            - name: "Security"
-              value: Security
-            - name: "Privacy & Forensics"
-              value: Privacy & Forensics
-            - name: "Howto"
-              value: Howto
-            - name: "Personal"
-              value: Personal
-            - name: "Web Development"
-              value: Web Development
-            - name: "Penjazaman Amal"
-              value: Penjazaman Amal
+            - name: "Kitab Kebenaran Hakiki"
+              value: Kitab Kebenaran Hakiki
+            - name: "Sirrul Asrar"
+              value: Sirrul Asrar
             - name: "Mutiara Hikmah"
               value: Mutiara Hikmah
             - name: "Syariat"
               value: Syariat
+            - name: "Kitab Ilmu-Ihya Ulumiddin Iman Al Ghazali"
+              value: Kitab Ilmu-Ihya Ulumiddin Iman Al Ghazali
+            - name: "Kitab Hikam Ibnu Athaillah"
+              value: Kitab Hikam Ibnu Athaillah
+            - name: "Kitab Huraian Keajaiban Hati. Ihya Ulumiddin -Iman Al Ghazali"
+              value: Kitab Huraian Keajaiban Hati. Ihya Ulumiddin -Iman Al Ghazali
+            - name: "Futuhat Al Makiyyah"
+              value: Futuhat Al Makiyyah
+            - name: "Security"
+              value: Security
+            - name: "Privacy & Forensics"
+              value: Privacy & Forensics
+            - name: "Penjazaman Amal"
+              value: Penjazaman Amal
+            - name: "Howto"
+              value: Howto
+            - name: "Personal"
+              value: Personal
+            - name: "Web and Mobile Development"
+              value: Web and Mobile Development
           alterable: true
       - name: "tags"
         field:
