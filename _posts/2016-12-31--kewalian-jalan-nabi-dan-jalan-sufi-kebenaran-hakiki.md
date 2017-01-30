@@ -6,7 +6,7 @@ title: ' Kewalian Jalan Nabi dan Jalan sufi |Kebenaran Hakiki'
 categories:
   - Kitab Kebenaran Hakiki
 ---
-08. Kewalian Jalan Nabi dan Jalan sufi
+oo8. Kewalian Jalan Nabi dan Jalan sufi
 
 Terdapat banyak perbezaan dari segi pengalaman, penyaksian, fahaman dan pegangan di antara pengembara pada jalan kesufian dengan pengembara pada jalan kenabian. Kewalian sufi diliputi oleh bayangan yang menyata sebagai tajalli-tajalli, sedangkan ia adalah hijab kepada Yang Haq. Kewalian sufi memasuki suasana menyaksikan rupa bentuk, cahaya dan warna. Cinta yang menguasai kewalian sufi adalah cinta yang mengasyikkan dan memabukkan, menghilangkan rasional. Kewalian pada jalan kenabian atau kewalian para sahabat Rasulullah s.a.w tidak melalui suasana tajalli dan penyaksian kepada rupa bentuk, cahaya dan warna. Pada jalan kenabian, cinta para sahabat kepada Allah s.w.t menyata sebagai ketaatan yang sejati berlandaskan kehambaan yang sebenar-benarnya. Kewalian sufi berpisah daripada dunia dan akhirat. Pada kewalian para sahabat pula, dunia dan akhirat menjadi daerah kekhalifahan mereka. Mereka bertanggung-jawab kepada kehidupan dunia dan mereka bekerja untuk keselamatan di akhirat.
 
