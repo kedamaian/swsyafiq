@@ -6,7 +6,7 @@ title: Jalan Kenabian | Kebenaran Hakiki
 categories:
   - Kitab Kebenaran Hakiki
 ---
-06. Jalan kenabian
+oo6. Jalan kenabian
 
 Para sahabat Rasulullah s.a.w adalah kumpulan kaum Muslimin yang paling bertuah kerana Rasulullah s.a.w berada di tengah-tengah mereka. Mereka menerima pengajaran wahyu secara langsung daripada baginda s.a.w. Mereka adalah puak yang paling diberkati Allah s.w.t kerana Dia kurniakan kepada mereka cahaya (Nur) Nabi Muhammad s.a.w secara terus, tanpa dihijab oleh ruang, zaman atau masa. Apa yang mereka perolehi daripada Nur Nabi Muhammad s.a.w adalah yang paling benar dan asli pada tahap maksimum. Jika Nabi Muhammad s.a.w diibaratkan sebagai matahari, maka para sahabat menerima pancaran matahari ketika ia berdiri tegak tanpa segumpal awan pun melindunginya. Umat yang di belakang pula adalah umpama orang yang menerima pancaran cahaya matahari ketika ia telah condong ke barat dan ketika awan mendung sudah berarak dipermukaan langit.
 
