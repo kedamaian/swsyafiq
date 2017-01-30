@@ -6,7 +6,7 @@ title: Jalan Para Sahabat | Kebenaran Hakiki
 categories:
   - Kitab Kebenaran Hakiki
 ---
-05. Jalan para sahabat r.a
+oo5. Jalan para sahabat r.a
 
 Kaum Muslimin yang dibimbing secara langsung oleh Rasulullah s.a.w telah menunjukkan kecemerlangan dalam apa juga bidang yang mereka ceburi dan apa juga suasana yang mereka berada di dalamnya. Mereka mampu bertahan ketika menghadapi ujian bala bencana, menanggung penghinaan, ejekan, penentangan dan penyiksaan sehingga mereka terpaksa mengharungi lautan ke Habsyah dan meredah padang pasir ke Yasrib demi menyelamatkan agama mereka. Di hadapan Raja Habsyah, Jaafar bin Abu Talib selaku ketua Muhajirin di Habsyah, telah memberi penerangan lengkap dan jelas mengenai Nabi Muhammad s.a.w dan agama Islam, mematahkan hujah wakil pihak Quraisy yang menuntut agar kaum Muslimin dihantar pulang ke Makkah. Jelas sekali para sahabat Rasulullah s.a.w bukan sahaja memiliki ketahanan jiwa menanggung kesusahan malah mereka juga memiliki kecerdasan akal fikiran. Mereka adalah duta-duta Rasulullah s.a.w, menterjemahkan sifat-sifat baginda s.a.w iaitu benar, amanah, menyampaikan dan bijaksana. Mereka boleh berdiri di hadapan sesiapa sahaja bagi menyampaikan kebenaran secara bijaksana. Apa yang terbit dari mereka adalah bakat-bakat dan sifat-sifat Roh Islam yang tulen yang memenuhi seluruh rongga tubuh mereka dan setiap ruang hati mereka. Ketulenan Roh Islam yang mengendalikan kehidupan mereka menyebabkan mereka Islam pada perkataan, Islam pada perbuatan dan Islam pada amalan hati.
 
