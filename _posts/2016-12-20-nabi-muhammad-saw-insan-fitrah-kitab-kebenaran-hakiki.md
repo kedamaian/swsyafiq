@@ -6,7 +6,7 @@ title: Nabi Muhammad saw insan fitrah | Kitab Kebenaran Hakiki
 categories:
   - Kitab Kebenaran Hakiki
 ---
-02. Nabi Muhammad saw insan fitrah
+oo2. Nabi Muhammad saw insan fitrah
 
 Nabi Muhammad s.a.w adalah seorang manusia fitrah yang sejak awal kejadian baginda s.a.w sentiasa bergerak di atas landasan fitrah insan yang suci murni. Fitrah yang suci bersih lagi murni akan mencetuskan perjuangan dalam jiwa apabila insan itu dibaluti oleh suasana yang penuh dengan kemunkaran, kezaliman, penyembahan berhala dan benda-benda alam, perebutan kuasa, kegilaan kepada harta dan berbagai-bagai adat serta kebudayaan yang menyimpang jauh daripada sifat fitrah yang asli. Perjuangan dalam jiwa Nabi Muhammad s.a.w sampai ke kemuncaknya apabila baginda s.a.w mencapai usia 36 tahun. Kejahilan, kesyirikan, kekafiran, kemunkaran dan kezaliman yang berleluasa di dalam masyarakat menjadi beban yang sangat berat menghimpit jiwa fitrah baginda s.a.w. Tekanan tersebut menjadi lebih kuat lantaran segala kerosakan itu terjadi kepada orang-orang yang hampir dengan baginda s.a.w, kaum keluarga dan masyarakat yang sama keturunan dengan baginda s.a.w, sedangkan jalan untuk menyelamatkan mereka tidak terbuka. Jiwa fitrah yang sangat mengasihi sesama manusia sangat menginginkan keselamatan dan kesejahteraan kepada sekalian manusia. Jiwa yang seperti inilah yang selalu menderita apabila melihat kerosakan yang terjadi kepada orang lain.
 
