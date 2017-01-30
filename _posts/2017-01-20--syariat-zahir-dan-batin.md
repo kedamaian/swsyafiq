@@ -6,7 +6,7 @@ title: ' Syariat zahir dan batin'
 categories:
   - Kitab Kebenaran Hakiki
 ---
-11. Syariat zahir dan batin
+oo11. Syariat zahir dan batin
 
 Ketika di dalam daerah kewalian sufi, mengalami fana dan jazbah, orang sufi melupakan dan membuang segala-galanya kecuali Allah s.w.t. Mereka tidak inginkan syurga dan tidak takutkan neraka. Dosa dan pahala sama sahaja bagi mereka. Mereka menafikan perbuatan diri mereka dan mengisbatkannya kepada perbuatan Tuhan. Mereka tidak beristighfar di atas kesalahan yang terjadi pada mereka. Bagi mereka istighfar menunjukkan mereka mendakwa diri mereka memiliki kekuasaan untuk melakukan sesuatu, sekalipun perbuatan itu adalah perbuatan dosa. Mengaku diri berkuasa lebih berat daripada dosa itu sendiri. Bagi mereka segala daya dan upaya adalah milik Allah s.w.t. Segala sesuatu adalah ciptaan dan perbuatan Allah s.w.t. Allah s.w.t menciptakan mereka, daya dan upaya mereka, kehendak mereka, perbuatan mereka dan segala-galanya. Oleh itu mereka menerima apa sahaja yang datang kepada mereka dengan reda. Mereka membuang ikhtiar memilih. Bagi mereka cukuplah Allah s.w.t sahaja yang mengadakan pilihan dan mereka menerima pilihan Tuhan itu. Mereka menukarkan kehendak diri mereka kepada kehendak Tuhan. Apa sahaja yang mendatangi mereka adalah kehendak Tuhan. Oleh itu mereka tidak menghindarkan kemudaratan yang sampai kepada mereka. Mereka tidak bergembira dengan nikmat dan tidak berdukacita dengan bala. Nikmat dan bala berjalan menurut kehendak Allah s.w.t, dengan Kudrat dan Iradat-Nya. Jika sesuatu itu ada pada Iradat-Nya, maka Kudrat-Nya melaksanakannya. Tidak ada sesiapa yang ikut campur dalam urusan-Nya.
 
