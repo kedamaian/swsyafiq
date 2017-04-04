@@ -6,7 +6,7 @@ title: Tarekat Tasauf | Kebenaran Hakiki
 categories:
   - Kitab Kebenaran Hakiki
 ---
-22. Tarekat Tasauf
+oo22. Tarekat Tasauf
 
 Motif tarekat tasauf adalah: ” Ilahi! Engkau jualah tujuanku. Keredaan Engkau jua yang daku cari “. Tarekat tasauf menjurus sepenuhnya kepada usaha mendekatkan diri kepada Allah s.w.t, mengabdikan diri kepada-Nya sebaik mungkin dan mengenali-Nya sebagaimana layaknya. Pokok dari ajaran tarekat tasauf adalah penyucian hati. Syarat penyucian hati yang pertama adalah taubat secara zahir dan batin. Taubat zahir berkaitan dengan perkataan, perbuatan, perasaan, menghindarkan diri daripada melakukan dosa dan memperbanyakkan kebaikan. Taubat batin berkaitan dengan rohani, mengembalikan rohani kepada tahap kesuciannya yang asli.
 
