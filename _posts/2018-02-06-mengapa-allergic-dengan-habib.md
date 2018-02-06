@@ -40,9 +40,9 @@ Tahun berganti tahun, kurun berganti kurun, sehinggalah para ulama habaib ini tu
 
 Ayahnda beliau ialah Sayyid Muhammad bin Sayyid Zainal Abidin al-Aidrus atau dikenali sebagai Tok Ku Tuan Besar di Terengganu. Beliau (Tokku Paloh) ialah seorang ulama dan Ahli Majlis Mesyuarat Negeri semasa pemerintahan Sultan Zainal Abidin III.
 
-Begitu juga dengan Tokku Pulau Manis atau nama sebenar Sharif Syeikh Abdul Malik Bin Abdullah yang turut dikatakan bersalasilah keturunan habaib dari jalur Sunan Gunung Jati (Syarif Hidayatullah)- (wlaubagaimanapun terdapat beberapa perbezaan pendapat berkenaan salasilah beliau)
+Begitu juga dengan Tokku Pulau Manis atau nama sebenar Sharif Syeikh Abdul Malik Bin Abdullah yang turut dikatakan bersalasilah keturunan habaib dari jalur Sunan Gunung Jati (Syarif Hidayatullah)- (walaubagaimanapun terdapat beberapa perbezaan pendapat berkenaan salasilah beliau)
 
-Kita turun pula ke selatan tanahair, mungkin ramai yg tidak menyedari para habaib telah lama menjadi ulama dan autoriti agama di JOHOR. Bahkan Mufti pertama Johor sendiri ialah seorang habib iaitu HABIB SALIM BIN AHMAD B MOHSEIN AL-ATTAS – MUFTI JOHOR PERTAMA (1896-1899). Begitu juga dengan beberapa orang mufti lagi antaranya HABIB ALWI BIN TOHIR AL-HADDAD – MUFTI JOHOR (1934-41 & 47-61) dan HABIB ABDUL KADIR BIN MOHSIN AL-ATTAS (Mufti pada 1907-1933)
+Kita turun pula ke selatan tanah air, mungkin ramai yg tidak menyedari para habaib telah lama menjadi ulama dan autoriti agama di JOHOR. Bahkan Mufti pertama Johor sendiri ialah seorang habib iaitu HABIB SALIM BIN AHMAD B MOHSEIN AL-ATTAS – MUFTI JOHOR PERTAMA (1896-1899). Begitu juga dengan beberapa orang mufti lagi antaranya HABIB ALWI BIN TOHIR AL-HADDAD – MUFTI JOHOR (1934-41 & 47-61) dan HABIB ABDUL KADIR BIN MOHSIN AL-ATTAS (Mufti pada 1907-1933)
 
 Begitu juga di bumi Temasik atau Singapura, ulama habaib ini telah pun lama sampai di sana, antara yang diterkenal ialah As-Sayid Habib Nuh Al-Habsyi Rahimahullah (1788-1866M). Beliau yang datang dari Kedah merupakan ulama berbangsa Arab keturunan Rasulullah yang berasal dari Yaman. Bahkan makam Adik beliau turut terdapat di Pulau Pinang. Adik beradik beliau ialah Habib Ariffin, Habib Zain (kedua-duanya di Makamkan di Pulau Pinang) dan Habib Salikin (Daik, Indonesia).
 
@@ -98,8 +98,9 @@ Terdapat juga hadis Nabi SAW yang menganjurkan kita agar mengasihi ahl al-baytny
 
 Maksudnya:
 
-“Demi jiwaku yang berada berada di dalam kekuasaan-Nya (Allah)! Tidak membenci seseorang terhadap kami ahl al-bayt, melainkan Allah akan memasukkannya ke dalam neraka.”
+> “Demi jiwaku yang berada berada di dalam kekuasaan-Nya (Allah)! Tidak membenci seseorang terhadap kami ahl al-bayt, melainkan Allah akan memasukkannya ke dalam neraka.”
 (Riwayat al-Hakim: 4717)
+
 Hadis ini sahih mengikut syarat Muslim dan tidak dikeluarkan oleh al-Bukhari dan Muslim di dalam kitab mereka.
 
 Begitulah peringatan dan ancaman yang telah dikhabarkan oleh Rasulullah SAW kepada umat Islam, betapa kita perlu untuk menyayangi ahli bayt baginda SAW dan jangan pula membenci mereka.
