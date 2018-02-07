@@ -15,15 +15,16 @@ In this section we will touch upon setting up your profile.
 When creating your profile the first thing you should know is what niche do you want?
 
 List of niche idea's:
-Luxury/Money
-Sad Quotes
-Video Textposts
-Textposts
-Memes
-Success/Motivation
-Weed
-Hypebeast
-Clothing
+- Luxury/Money
+- Sad Quotes
+- Video Textposts
+- Textposts
+- Memes
+- Success/Motivation
+- Weed
+- Hypebeast
+- Clothing
+
 
 After picking your niche, you need a username. Your username should not only fit your niche, but look nice. A username between 1-10 characters would be ideal, anything longer just looks messy.
 
@@ -62,18 +63,19 @@ In this part I will tell you some ways to get followers.
 i) Investing money. Investing money is a great way to get followers, the going rate for real followers is about $1/1000, depending on your current financial state and commitment, it may or may not be worth the money.
 
 Targeted Country(Malaysia)
-http://www.carigold.com/portal/forums/showthread.php?t=590167
+[http://www.carigold.com/portal/forums/showthread.php?t=590167](http://www.carigold.com/portal/forums/showthread.php?t=590167)
 
-High 
-https://bulkfollows.com/
-https://monsta.io/
-https://panel.socialandtraffic.com/index.php
-https://smm.socialdealers.in/services
-https://celebrify.us/
-https://cyka.io/services
-https://shurikensocial.com/
-http://ubersocials.store/
-http://instagrowth.store/product/instagram-followers/
+High Quality Followers(Worldwide)
+- [https://bulkfollows.com/](https://bulkfollows.com/)
+- [https://monsta.io/](https://monsta.io/)
+- [https://panel.socialandtraffic.com/index.php](https://panel.socialandtraffic.com/index.php)
+- [https://smm.socialdealers.in/services](https://smm.socialdealers.in/services)
+- [https://celebrify.us/](https://celebrify.us/)
+- [https://cyka.io/services](https://cyka.io/services)
+- [https://shurikensocial.com/](https://shurikensocial.com/)
+- [http://ubersocials.store/](http://ubersocials.store/)
+- [http://instagrowth.store/product/instagram-followers/](http://instagrowth.store/product/instagram-followers/)
+
 
 ii) Self Promotion. Self promotion is basically manipulating people into following you. This often includes you following a bunch of pages that spam shoutouts so you can comment stuff such as "Nobody ever follows me" to gain followers. Here are some sentences that can gain you followers:
 
