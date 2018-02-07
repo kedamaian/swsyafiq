@@ -135,7 +135,7 @@ If you are a lazy one, some of these programs may come in handy.
 Buffer: [https://buffer.com/](https://buffer.com/)
 Buffer is a program used to automate posts, you simply give it the content and a time to post and it does that for you. It also tracks analytics and is not too pricey.
 
-[http://ninjapinner.com/tag/ninjagram/](http://ninjapinner.com/tag/ninjagram/)
+[https://gramista.com/](https://gramista.com/)
 I know nothing about this one, just seen it every here and there. Feel free to check it out.
 
 ..and couple others private tools. ;P
