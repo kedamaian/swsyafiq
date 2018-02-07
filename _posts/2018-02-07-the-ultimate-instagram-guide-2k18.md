@@ -63,7 +63,7 @@ In this part I will tell you some ways to get followers.
 i) Investing money. Investing money is a great way to get followers, the going rate for real followers is about $1/1000, depending on your current financial state and commitment, it may or may not be worth the money.
 
 Targeted Country(Malaysia)
-[http://www.carigold.com/portal/forums/showthread.php?t=590167](http://www.carigold.com/portal/forums/showthread.php?t=590167)
+- [http://www.carigold.com/portal/forums/showthread.php?t=590167](http://www.carigold.com/portal/forums/showthread.php?t=590167)
 
 High Quality Followers(Worldwide)
 - [https://bulkfollows.com/](https://bulkfollows.com/)
@@ -98,15 +98,15 @@ This photo alone will get you more than 10x the normal amount of comments you wo
 A very easy way to get your posts onto the explore page is by doing likes and comments with other accounts. Essentially this is where you, and a bunch of other accounts are all in a dm group. And when one of you posts, they say something along the lines of, "Like and Comment on my recent, cwd returning fast." They just like and comment on your photos. Only do this with accounts that have similar niches and amount of followers as you for the best outcomes. > NOTE: there is NEVER a guarantee to making it onto the explore page.
 
 Telegram can also get you into larger groups of people with many more accounts. I do not use Telegram, just a personal preference but here is more info on that: 
-https://wolfglobal.org
-https://gainstagram.wordpress.com/2017/01/14/updated-2017-list-of-instagram-engagement-groups/
+- [https://wolfglobal.org](https://wolfglobal.org)
+- [https://gainstagram.wordpress.com/2017/01/14/updated-2017-list-of-instagram-engagement-groups/](https://gainstagram.wordpress.com/2017/01/14/updated-2017-list-of-instagram-engagement-groups/)
 
 **150m+ Instagram Engagement Groups** 
 Links:
 
-https://t.me/Toolscast
-https://t.me/iglegends
-https://hydrabot.io/
+- [https://t.me/Toolscast](https://t.me/Toolscast)
+- [https://t.me/iglegends](https://t.me/iglegends)
+- [https://hydrabot.io/](https://hydrabot.io/)
 
 What do I do?:
 
@@ -130,10 +130,10 @@ Repeat these steps for BOTH URLs. They're seperate groups, not the same thing.
 
 If you are a lazy one, some of these programs may come in handy.
 
-Buffer: https://buffer.com/
+Buffer: [https://buffer.com/](https://buffer.com/)
 Buffer is a program used to automate posts, you simply give it the content and a time to post and it does that for you. It also tracks analytics and is not too pricey.
 
-http://ninjapinner.com/tag/ninjagram/
+[http://ninjapinner.com/tag/ninjagram/](http://ninjapinner.com/tag/ninjagram/)
 I know nothing about this one, just seen it every here and there. Feel free to check it out.
 
 ..and couple others private tools. ;P
@@ -142,7 +142,7 @@ I know nothing about this one, just seen it every here and there. Feel free to c
 
 After time goes on, you may reach an amount of followers where you can actually make money from your account. In my opinion, any account that has at least 50,000 followers is able to make money. You can sell shoutouts to companies, businesses, and even other members on the forum. If you need help making shoutout prices please PM me.
 
-I have also heard some things about OG Ads. Unfortunately I cannot write a review on it as I have never personally used it, but I do have some friends who make good amounts from this. Here is the link for it: https://ogads.com
+I have also heard some things about OG Ads. Unfortunately I cannot write a review on it as I have never personally used it, but I do have some friends who make good amounts from this. Here is the link for it: [https://ogads.com](https://ogads.com)
 
 **Step Nine: SFS**
 
@@ -151,7 +151,7 @@ SFS means 'Shoutout for Shoutout.' This is just the exchanging of shoutouts with
 **Step Ten: Instagram Growth Services**
 
 Is an offer to grow your Instagram account by using a variety of growth hacking methods that are widely being used by Instagram Marketers all around the globe. Usually its pricing by a montly subscription such as $30-50/month.
-http://www.qugos.net/single.htm
+[http://www.qugos.net/single.htm](http://www.qugos.net/single.htm)
 
 PM for more private list.
 
