@@ -95,15 +95,17 @@ An easy way to maximize your engagement is making a slideshow every time you pos
 
 This photo alone will get you more than 10x the normal amount of comments you would normally get.
 
-A very easy way to get your posts onto the explore page is by doing likes and comments with other accounts. Essentially this is where you, and a bunch of other accounts are all in a dm group. And when one of you posts, they say something along the lines of, "Like and Comment on my recent, cwd returning fast." They just like and comment on your photos. Only do this with accounts that have similar niches and amount of followers as you for the best outcomes. > NOTE: there is NEVER a guarantee to making it onto the explore page.
+A very easy way to get your posts onto the explore page is by doing likes and comments with other accounts. Essentially this is where you, and a bunch of other accounts are all in a dm group. And when one of you posts, they say something along the lines of, "Like and Comment on my recent, cwd returning fast." They just like and comment on your photos. Only do this with accounts that have similar niches and amount of followers as you for the best outcomes. 
+> NOTE: there is NEVER a guarantee to making it onto the explore page.
+
 
 Telegram can also get you into larger groups of people with many more accounts. I do not use Telegram, just a personal preference but here is more info on that: 
 - [https://wolfglobal.org](https://wolfglobal.org)
 - [https://gainstagram.wordpress.com/2017/01/14/updated-2017-list-of-instagram-engagement-groups/](https://gainstagram.wordpress.com/2017/01/14/updated-2017-list-of-instagram-engagement-groups/)
 
 **150m+ Instagram Engagement Groups** 
-Links:
 
+Links:
 - [https://t.me/Toolscast](https://t.me/Toolscast)
 - [https://t.me/iglegends](https://t.me/iglegends)
 - [https://hydrabot.io/](https://hydrabot.io/)
