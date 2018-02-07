@@ -138,6 +138,9 @@ Buffer is a program used to automate posts, you simply give it the content and a
 [https://gramista.com/](https://gramista.com/)
 I know nothing about this one, just seen it every here and there. Feel free to check it out.
 
+[https://instamacro.com](https://instamacro.com)
+Instamacro was first made to meet our personal needs. The idea was to get as many Instagram followers and likes as we could without having to manually do it.
+
 ..and couple others private tools. ;P
 
 **Step Eight: Making Money?**
