@@ -7,7 +7,7 @@ author: tehnoblequran
 title: The Ultimate Instagram Guide 2k18
 tags: IG
 ---
-THIS IS ALL COMPLETELY FREE, YOU DO NOT NEED TO PAY UNLESS YOU WANT TO.
+THIS IS ALL COMPLETELY FREE. YOU DO NOT NEED TO PAY UNLESS YOU WANT TO.
 
 **Step One: Creating your profile.**
 
