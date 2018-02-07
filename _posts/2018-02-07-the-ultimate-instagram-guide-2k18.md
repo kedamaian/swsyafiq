@@ -141,7 +141,7 @@ I know nothing about this one, just seen it every here and there. Feel free to c
 [https://instamacro.com](https://instamacro.com)
 Instamacro was first made to meet our personal needs. The idea was to get as many Instagram followers and likes as we could without having to manually do it.
 
-Soctopbot alternative: [https://vto.pe/](https://vto.pe/) Its in rusiaan but served the same functionality as soctop bot.
+Soctopbot alternative: [https://vto.pe/](https://vto.pe/) Its in russian but served the same functionality as soctop bot.
 
 ..and couple others private tools. ;P
 
