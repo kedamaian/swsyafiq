@@ -1,7 +1,8 @@
 ---
 layout: post
-published: true
+published: false
 categories:
+  - Tazkirah
   - Howto
 author: tehnoblequran
 title: The Ultimate Instagram Guide 2k18
