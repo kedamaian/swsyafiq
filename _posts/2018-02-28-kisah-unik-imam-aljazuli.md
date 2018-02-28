@@ -22,7 +22,7 @@ Ketika beliau meninggalkan budak tersebut dan meneruskan perjalanan untuk mencar
 
 Setelah minum dan menunaikan wudhunya, Imam al-Jazuli pun berkata, “Wahai anak kecil, sungguh aku kagum kepadamu! Dengan amal apakah engkau dapat meraih kedudukan setinggi ini?” Anak perempuan kecil itu menjawab,
 
-    “Dengan memperbanyak membaca selawat kepada orang yang apabila ia (Nabi Muhammad) berjalan di padang belantara, binatang-binatang buas akan mengibas-ngibaskan ekornya (menjadi jinak).”
+> “Dengan memperbanyak membaca selawat kepada orang yang apabila ia (Nabi Muhammad) berjalan di padang belantara, binatang-binatang buas akan mengibas-ngibaskan ekornya (menjadi jinak).”
 
 Setelah mendengar penuturan anak kecil itu, Imam Al Jazuli terus bernazar untuk menyusun sebuah kitab yang membahas tentang selawat untuk Nabi Muhammad. Kelak, setelah kitab tersebut selesai ditulisnya, kitab itu dinamainya Dalailul Khairat. Sebuah kitab yang masih terus dibaca hingga kini kerana keberkatannya yang luar biasa. Dikemudian hari, Syeikh Uwais Ibn Abdullah al-Mujtabi al-Husainiy membuat Mukhtashar (ringkasan) kitab Dalail al-Khairat dengan nama al-Budur al-Nayyirat Fi Ikhtishar Dalail al-Khairat.
 
