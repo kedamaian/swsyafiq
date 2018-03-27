@@ -47,25 +47,25 @@ Anjuran kakak Musa diterima oleh isteri Fir'aun dan seketika itu jugalah dijempu
 Setelah selesai masa menyusunya, dikembalikan Musa oleh ibunya ke istana, di mana ia di asuh, dibesar dan dididik sebagaimana anak-anak raja yang lain. Ia membawa kenderaan Fir'aun dan berpakaian sesuai dengan cara-cara Fir'aun berpakaian sehingga ia dikenal orang sebagai Musa bin Fir'aun.
 Bacalah tentang isi cerita di atas di dalam Al-Quran dari ayat 4 - 13 dalam surah "Al-Qashash" sebagai berikut:
 
-4. Sesungguhnya Fir'aun telah berbuat sewenang-wenang di muka bumi dan menjadikan penduduknya berpecah belah dengan menindas segolongan dari mereka, menyembelih anak lelaki mereka dan membiarkan hidup anak-anak perempuan mereka. Sesungguhnya Fir'aun termasuk orang-orang yang berbuat kerosakan.
+- Sesungguhnya Fir'aun telah berbuat sewenang-wenang di muka bumi dan menjadikan penduduknya berpecah belah dengan menindas segolongan dari mereka, menyembelih anak lelaki mereka dan membiarkan hidup anak-anak perempuan mereka. Sesungguhnya Fir'aun termasuk orang-orang yang berbuat kerosakan.
 
-5. Dan Kami hendak memberi kurnia kepada orang-orang yang tertindas di bumi {Mesir} itu dan hendak menjadi mereka pemimpin dan menjadikan mereka orang-orang yang mewarisi {bumi}.
+- Dan Kami hendak memberi kurnia kepada orang-orang yang tertindas di bumi {Mesir} itu dan hendak menjadi mereka pemimpin dan menjadikan mereka orang-orang yang mewarisi {bumi}.
 
-6. Dan Kami akan teguhkan kedudukan mereka di muka bumi dan akan Kami perlihatkan kepada Fir'aun dan Haman berserta tenteranya apa yang selalu mereka khuatirkan dari mereka itu.
+- Dan Kami akan teguhkan kedudukan mereka di muka bumi dan akan Kami perlihatkan kepada Fir'aun dan Haman berserta tenteranya apa yang selalu mereka khuatirkan dari mereka itu.
 
-7. Dan Kami ilhamkan kepada ibu Musa, "susukanlah dia, dan apabila kamu khuatir terhadapnya, maka jatuhkan dia ke dalam sungai {Nil}. Dan janganlah kamu khuatir dan janganlah pula bersedih hati, kerana sesungguhnya Kami akan mengembalikannya kepadamu, dan menjadikannya {salah seorang} dari para rasul.
+- Dan Kami ilhamkan kepada ibu Musa, "susukanlah dia, dan apabila kamu khuatir terhadapnya, maka jatuhkan dia ke dalam sungai {Nil}. Dan janganlah kamu khuatir dan janganlah pula bersedih hati, kerana sesungguhnya Kami akan mengembalikannya kepadamu, dan menjadikannya {salah seorang} dari para rasul.
 
-8. Maka pungutlah ia oleh keluarga Fir'aun yang akibatnya ia menjadi musuh dan kesedihan bagi mereka. Sesungguhnya Fir'aun dan Haman berserta tenteranya adalah orang-orang yang bersalah.
+- Maka pungutlah ia oleh keluarga Fir'aun yang akibatnya ia menjadi musuh dan kesedihan bagi mereka. Sesungguhnya Fir'aun dan Haman berserta tenteranya adalah orang-orang yang bersalah.
 
-9. Dan berkatalah isteri Fir'aun: "Ia {Musa} biji mata bagiku dan bagimu. Janganlah kamu membunuhnya, mudah-mudahan ia bermanfaat kepada kita atau kita ambil ia menjadi anak," sedang mereka tiada menyedari.
+- Dan berkatalah isteri Fir'aun: "Ia {Musa} biji mata bagiku dan bagimu. Janganlah kamu membunuhnya, mudah-mudahan ia bermanfaat kepada kita atau kita ambil ia menjadi anak," sedang mereka tiada menyedari.
 
-10. Dan menjadi kekosongan hatei ibu Musa, seandainya Kami tidak teguhkan hatinya, supaya ia termasuk orang-orang yang percaya {kepada janji Allah}.
+- Dan menjadi kekosongan hatei ibu Musa, seandainya Kami tidak teguhkan hatinya, supaya ia termasuk orang-orang yang percaya {kepada janji Allah}.
 
-11. Dan berkatalah ibu Musa kepada saudara Musa yang perempuan: "Ikutilah dia". Maka kelihatan olehnya Musa dari jauh, sedang mereka tidak mengetahuinya.
+- Dan berkatalah ibu Musa kepada saudara Musa yang perempuan: "Ikutilah dia". Maka kelihatan olehnya Musa dari jauh, sedang mereka tidak mengetahuinya.
 
-12. Dan Kami cegah Musa dari menyusu kepada perempuan-perempuan yang mahu menyusukannya sebelum itu, maka berkatalah saudara Musa: "Mahukah kamu aku tunjukkan kepada kamu ahlul-bait yang akan memeliharakannya untukmu dan mereka dapat berlaku baik kepadanya?"
+- Dan Kami cegah Musa dari menyusu kepada perempuan-perempuan yang mahu menyusukannya sebelum itu, maka berkatalah saudara Musa: "Mahukah kamu aku tunjukkan kepada kamu ahlul-bait yang akan memeliharakannya untukmu dan mereka dapat berlaku baik kepadanya?"
 
-13. Maka Kami kembalikan Musa kepada ibunya supaya senang hatinya dan tidak berduka cita dan supaya ia mengetahui bahawa janji Allah itu adalah benar, tetapi manusia kebanyakan tidak mengetahuinya." { Al-Qashash : 4 ~ 13 }
+- Maka Kami kembalikan Musa kepada ibunya supaya senang hatinya dan tidak berduka cita dan supaya ia mengetahui bahawa janji Allah itu adalah benar, tetapi manusia kebanyakan tidak mengetahuinya." { Al-Qashash : 4 ~ 13 }
 
 
 ## Musa keluar dari Mesir
@@ -87,21 +87,21 @@ Kata-kata Samiri itu segera terdengar oleh orang-orang Fir'aun, yang dengan cepa
 
 Selagi orang-orang Fir'aun mengatur rancangan penangkapan Musa, seorang lelaki salah satu daripada sahabatnya datang dari hujung kota memberitahukan kepadanya dan menasihatkan agar segera meninggalkan Mesir, kerana para penguasa Mesir telah memutuskan untuk membunuhnya apabila ia ditangkap, lalu keluarlah Musa terburu-buru meninggalkan Mesir, ssebelum anggota polis sempat menutup serta menyekat pintu-pintu gerbangnya. Tentang isi cerita ini, terdapat dalam al-Quran yang dapat di baca di dalam surah "Al-Qashshas" ayat 14 - 21 sebagaimana berikut:
 
-14. Dan setelah Musa cukup umur dan sempurna akalnya, Kami berikannya hikmah dan pengetahuan. Dan demikianlah Kami memberi balasan kepada orang-orang yang berbuat baik.
+- Dan setelah Musa cukup umur dan sempurna akalnya, Kami berikannya hikmah dan pengetahuan. Dan demikianlah Kami memberi balasan kepada orang-orang yang berbuat baik.
 
-15. Dan Musa masuk ke kota {Memphis} ketika penduduknya sedang tidur, maka didapatinya di dalam kota itu dua orang lelaki sedang bergaduh, yang seorangnya dari golongannya {Bani Isra'il} dan seorang lagi dari musuhnya {Kaum Fir'aun}. Maka orang dari golongannya meminta pertolongan kepadanya untuk mengalahkan orang dari musuhnya, lalu Musa menumbuknya dan matilah musuhnya itu. Musa berkta; "Ini adalah perbuatan syaitan, sesungguhnya syaitan itu adalah musuh yang menyesatkan lagi nyata {permusuhannya}.
+- Dan Musa masuk ke kota {Memphis} ketika penduduknya sedang tidur, maka didapatinya di dalam kota itu dua orang lelaki sedang bergaduh, yang seorangnya dari golongannya {Bani Isra'il} dan seorang lagi dari musuhnya {Kaum Fir'aun}. Maka orang dari golongannya meminta pertolongan kepadanya untuk mengalahkan orang dari musuhnya, lalu Musa menumbuknya dan matilah musuhnya itu. Musa berkta; "Ini adalah perbuatan syaitan, sesungguhnya syaitan itu adalah musuh yang menyesatkan lagi nyata {permusuhannya}.
 
-16. Musa berdoa: "Ya Tuhanku, sesungguhnya aku telah menganiaya diriku sendiri, kerana itu ampunilah aku". Maka Allah mengampuninya, sesungguhnya Allah Dialah Yang Maha Pengampun dan Maha Penyayang.
+- Musa berdoa: "Ya Tuhanku, sesungguhnya aku telah menganiaya diriku sendiri, kerana itu ampunilah aku". Maka Allah mengampuninya, sesungguhnya Allah Dialah Yang Maha Pengampun dan Maha Penyayang.
 
-17. Musa berkata : "Ya Tuhanku demi nikmat Engkau anugerahkan kepadaku, aku sesekali tiada akan menjadi penolong bagi orang-orang yang berdosa".
+- Musa berkata : "Ya Tuhanku demi nikmat Engkau anugerahkan kepadaku, aku sesekali tiada akan menjadi penolong bagi orang-orang yang berdosa".
 
-18. Kerana itu jadilah Musa di kota itu merasa takut menunggu dengan khuatir {akibat perbuatannya} maka tiba-tiba orang yang meminta pertolongannya kelmarin berteriak meminta pertolongan kepadanya kembali. Musa berkata kepadanya: "Sesungguhnya kamu benar-benar orang yang sesat, yang nyata {kesesatannya}.
+- Kerana itu jadilah Musa di kota itu merasa takut menunggu dengan khuatir {akibat perbuatannya} maka tiba-tiba orang yang meminta pertolongannya kelmarin berteriak meminta pertolongan kepadanya kembali. Musa berkata kepadanya: "Sesungguhnya kamu benar-benar orang yang sesat, yang nyata {kesesatannya}.
 
-19. Maka tatkala Musa hendak memegang dengan kuat orang yang menjadi musuh keduanya, berkata {seorang daripada mereka}: "Hai Musa apakah engkau bermaksud hendak membunuhku, sebagaimana kamu kelmarin telah membunuh seorang manusia? Kamu tidak bermaksud melainkan hendak menjadi orang yang berbuat sewenang-wenang di negeri {ini}, dan tiadalah kamu bermaksud menjadi salah seorang dari orang yang mengadakan perdamaian".
+- Maka tatkala Musa hendak memegang dengan kuat orang yang menjadi musuh keduanya, berkata {seorang daripada mereka}: "Hai Musa apakah engkau bermaksud hendak membunuhku, sebagaimana kamu kelmarin telah membunuh seorang manusia? Kamu tidak bermaksud melainkan hendak menjadi orang yang berbuat sewenang-wenang di negeri {ini}, dan tiadalah kamu bermaksud menjadi salah seorang dari orang yang mengadakan perdamaian".
 
-20. Dan datanglah seorang laki-laki dari hujung kota bergegas-gegas, seraya berkata: "Hai Musa, sesungguhnya pembesar negeri sedang berunding tentangmu, untuk membunuhmu oleh itu keluarlah {dari kota ini}. Sesungguhnya aku termasuk orang-orang yang memberi nasihat kepadamu.
+- Dan datanglah seorang laki-laki dari hujung kota bergegas-gegas, seraya berkata: "Hai Musa, sesungguhnya pembesar negeri sedang berunding tentangmu, untuk membunuhmu oleh itu keluarlah {dari kota ini}. Sesungguhnya aku termasuk orang-orang yang memberi nasihat kepadamu.
 
-21. Maka keluarlah Musa dari kota ini dengan rasa takut menunggu-nunggu dengan khuatir. Dia berdoa: "Ya Tuhanku selamatkanlah aku dari orang-orang yang zalim itu." { Al-Qashash : 14 ~ 21 }
+- Maka keluarlah Musa dari kota ini dengan rasa takut menunggu-nunggu dengan khuatir. Dia berdoa: "Ya Tuhanku selamatkanlah aku dari orang-orang yang zalim itu." { Al-Qashash : 14 ~ 21 }
 
 
 ## Musa bertemu Jodoh di kota Madyan
@@ -137,19 +137,19 @@ Nabi Musa sebagai buruan yang lari dari tanah tumpah darahnya dan berada di nege
 Setelah masa lapan tahun bekerja sebagai pembantu Syu'aib ditambah dengan suka rela dilampaui oleh Musa, dikahwinkanlah ia dengan puterinya yang bernama Shafura. Dan sebagai hadiah perkahwinan diberinyalah pasangan pengantin baru itu oleh Syu'aib beberapa ekor kambing untuk dijadikan modal pertama bagi hidupnya yang baru sebagai suami isteri. Pemberian beberpa ekor kambing itu juga merupakan tanda terimaksih Syu'aib kepada Musa yang selama ini di bawah pengurusannya, penternakan Syu'aib menjadi berkembang biak dengan cepatnya dan memberi hasil serta keuntungan yang berlipat ganda.
 Bacalah tentang isi cerita yang terurai ini di dalam ayat 22 sampai ayat 28, surah "Al-Qashash" juz 20 yang berbunyi sebagai berikut:~
 
-22. Dan tatkala ia menghadap ke negeri Madyan, ia berdoa {lagi}: "Mudah-mudahan Tuhanku menimpaiku ke jalan yang benar.
+- Dan tatkala ia menghadap ke negeri Madyan, ia berdoa {lagi}: "Mudah-mudahan Tuhanku menimpaiku ke jalan yang benar.
 
-23. Dan tatkala ia sampai di sumber air di negeri Madyan, ia menjumpai di sana sekumpulan orang yang sedang memberi minum {ternakannya} dan ia menjumpai di belakang orang ramai itu, dua orang wanita yang sedang menghambat ternakannya. Musa berkata: "Apakah maksudmu {dengan berbuat begitu}?" Kedua wanita itu menjawab: "Kami tidak dapat meminumkan {ternakan kami} sebelum pengembala-pengembala itu memulangkan {ternakkannya} sedang bapa kami orang tua yang telah lanjut umurnya.
+- Dan tatkala ia sampai di sumber air di negeri Madyan, ia menjumpai di sana sekumpulan orang yang sedang memberi minum {ternakannya} dan ia menjumpai di belakang orang ramai itu, dua orang wanita yang sedang menghambat ternakannya. Musa berkata: "Apakah maksudmu {dengan berbuat begitu}?" Kedua wanita itu menjawab: "Kami tidak dapat meminumkan {ternakan kami} sebelum pengembala-pengembala itu memulangkan {ternakkannya} sedang bapa kami orang tua yang telah lanjut umurnya.
 
-24. Maka Musa memberi minum ternakan itu {utk menolong} keduanya, kemudian kembali ke tempat yang teduh, lalu berdoa: " Ya Tuhanku! Sesungguhnya aku memerlukan sesuatu kebaikan yang Engkau turunkan kepadaku.
+- Maka Musa memberi minum ternakan itu {utk menolong} keduanya, kemudian kembali ke tempat yang teduh, lalu berdoa: " Ya Tuhanku! Sesungguhnya aku memerlukan sesuatu kebaikan yang Engkau turunkan kepadaku.
 
-25. Kemudian datanglah kepada Musa salah seorang daripada kedua wanita itu dengan malu-malu ia berkata: "Sesungguhnya bapaku memanggilmu agar ia memberi pembalasan {kebaikanmu} memberi minum {ternakan} kami." Maka tatkala Musa mendatangi bapanya {Syu'aib} dan menceritakan kepadanya cerita {mengenai dirinya}. Syu'aib berkata: "Janganlah kamu takut, kamu telah selamat dari orang-orang yang zalim itu.
+- Kemudian datanglah kepada Musa salah seorang daripada kedua wanita itu dengan malu-malu ia berkata: "Sesungguhnya bapaku memanggilmu agar ia memberi pembalasan {kebaikanmu} memberi minum {ternakan} kami." Maka tatkala Musa mendatangi bapanya {Syu'aib} dan menceritakan kepadanya cerita {mengenai dirinya}. Syu'aib berkata: "Janganlah kamu takut, kamu telah selamat dari orang-orang yang zalim itu.
 
-26. Salah seorang dari kedua wanita itu berkata: "Ya bapaku, ambil ia sebagai orang yang bekerja {dengan kita}. kerana sesungguhnya orang yang paling baik yang kamu ambil untuk bekerja {dengan kita} ialah orang yang kuat lagi dapat dipercayai.
+- Salah seorang dari kedua wanita itu berkata: "Ya bapaku, ambil ia sebagai orang yang bekerja {dengan kita}. kerana sesungguhnya orang yang paling baik yang kamu ambil untuk bekerja {dengan kita} ialah orang yang kuat lagi dapat dipercayai.
 
-27. Berkatalah dia {Syu'aib}: " Sesungguhnya aku bermaksud menikahkan kamu dengan salah seorang dari kedua anakku ini, atas dasar bahawa kamu bekerja denganku lapan tahun dan jika kamu cukupkan sepuluh tahun itu adalah dari kemahuanmu, maka aku tidak mahu memberati kamu. Dan kamu insya-Allah kelak akan mendapatiku termasuk orang-orang yang baik.
+- Berkatalah dia {Syu'aib}: " Sesungguhnya aku bermaksud menikahkan kamu dengan salah seorang dari kedua anakku ini, atas dasar bahawa kamu bekerja denganku lapan tahun dan jika kamu cukupkan sepuluh tahun itu adalah dari kemahuanmu, maka aku tidak mahu memberati kamu. Dan kamu insya-Allah kelak akan mendapatiku termasuk orang-orang yang baik.
 
-28. Dia berkata: "Itulah {perjanjian} antara aku dan kamu, mana saja dari kedua waktu yang ditentukan itu aku sempurnakan, maka tidak ada tuntutan tambahan atas diriku {lagi}. Dan Allah adalah saksi atas apa yang kita ucapkan." { Al-Qashash : 22 ~ 28 }
+- Dia berkata: "Itulah {perjanjian} antara aku dan kamu, mana saja dari kedua waktu yang ditentukan itu aku sempurnakan, maka tidak ada tuntutan tambahan atas diriku {lagi}. Dan Allah adalah saksi atas apa yang kita ucapkan." { Al-Qashash : 22 ~ 28 }
 
 
 ## Musa A.S. pulang ke Mesir dan menerima Wahyu
@@ -171,35 +171,35 @@ Maka begitu ular yang sedang merayap itu ditangkap dan dipegang oleh Musa, ia se
 Sebagai mukjizat yang kedua, Allah memerintahkan kepada Musa agar mengepitkan tangannya ke ketiaknya yang nyata setelah dilakukannya perintah itu, tangannya menjadi putih cemerlang tanpa cacat atau penyakit.
 Bacalah tentang isi cerita di atas dalam surah "Thaahaa" ayat 9 sehingga 23 juz 16 sebagai berikut:~
 
-9. Apakah telah sampai kepadamu kisah Musa? 
+- Apakah telah sampai kepadamu kisah Musa? 
 
-10. Ketika itu melihat api, lalu berkatalah ia kepada keluarganya: "Tinggallah kamu {di sini} sesungguhnya aku melihat api, mudah-mudahan aku dapat membawa sedikit daripadanya kepadamu atau aku akan mendapat petunjuk di tempat api itu.
+- Ketika itu melihat api, lalu berkatalah ia kepada keluarganya: "Tinggallah kamu {di sini} sesungguhnya aku melihat api, mudah-mudahan aku dapat membawa sedikit daripadanya kepadamu atau aku akan mendapat petunjuk di tempat api itu.
 
-11. Maka ketika ia datang ke tempat api itu, ia dipanggil: "Hai Musa, 
+- Maka ketika ia datang ke tempat api itu, ia dipanggil: "Hai Musa, 
 
-12. Sesungguhnya Aku ini adalah Tuhanmu, maka tanggalkanlah kedua terompahmu, sesungguhnya kamu berada di lembah yang suci Thuwa. 
+- Sesungguhnya Aku ini adalah Tuhanmu, maka tanggalkanlah kedua terompahmu, sesungguhnya kamu berada di lembah yang suci Thuwa. 
 
-13. Dan aku telah memilih kamu, maka dengarkanlah apa yang akan diwahyukan {kepadamu}. 
+- Dan aku telah memilih kamu, maka dengarkanlah apa yang akan diwahyukan {kepadamu}. 
 
-14. Sesungguhnya Aku ini adalah Allah, tidak ada Tuhan selain Aku, maka sembahlah Aku dan dirikanlah solat untuk mengingati Aku. 
+- Sesungguhnya Aku ini adalah Allah, tidak ada Tuhan selain Aku, maka sembahlah Aku dan dirikanlah solat untuk mengingati Aku. 
 
-15. Sesungguhnya hari kiamat itu akan datang. Aku merahsiakan {waktunya} agar supaya tiap-tiap diri itu dibalas dengan apa yang diusahakannya. 
+- Sesungguhnya hari kiamat itu akan datang. Aku merahsiakan {waktunya} agar supaya tiap-tiap diri itu dibalas dengan apa yang diusahakannya. 
 
-16. Maka sesekali janganlah kamu dipalingkan daripadanya oleh orang yang tidak beriman kepadanya dan oleh orang yang mengikuti hawa nafsunya, yang menyebabkan kamu menjadi binasa.
+- Maka sesekali janganlah kamu dipalingkan daripadanya oleh orang yang tidak beriman kepadanya dan oleh orang yang mengikuti hawa nafsunya, yang menyebabkan kamu menjadi binasa.
 
-17. Apakah itu yang ditangan kananmu, hai Musa?
+- Apakah itu yang ditangan kananmu, hai Musa?
 
-18. Berkata Musa: "Ini adalah tongkatku, aku bertelekan padanya dan aku memukul {daun} dengannya untuk kambingku dan bagiku ada lagi keperluan yang lain padanya.
+- Berkata Musa: "Ini adalah tongkatku, aku bertelekan padanya dan aku memukul {daun} dengannya untuk kambingku dan bagiku ada lagi keperluan yang lain padanya.
 
-19. Allah berfirman: "Lemparkanlah ia, hai Musa!
+- Allah berfirman: "Lemparkanlah ia, hai Musa!
 
-20. Lalu dilemparkanlah tongkat itu, maka tiba-tiba ia menjadi seekor ular yang merayap dengan cepat. 
+- Lalu dilemparkanlah tongkat itu, maka tiba-tiba ia menjadi seekor ular yang merayap dengan cepat. 
 
-21. Allah berfirman: "Peganglah ia dan jangan takut. Kami akan mengembalikannya kepada keadaan asalnya.
+- Allah berfirman: "Peganglah ia dan jangan takut. Kami akan mengembalikannya kepada keadaan asalnya.
 
-22. Dan kepitkanlah tanganmu di ketiakmu, nescaya ia keluar menjadi putih cemerlang tanpa cacat, sebagai mukjizat yang lain {pula}. 
+- Dan kepitkanlah tanganmu di ketiakmu, nescaya ia keluar menjadi putih cemerlang tanpa cacat, sebagai mukjizat yang lain {pula}. 
 
-23. Untuk Kami perlihatkan kepadamu sebahagian dari tanda-tanda kekuasaan Kami yang sangat besar." {Thaahaa : 9 ~ 23 }
+- Untuk Kami perlihatkan kepadamu sebahagian dari tanda-tanda kekuasaan Kami yang sangat besar." {Thaahaa : 9 ~ 23 }
 
 
 ## Musa diperintahkan berdakwah kepada Fir'aun
@@ -220,23 +220,23 @@ Jika pada waktu bertolak dari Madyan dan selama perjalannya ke Thur Sina. Nabi M
 Allah berkenan mengabulkan permohonan Musa, maka digerakkanlah hati Harun yang ketika itu masih berada di Mesir untuk pergi menemui Musa mendampinginya dan bersama-sama pergilah mereka ke istana Fir'aun dengan diiringi firman Allah: "Janganlah kamu berdua takut dan khuatir akan disiksa oleh Fir'aun. Aku menyertai kamu berdua dan Aku mendengar serta melihat dan mengetaui apa yang akan terjadi antara kamu dan Fir'aun. Berdakwahlah kamu kepadanya dengan kata-kata yang lemah lembut sedarkanlah ia dengan kesesatannya dan ajaklah ia beriman dan bertauhid, meninggalkan kezalimannya dan kesombongannya kalau-kalau dengan sikap yang lemah lembut daripada kamu berdua ia akan ingat pada kesesatan dirinya dan takut akan akibat kesombongan dan kebongkakannya."
 Bacalah tentang isi cerita di atas di dalam ayat 33 sehingga ayat 35 surah "Al-Qashash" dan ayat 42 sehingga ayat 47 surah "Thaha" sebagai berikut:~
 
-33. Musa berkata: "Ya Tuhanku, sesungguhnya aku telah membunuh seseorang manusia dari golongan mereka, maka aku takut mereka akan membunuhku, 
+- Musa berkata: "Ya Tuhanku, sesungguhnya aku telah membunuh seseorang manusia dari golongan mereka, maka aku takut mereka akan membunuhku, 
 
-34. Dan saudaraku Harun dia lebih petah lidahnya daripadaku, maka utuslah dia bersamaku sebagai pembantu untuk membenarkan {perkataan} ku sesungguhnya aku khuatir mereka akan mendustakan aku.
+- Dan saudaraku Harun dia lebih petah lidahnya daripadaku, maka utuslah dia bersamaku sebagai pembantu untuk membenarkan {perkataan} ku sesungguhnya aku khuatir mereka akan mendustakan aku.
 
-35. Allah berfirman: "Kami akan membantumu dengan saudaramu dan Kami berikan kepadamu kekuasaan yang besar, maka mereka tidak dapat mencapaimu {berangkat kami berdua} dengan membawa mukjizat Kami, kamu berdua dan orang yang mengikuti kamulah yang akan menang." { Al-Qashash : 33 ~ 35 }
+- Allah berfirman: "Kami akan membantumu dengan saudaramu dan Kami berikan kepadamu kekuasaan yang besar, maka mereka tidak dapat mencapaimu {berangkat kami berdua} dengan membawa mukjizat Kami, kamu berdua dan orang yang mengikuti kamulah yang akan menang." { Al-Qashash : 33 ~ 35 }
 
-42. Pergilah kamu berserta saudara kamu dengan membawa ayat-ayat-Ku dan janganlah kamu berdua lalai dalam memngingati-Ku. 
+- Pergilah kamu berserta saudara kamu dengan membawa ayat-ayat-Ku dan janganlah kamu berdua lalai dalam memngingati-Ku. 
 
-43. Pergilah kamu berdua kepada Fir'aun, sesungguhnya dia telah melewati batas. 
+- Pergilah kamu berdua kepada Fir'aun, sesungguhnya dia telah melewati batas. 
 
-44. Maka berbicaralah kamu berdua kepadanya dengan kata-kata yang lemah lembut, mudah-mudahan ia akan ingat atau takut
+- Maka berbicaralah kamu berdua kepadanya dengan kata-kata yang lemah lembut, mudah-mudahan ia akan ingat atau takut
 
-45. Berkatalah mereka berdua: "Ya Tuhan kami sesungguhnya kami khuatir bahawa ia segera menyeksa kami atau akan bertambah melewati batas 
+- Berkatalah mereka berdua: "Ya Tuhan kami sesungguhnya kami khuatir bahawa ia segera menyeksa kami atau akan bertambah melewati batas 
 
-46. Allah berfirman: "Janganlah kamu berdua khuatir, sesungguhnya Aku berserta kamu berdua, Aku mendengar dan melihat". 
+- Allah berfirman: "Janganlah kamu berdua khuatir, sesungguhnya Aku berserta kamu berdua, Aku mendengar dan melihat". 
 
-47. Maka datanglah kamu berdua kepadanya {Fir'aun} dan katakanlah: "Sesungguhnya kami berdua adalah utusan Tuhanmu, maka lepaskanlah Bani Isra'il bersama kami dan janganlah kamu menyeksa mereka. Sesungguhnya kami telah datang kepadamu dengan membawa bukti {atas kerasulan kami} dari Tuhanmu. Dan keselamatan itu dilimpahkan kepada orang yang mengikuti petunjuk." { Thaha : 42 ~ 47 }
+- Maka datanglah kamu berdua kepadanya {Fir'aun} dan katakanlah: "Sesungguhnya kami berdua adalah utusan Tuhanmu, maka lepaskanlah Bani Isra'il bersama kami dan janganlah kamu menyeksa mereka. Sesungguhnya kami telah datang kepadamu dengan membawa bukti {atas kerasulan kami} dari Tuhanmu. Dan keselamatan itu dilimpahkan kepada orang yang mengikuti petunjuk." { Thaha : 42 ~ 47 }
 
 
 ## Mujadalah (dialog) antara Musa dengan Fir'aun
@@ -267,31 +267,31 @@ Musa menjawab: "Apakah engkau akan memenjarakan aku walaupun aku dapat memberika
 Fir'aun menentang dengan berkata: "Datanglah tanda-tanda dan bukti-bukti yang nyata yang dapat membuktikan kebenaran kata-katamu jika engkau benar-benar tiak berdusta."
 Dialog {mujadalah} antara Musa dan Fir'aun sebagaimana dihuraikan di atas dapat dibaca dalam surah "Asy-Syu'ara" ayat 18 hingga ayat 31 juz 19 sebagimana berikut:~
 
-18. Fir'aun berkata: "Bukankah kami telah mengasuhmu diantara {keluarga} kami diwaktu kamu masih kanak-kanak dan kamu tinggal diantara {keluarga} kami beberapa tahun dari umurmu. 
+- Fir'aun berkata: "Bukankah kami telah mengasuhmu diantara {keluarga} kami diwaktu kamu masih kanak-kanak dan kamu tinggal diantara {keluarga} kami beberapa tahun dari umurmu. 
 
-19. dan kamu telah berbuat sesuatu perbuatan yang telah kamu lakukan itu dan kamu termasuk golongan orang-orang yang tidak membalas jasa.
+- Dan kamu telah berbuat sesuatu perbuatan yang telah kamu lakukan itu dan kamu termasuk golongan orang-orang yang tidak membalas jasa.
 
-20. Berkata Musa: "Aku telah melakukannya sedang aku diwaktu itu termasuk orang-orang yang khilaf. 
+- Berkata Musa: "Aku telah melakukannya sedang aku diwaktu itu termasuk orang-orang yang khilaf. 
 
-21. Lalu aku lari meninggalkan kamu ketika aku takut kepada kamu, kemudian Tuhanku memberikan kepadaku ilmu serta Dia menjadikan aku salah seorang diantara rasul-rasul. 
+- Lalu aku lari meninggalkan kamu ketika aku takut kepada kamu, kemudian Tuhanku memberikan kepadaku ilmu serta Dia menjadikan aku salah seorang diantara rasul-rasul. 
 
-22. Budi yang kamu limpahkan kepada ku ini adalah {disebabkan} perhambaan darimu terhadap Bani Isra'il.
+- Budi yang kamu limpahkan kepada ku ini adalah {disebabkan} perhambaan darimu terhadap Bani Isra'il.
 
-23. Fir'aun bertanya: "Apa Tuhan semesta alam itu?
+- Fir'aun bertanya: "Apa Tuhan semesta alam itu?
 
-24. Musa menjawab: "Tuhan pencipta langit dan bumi dan apa yang diantara keduanya {itulah Tuhanmu} jika kamu sekalian {orang-orang} mempercayainya". 
+- Musa menjawab: "Tuhan pencipta langit dan bumi dan apa yang diantara keduanya {itulah Tuhanmu} jika kamu sekalian {orang-orang} mempercayainya". 
 
-25. Berkata Fir'aun kepada orang-orang sekelilingnya: "Apakah kamu tidak mendengarkan?". 
+- Berkata Fir'aun kepada orang-orang sekelilingnya: "Apakah kamu tidak mendengarkan?". 
 
-26. Musa berkata: "Tuhan kamu dan Tuhan nenek-nenek moyang kamu yang dahulu" 
+- Musa berkata: "Tuhan kamu dan Tuhan nenek-nenek moyang kamu yang dahulu" 
 
-27. Fir'aun berkata: "Sesungguhnya Rasulmu yang diutuskan kepada kamu sekalian benar-benar orang gila". 
+- Fir'aun berkata: "Sesungguhnya Rasulmu yang diutuskan kepada kamu sekalian benar-benar orang gila". 
 
-28. Musa berkata: "Tuhan yang menguasai timur dan barat dan apa yang ada di antara keduanya {itulah Tuhanmu} jika kamu mempergunakan akal". 
+- Musa berkata: "Tuhan yang menguasai timur dan barat dan apa yang ada di antara keduanya {itulah Tuhanmu} jika kamu mempergunakan akal". 
 
-29. Fir'aun berkata: "Sungguh jika kamu menyembah Tuhan selain aku benar-benar aku akan menjadikan kamu salah seorang yang dipenjarakan". 
+- Fir'aun berkata: "Sungguh jika kamu menyembah Tuhan selain aku benar-benar aku akan menjadikan kamu salah seorang yang dipenjarakan". 
 
-30. Musa berkata: "Dan apakah kamu {akan melakukan itu} walaupun aku tunjukkan kepadamu sesuatu {keterangan} yang nyata jika kamu adalah termasuk orang-orang yang benar." { Asy-Syura : 18 ~ 31 }
+- Musa berkata: "Dan apakah kamu {akan melakukan itu} walaupun aku tunjukkan kepadamu sesuatu {keterangan} yang nyata jika kamu adalah termasuk orang-orang yang benar." { Asy-Syura : 18 ~ 31 }
 
 
 ## Musa memperlihatkan dua mukjizat kepada Fir'aun
@@ -317,45 +317,45 @@ Fir'aun raja yang sombong yang menuntut pernyembahan dari rakyatnya sebagai tuha
 Ancaman Fir'aun itu disambut mereka dengan sikap dingin dan acuh tak acuh. Kerana Allah telah membuka mata hati mereka dengan cahaya iman sehingga tidak akan terpengaruh dengan kata-kata kebathilan yang menyesatkan atau ancaman Fir'aun yang menakutkan. Mereka sebagai-orang-orang yang ahli dalam ilmu dan seni sihir dapat membezakan yang mana satu sihir dan yang mana bukan. Maka sekali mereka diyakinkan dengan mukjizat Nabi Musa yang membuktikan kebenaran kenabiannya tidaklah keyakinan itu akan dapat digoyahkan oleh ancaman apa pun. Berkata mereka kepada Fir'aun menjawab ancamannya: "Kami telah mendapat bukti-bukti yang nyata dan kami tidak akan mengabaikan kenyataan itu sekadar memenuhi kehendak dan keinginanmu. Kami akan berjalan terus megikut jejak dan tuntutan Musa dan Harun sebagai pesuruh oleh yang benar. Maka terserah kepadamu untuk memutuskan apa yang engkau hendak putuskan terhadap diri kami. Keputusan kamu hanya berlaku di dunia ini sedang kami mengharapkan pahala Allah di akhirat yang kekal dan abadi."
 Bacalah tentang isi cerita di atas dalam surah "Asy-Syu'ara" ayat 32 sehingga ayat 51 juz 19 sebagai berikut:~
 
-32. Maka Musa melemparkan tongkatnya, lalu tiba-tiba tongkat itu {menjadi ular}. 
+- Maka Musa melemparkan tongkatnya, lalu tiba-tiba tongkat itu {menjadi ular}. 
 
-33. Dan ia menarik tangannya {dr dalam saku bajunya} maka tiba-tiba tangan itu menjadi putih {bersinar} bagi orang-orang yang melihatnya. 
+- Dan ia menarik tangannya {dr dalam saku bajunya} maka tiba-tiba tangan itu menjadi putih {bersinar} bagi orang-orang yang melihatnya. 
 
-34. Fir'aun berkata pembesar-pembesar yang berada di sekelilingnya: "Sesungguhnya Musa itu benar-benar seorang ahli sihir yang pandai, 
+- Fir'aun berkata pembesar-pembesar yang berada di sekelilingnya: "Sesungguhnya Musa itu benar-benar seorang ahli sihir yang pandai, 
 
-35. Ia hendak mengusir kamu dari negeri kamu sendiri dengan sihirnya maka kerana itu apakah yang kamu anjurkan?" 
+- Ia hendak mengusir kamu dari negeri kamu sendiri dengan sihirnya maka kerana itu apakah yang kamu anjurkan?" 
 
-36. Mereka menjawab: "Tundalah {urusan} dia dan saudaranya dan kirimlah ke seluruh negeri orang-orang yang akan mengumpulkan {ahli sihir}, 
+- Mereka menjawab: "Tundalah {urusan} dia dan saudaranya dan kirimlah ke seluruh negeri orang-orang yang akan mengumpulkan {ahli sihir}, 
 
-37. Nescaya mereka akan mendatangkan semua ahli sihir yang pandai kepadamu". 
+- Nescaya mereka akan mendatangkan semua ahli sihir yang pandai kepadamu". 
 
-38. Lalu dikumpulkanlah ahli-ahli sihir pada waktu yang ditetapkan di hari yang maklum. 
+- Lalu dikumpulkanlah ahli-ahli sihir pada waktu yang ditetapkan di hari yang maklum. 
 
-39. Dan dikatakan kepada orang ramai: "Berkumpullah kamu sekalian, 
+- Dan dikatakan kepada orang ramai: "Berkumpullah kamu sekalian, 
 
-40. Semoga kita mengikuti ahli-ahli sihir, jika mereka adalah orang-orang yang menang". 
+- Semoga kita mengikuti ahli-ahli sihir, jika mereka adalah orang-orang yang menang". 
 
-41. Maka tatkala ahli-ahli sihir datang , mereka pun bertanya kepada Fir'aun: "Apakah kami sungguh-sungguh mendapat upah yang besar jika kami adalah orang-orang yang menang?" 
+- Maka tatkala ahli-ahli sihir datang , mereka pun bertanya kepada Fir'aun: "Apakah kami sungguh-sungguh mendapat upah yang besar jika kami adalah orang-orang yang menang?" 
 
-42. Fir'aun menjawab: "Ya, kalau demikian, sesungguhnya kamu sekalian benar-benar akan menjadi orang yang didekatkan {kepadaku}". 
+- Fir'aun menjawab: "Ya, kalau demikian, sesungguhnya kamu sekalian benar-benar akan menjadi orang yang didekatkan {kepadaku}". 
 
-43. Berkatalah Musa kepada mereka: "Jatuhkalah apa yang kamu hendak jatuhkan". 
+- Berkatalah Musa kepada mereka: "Jatuhkalah apa yang kamu hendak jatuhkan". 
 
-44. Lalu mereka menjatuhkan tali-temali dan tongkat-tongkat mereka lalu berkata: "Demi kekuasaan Fir'aun, sesungguhnya kami akan benar-benar menang". 
+- Lalu mereka menjatuhkan tali-temali dan tongkat-tongkat mereka lalu berkata: "Demi kekuasaan Fir'aun, sesungguhnya kami akan benar-benar menang". 
 
-45. Kemudian Musa menjatuhkan tongkatnya, maka tiba-tiba ia menelan benda-benda palsu yang mereka ada-adakan itu. 
+- Kemudian Musa menjatuhkan tongkatnya, maka tiba-tiba ia menelan benda-benda palsu yang mereka ada-adakan itu. 
 
-46. Maka tersungkurlah ahli-ahli sihir sambil bersujud {kepada Allah} 
+- Maka tersungkurlah ahli-ahli sihir sambil bersujud {kepada Allah} 
 
-47. Mereka berkata: "Kami beriman kepada Tuhan semesta alam 
+- Mereka berkata: "Kami beriman kepada Tuhan semesta alam 
 
-48. Iaitu Tuhan Musa dan Harun" 
+- Iaitu Tuhan Musa dan Harun" 
 
-49. Fir'aun berkata: "Apakah kamu sekalian beriman kepada Musa sebelumku memberi izin kepadamu? Sesungguhnya dia benar-benar pemimpinmu yang mengajar sihir kepadamu, maka kamu nanti pasti benar-benar akan mengetahui {akibat perbuatanmu}, sesungguhnya aku akan memotong tanganmu dan kakimu dengan bersilangan dan aku akan menyalibmu semuanya". 
+- Fir'aun berkata: "Apakah kamu sekalian beriman kepada Musa sebelumku memberi izin kepadamu? Sesungguhnya dia benar-benar pemimpinmu yang mengajar sihir kepadamu, maka kamu nanti pasti benar-benar akan mengetahui {akibat perbuatanmu}, sesungguhnya aku akan memotong tanganmu dan kakimu dengan bersilangan dan aku akan menyalibmu semuanya". 
 
-50. Mereka berkata: "Tidak ada kemudharatan {kepada kami}, sesungguhnya kami akan kembali kepada Tuhan kami 
+- Mereka berkata: "Tidak ada kemudharatan {kepada kami}, sesungguhnya kami akan kembali kepada Tuhan kami 
 
-51. Sesungguhnya kami amat menginginkan bahawa Tuhan kami akan mengampuni kesalahan kami, kerana kami adalah orang-orang yang pertama sekali beriman." {Asy-Syu'ara : 32 ~ 51 }
+- Sesungguhnya kami amat menginginkan bahawa Tuhan kami akan mengampuni kesalahan kami, kerana kami adalah orang-orang yang pertama sekali beriman." {Asy-Syu'ara : 32 ~ 51 }
 
 
 ## Fir'aun tetap keras kepala dan semakin keliru
@@ -388,40 +388,40 @@ Berkata orang mukmin itu menjawab anjuran Fir'aun: "Wahai kaumku, sangat aneh se
 
 Bacalah tentang isi cerita di atas dalam surah "Al-A'raaf" ayat 127 sehingga ayat 129 juz 9 dan surah "Al-Mukmin" ayat 28 sehingga ayat 33 dan ayat 38 sehingga ayat 45 juz 24 sebagai berikut :~
 
-127. Berkata pembesar-pembesar dari kaum Fir'aun {kepada Fir'aun}: "Apakah kamu akan membiarkan Musa dan kaumnya untuk membuat kerosakkan di negeri ini {Mesir} dan meninggalkan kamu serta tuhan-tuhanmu?" Fir'aun menjawab: "Akan kita bunuh anak-anak lelaki mereka dan kita biarkan hidup perempuan-perempuan mereka dan sesungguhnya kita berkuasa penuh ke atas mereka". 
+- Berkata pembesar-pembesar dari kaum Fir'aun {kepada Fir'aun}: "Apakah kamu akan membiarkan Musa dan kaumnya untuk membuat kerosakkan di negeri ini {Mesir} dan meninggalkan kamu serta tuhan-tuhanmu?" Fir'aun menjawab: "Akan kita bunuh anak-anak lelaki mereka dan kita biarkan hidup perempuan-perempuan mereka dan sesungguhnya kita berkuasa penuh ke atas mereka". 
 
-128. Musa berkata kepada kaumnya: "Mohonlah pertolongan kepada Allah dan bersabarlah sesungguhnya bumi {ini} kepunyaan Allah dipusakakannya kepada siapa yang dikehendaki-Nya dari hamba-hamba-Nya. Dan kesusahan yang baik adalah bagi orang-orang yang bertakwa". 
+- Musa berkata kepada kaumnya: "Mohonlah pertolongan kepada Allah dan bersabarlah sesungguhnya bumi {ini} kepunyaan Allah dipusakakannya kepada siapa yang dikehendaki-Nya dari hamba-hamba-Nya. Dan kesusahan yang baik adalah bagi orang-orang yang bertakwa". 
 
-129. Kaum Musa berkata: "Kami telah ditindas {oleh Fir'aun} sebelum kamu datang kepada kami dan sesudah kamu datang." Musa menjawab: "Mudah-mudahan Allah membinasakan musuh-musuh kamu dan menjadikan kamu khalifah di bumi{-Nya} maka Allah akan melihat bagaimana perbuatanmu." { Al-A'raaf : 127 ~ 129 }
+- Kaum Musa berkata: "Kami telah ditindas {oleh Fir'aun} sebelum kamu datang kepada kami dan sesudah kamu datang." Musa menjawab: "Mudah-mudahan Allah membinasakan musuh-musuh kamu dan menjadikan kamu khalifah di bumi{-Nya} maka Allah akan melihat bagaimana perbuatanmu." { Al-A'raaf : 127 ~ 129 }
 
-28. Dan seorang laki-laki yang beriman di antara pengikut-pengikut Fir'aun yang mneyembunyikan imannya berkata: "Apakah kamu akan membunuh seorang laki-laki kerana dia menyatakan "Tuhanku ialah Allah" padahal dia telah datang kepadamu dengan membawa keterangan-keterangan dari Tuhanmu. Dan jika dia seorang pendusta, maka dialah yang menanggung {dosa} dustanya itu dan jika dia seorang yang benar, nescaya sebahagian {bencana} yang diancamkannya kepadamu akan menimpamu." Sesungguhnya Allah tidak menunjuki orang-orang yang melampaui batas lagi pendusta. 
+- Dan seorang laki-laki yang beriman di antara pengikut-pengikut Fir'aun yang mneyembunyikan imannya berkata: "Apakah kamu akan membunuh seorang laki-laki kerana dia menyatakan "Tuhanku ialah Allah" padahal dia telah datang kepadamu dengan membawa keterangan-keterangan dari Tuhanmu. Dan jika dia seorang pendusta, maka dialah yang menanggung {dosa} dustanya itu dan jika dia seorang yang benar, nescaya sebahagian {bencana} yang diancamkannya kepadamu akan menimpamu." Sesungguhnya Allah tidak menunjuki orang-orang yang melampaui batas lagi pendusta. 
 
-29. Hai kaumku untukmu lah kerajaan pada hari ini dengan berkuasa di muka bumi. Siapakah yang akan menolong kita dari azab Allah jika azab itu menimpa kita?" Fir'aun berkata: "Aku tidak mengemukakan kepadamu melainkan apa yang aku pandang baik dan aku tidak menunjukkan kepadamu selain jalan yang benar." 
+- Hai kaumku untukmu lah kerajaan pada hari ini dengan berkuasa di muka bumi. Siapakah yang akan menolong kita dari azab Allah jika azab itu menimpa kita?" Fir'aun berkata: "Aku tidak mengemukakan kepadamu melainkan apa yang aku pandang baik dan aku tidak menunjukkan kepadamu selain jalan yang benar." 
 
-30. Dan orang yang beriman itu berkata: "Hai kaumku sesungguhnya aku khuatir kamu akan ditimpa {bencana} seperti peristiwa {kehancuran} golongan yang bersekutu, 
+- Dan orang yang beriman itu berkata: "Hai kaumku sesungguhnya aku khuatir kamu akan ditimpa {bencana} seperti peristiwa {kehancuran} golongan yang bersekutu, 
 
-31. {yakni} seperti keadaan kaum Nuh, Aad, Tsamud dan orang-orang yang datang sesudah mereka. Dan Allah tidak menghendaki berbuat kezaliman terhadap hamba-hamba-Nya. 
+- {Yakni} seperti keadaan kaum Nuh, Aad, Tsamud dan orang-orang yang datang sesudah mereka. Dan Allah tidak menghendaki berbuat kezaliman terhadap hamba-hamba-Nya. 
 
-32. Hai kaumku, sesungguhnya aku khuatir terhadapmu akan seksaan hari akhirat. 
+- Hai kaumku, sesungguhnya aku khuatir terhadapmu akan seksaan hari akhirat. 
 
-33. {yaitu} hari {ketika} kamu {lari} berpaling kebelakang, tidak ada bagimu seseorang pun yang menyelamatkan kamu dari {azab} Allah dan siapa yang disesatkan Allah nescaya tidak ada baginya seorang pun yang akan memberi petunjuk." { Al-Mukmin : 28 ~ 33 }
+- {Iaitu} hari {ketika} kamu {lari} berpaling kebelakang, tidak ada bagimu seseorang pun yang menyelamatkan kamu dari {azab} Allah dan siapa yang disesatkan Allah nescaya tidak ada baginya seorang pun yang akan memberi petunjuk." { Al-Mukmin : 28 ~ 33 }
 
 
-38. Orang yang beriman itu berkata: "Hai kaumku ikutilah aku akan menunjukkan kepadamu jalan yang benar. 
+- Orang yang beriman itu berkata: "Hai kaumku ikutilah aku akan menunjukkan kepadamu jalan yang benar. 
 
-39. Hai kaumku! Sesungguhnya kehidupan dunia ini hanyalah kesenangan {sementara} dan sesungguhnya akhirat itulah negeri yang kekal. 
+- Hai kaumku! Sesungguhnya kehidupan dunia ini hanyalah kesenangan {sementara} dan sesungguhnya akhirat itulah negeri yang kekal. 
 
-40. Barang siapa mengerjakan perbuatan jahat, maka dia tidak akan dibalas melainkan sebanding dengan kejahatan itu. Dan barang siapa yang mengerjakan amal yang soleh baik laki-laki mahupun perempuan sedang ia dalam keadaan beriman, maka mereka akan masuk syurga, mereka diberi rezeki didalamnya tanpa hisab. 
+- Barang siapa mengerjakan perbuatan jahat, maka dia tidak akan dibalas melainkan sebanding dengan kejahatan itu. Dan barang siapa yang mengerjakan amal yang soleh baik laki-laki mahupun perempuan sedang ia dalam keadaan beriman, maka mereka akan masuk syurga, mereka diberi rezeki didalamnya tanpa hisab. 
 
-41. Hai kaumku! Bagaimana kamu ini, aku menyeru kamu kepada keselamatan tetapi kamu menyeru aku ke neraka? 
+- Hai kaumku! Bagaimana kamu ini, aku menyeru kamu kepada keselamatan tetapi kamu menyeru aku ke neraka? 
 
-42. {kenapa} kamu menyerukan supaya kufur kepada Allah dan mempersekutukan-Nya dengan apa yang tidakku ketahui padahal aku menyeru kamu {beriman} kepada Yang Maha Perkasa lagi Maha Pengampun?" 
+- {Kenapa} kamu menyerukan supaya kufur kepada Allah dan mempersekutukan-Nya dengan apa yang tidakku ketahui padahal aku menyeru kamu {beriman} kepada Yang Maha Perkasa lagi Maha Pengampun?" 
 
-43. Sudah pasti bahawa apa yang kamu seru supaya aku {beriman} kepadanya tidak dapat memperkenankan seruan apa pun, baik di dunia mahu pun di akhirat. Dan sesungguhnya kembali kita adalah kepada Allah dan sesungguhnya orang-orang yang melampaui batas, mereka itulah penghuni neraka. 
+- Sudah pasti bahawa apa yang kamu seru supaya aku {beriman} kepadanya tidak dapat memperkenankan seruan apa pun, baik di dunia mahu pun di akhirat. Dan sesungguhnya kembali kita adalah kepada Allah dan sesungguhnya orang-orang yang melampaui batas, mereka itulah penghuni neraka. 
 
-44. Kelak kamu akan ingat kepada apa yang aku katakan kepada kamu. Dan aku menyerahkan urusan aku kepada Allah. Sesungguhnya Allah Maha Melihat akan hamba-hamba-Nya. 
+- Kelak kamu akan ingat kepada apa yang aku katakan kepada kamu. Dan aku menyerahkan urusan aku kepada Allah. Sesungguhnya Allah Maha Melihat akan hamba-hamba-Nya. 
 
-45. Maka Allah memeliharanya dari kejahatan tipu daya mereka dan Fir'aun berserta kaumnya dikepung oleh azab yang amat buruk." { Al-Mukmin : 38 ~ 45 }
+- Maka Allah memeliharanya dari kejahatan tipu daya mereka dan Fir'aun berserta kaumnya dikepung oleh azab yang amat buruk." { Al-Mukmin : 38 ~ 45 }
 
 
 ## Fir'aun menghina dan mengejek Musa
@@ -451,27 +451,27 @@ Bacalah tentang isi cerita di atas ayat 26 dari surah "Al-Mukmin" ; ayat 51 sehi
 
 "Dan Fir'aun menyeru kepada kaumnya {seraya} berkata: "Hai kaumku! Bukankah kerajaan Mesir ini kepunyaanku dan {bukankah} sungai-sungai ini mengalir dibawahku, maka apakah yang kamu tidak melihatnya? 
 
-52. Bukankah aku lebih baik dari orang yang hina ini dan yang hampir tidak dapat menjelaskan {perkataannya}? 
+- Bukankah aku lebih baik dari orang yang hina ini dan yang hampir tidak dapat menjelaskan {perkataannya}? 
 
-53. Mengapa tidak dipakaikan kepadanya gelang emas, atau malaikat datang bersama-sama dia untuk mengiringkannya." 
+- Mengapa tidak dipakaikan kepadanya gelang emas, atau malaikat datang bersama-sama dia untuk mengiringkannya." 
 
-54. Maka Fir'aun mempergaruhi kaumnya {dengan perkataan itu} lalu mereka patuh kepadanya kerana sesungguhnya mereka itu adalah kaum yang fasiq." { Az-Zukhruf : 51 ~ 54 }
+- Maka Fir'aun mempergaruhi kaumnya {dengan perkataan itu} lalu mereka patuh kepadanya kerana sesungguhnya mereka itu adalah kaum yang fasiq." { Az-Zukhruf : 51 ~ 54 }
 
-88. Musa berkata: "Ya Tuhan kami, sesungguhnya Engkau telah memberi kepada Fir'aun dan pemuka-pemuka kaumnya perhiasan dan harta kekayaan dalam kehidupan dunia, Ya Tuhan kami, akibatnya mereka menyesatkan {manusia} dari jalan Engkau. Ya Tuhan kami, binasakanlah harta benda mereka dan kunci matilah hati mereka maka mereka tidak beriman hingga mereka melihat seksaan yang pedih." 
+- Musa berkata: "Ya Tuhan kami, sesungguhnya Engkau telah memberi kepada Fir'aun dan pemuka-pemuka kaumnya perhiasan dan harta kekayaan dalam kehidupan dunia, Ya Tuhan kami, akibatnya mereka menyesatkan {manusia} dari jalan Engkau. Ya Tuhan kami, binasakanlah harta benda mereka dan kunci matilah hati mereka maka mereka tidak beriman hingga mereka melihat seksaan yang pedih." 
 
-89. Allah berfirman: "Sesungguhnya telah diperkenankan permohonan kamu berdua sebab itu tetaplah kamu berdua pada jalan yang lurus dan janganlah sesekali kamu mengikuti jalan orang-orang yang tidak mengetahui." { Yunus : 88 sehingga 89 }
+- Allah berfirman: "Sesungguhnya telah diperkenankan permohonan kamu berdua sebab itu tetaplah kamu berdua pada jalan yang lurus dan janganlah sesekali kamu mengikuti jalan orang-orang yang tidak mengetahui." { Yunus : 88 sehingga 89 }
 
-130. Dan sesungguhnya Kami telah menghukum {Fir'aun dan} kaumnya dengan mendatangkan musim kemarau yang panjang dan kekurangan buah-buahan, supaya mereka mengambil pengajaran 
+- Dan sesungguhnya Kami telah menghukum {Fir'aun dan} kaumnya dengan mendatangkan musim kemarau yang panjang dan kekurangan buah-buahan, supaya mereka mengambil pengajaran 
 
-131. Kemudian apabila datang kepada mereka kemakmuran mereka berkata: "Ini adalah kerana {usaha} kami." Dan jika mereka ditimpa kesusahan mereka lemparkan sebab kesialan itu kepada Musa dan orang-orang yang berserta dengannya. Ketahuilah sesungguhnya kesialan mereka itu adalah ketetapan dari Allah, akan tetapi kebanyakkan mereka tidak mengetahui. 
+- Kemudian apabila datang kepada mereka kemakmuran mereka berkata: "Ini adalah kerana {usaha} kami." Dan jika mereka ditimpa kesusahan mereka lemparkan sebab kesialan itu kepada Musa dan orang-orang yang berserta dengannya. Ketahuilah sesungguhnya kesialan mereka itu adalah ketetapan dari Allah, akan tetapi kebanyakkan mereka tidak mengetahui. 
 
-132. Mereka berkata kepada Musa: Bagaimana kamu mendatangkan keterangan kepada kami untuk menyihir kami dengan keterangan itu, maka sesekali kami tidak akan beriman kepadamu." 
+- Mereka berkata kepada Musa: Bagaimana kamu mendatangkan keterangan kepada kami untuk menyihir kami dengan keterangan itu, maka sesekali kami tidak akan beriman kepadamu." 
 
-133. Maka Kami {Allah} kirimkan kepada mereka taufan, belalang, kutu, katak dan darah sebagai bukti yang jelas tetapi mereka tetap menyombong diri dan mereka adalah kaum yang berdosa. 
+- Maka Kami {Allah} kirimkan kepada mereka taufan, belalang, kutu, katak dan darah sebagai bukti yang jelas tetapi mereka tetap menyombong diri dan mereka adalah kaum yang berdosa. 
 
-134. Dan ketika mereka ditimpa azab {yang telah diterangkan itu} mereka pun berkata: " Hai Musa, mohonkanlah untuk kami kepada Tuhanmu dengan {perantaraan} kenabian yang diketahui oleh Allah ada pada sisimu. Sesungguhnya jika kamu dapat menghilangkan azab itu drp kami pasti kami akan beriman kepadamu dan akan kami biarkan Bani Isra'il pergi bersamamu." 
+- Dan ketika mereka ditimpa azab {yang telah diterangkan itu} mereka pun berkata: " Hai Musa, mohonkanlah untuk kami kepada Tuhanmu dengan {perantaraan} kenabian yang diketahui oleh Allah ada pada sisimu. Sesungguhnya jika kamu dapat menghilangkan azab itu drp kami pasti kami akan beriman kepadamu dan akan kami biarkan Bani Isra'il pergi bersamamu." 
 
-135. Maka setelah Kami hilangkan azab itu dari mereka hingga batas waktu yang mereka sampai kepadanya, tiba-tiba mereka mengingkarinya." { Al-A'raaf : 130 ~ 135 }
+- Maka setelah Kami hilangkan azab itu dari mereka hingga batas waktu yang mereka sampai kepadanya, tiba-tiba mereka mengingkarinya." { Al-A'raaf : 130 ~ 135 }
 
 ## Bani Isra'il keluar dari Mesir
 
@@ -503,30 +503,30 @@ Nabi Musa berusaha menyakinkan kaumnya bahawa apa yang terfikir oleh mereka tent
 Menurut catatan sejarah, bahawa mayat Fir'aun yang terdampar di pantai diketemukan oleh orang-orang Mesir, lalu diawet hingga utuh sampai sekarang, sebagai mana dapat dilihat di muzium Mesir.
 Tentang isi cerita yang terurai di atas dapat di baca dalam surah "Thaha" ayat 77 sehingga 79 ; surah "Asy-Syua'ra" ayat 60 sehingga 68 ; surah "Yunus" ayat 90 sehingga 92 sebagaimana berikut :~
 
-77. Dan sesungguhnya telah Kami wahyukan kepada Musa: "Pergilah kamu dengan hamba-hamba-Ku {Bani Isra'il} di malam hari, maka buatkanlah untuk mereka jalan yang kering di laut itu, kamu tidak usah khuatir akan tersusul dan tidak usah takut {akan tenggelam}." 
+- Dan sesungguhnya telah Kami wahyukan kepada Musa: "Pergilah kamu dengan hamba-hamba-Ku {Bani Isra'il} di malam hari, maka buatkanlah untuk mereka jalan yang kering di laut itu, kamu tidak usah khuatir akan tersusul dan tidak usah takut {akan tenggelam}." 
 
-78. Maka Fir'aun dengan bala tenteranya mengejar mereka, lalu mereka ditutup oleh laut yang menenggelamkan mereka. 
-79. Dan Fir'aun telah menyesatkan kaumnya dan tidak memberi peetunjuk." { Thaha : 77 ~ 79 }
+- Maka Fir'aun dengan bala tenteranya mengejar mereka, lalu mereka ditutup oleh laut yang menenggelamkan mereka. 
+- Dan Fir'aun telah menyesatkan kaumnya dan tidak memberi peetunjuk." { Thaha : 77 ~ 79 }
 
-60. Maka Fir'aun dan bala tenteranya dapat menyusuli mereka di waktu matahari terbit. 
+- Maka Fir'aun dan bala tenteranya dapat menyusuli mereka di waktu matahari terbit. 
 
-61. Maka setelah kedua golongan itu saling melihat, berkatalah pengikut-pengikut Musa: "Sesungguhnya kita benar-benar akan tersusul; sesungguhnya Tuhanku bersertaku, kelak Dia akan memberi petunjuk kepadaku. 
+- Maka setelah kedua golongan itu saling melihat, berkatalah pengikut-pengikut Musa: "Sesungguhnya kita benar-benar akan tersusul; sesungguhnya Tuhanku bersertaku, kelak Dia akan memberi petunjuk kepadaku. 
 
-63. Lalu Kami wahyukan kepada Musa: "Pukullah lautan itu dengan tongkatmu." Maka terbelahlah lautan itu dan tiap-tiap belahan itu adalah seperti golongan yang lain. 
+- Lalu Kami wahyukan kepada Musa: "Pukullah lautan itu dengan tongkatmu." Maka terbelahlah lautan itu dan tiap-tiap belahan itu adalah seperti golongan yang lain. 
 
-65. Dan Kami selamatkan Musa dan orang-orang yang bersertanya semuanya. 
+- Dan Kami selamatkan Musa dan orang-orang yang bersertanya semuanya. 
 
-66. Dan Kami tenggelamkan golongan yang lain itu. 
+- Dan Kami tenggelamkan golongan yang lain itu. 
 
-67. Sesungguhnya pada yang demikian itu benar-benar merupakan suatu tanda yang besar {mukjizat} dan kebanyakkan mereka tidak beriman. 
+- Sesungguhnya pada yang demikian itu benar-benar merupakan suatu tanda yang besar {mukjizat} dan kebanyakkan mereka tidak beriman. 
 
-68. Dan sesungguhnya Tuhanmu benar-benar Dialah Yang Mulia Perkasa lagi Maha Penyayang." { Asy-Syu'ara : 60 ~ 68 }
+- Dan sesungguhnya Tuhanmu benar-benar Dialah Yang Mulia Perkasa lagi Maha Penyayang." { Asy-Syu'ara : 60 ~ 68 }
 
-90. Dan Kami memungkinkan Bani Isra'il melintasi laut, lalu mereka diikiti oleh Fir'aun dan bala tenteranya, kerana hendak menganiaya dan menindas {mereka} hingga bila Fir'aun itu telah hampir tenggelam berkatalah dia: "Saya percaya bahawa tidak ada Tuhan melainkan Tuhan yang dipercayai oleh Bani Isra'il dan saya termasuk orang-orang yang berserah diri {kepada Allah}." 
+- Dan Kami memungkinkan Bani Isra'il melintasi laut, lalu mereka diikiti oleh Fir'aun dan bala tenteranya, kerana hendak menganiaya dan menindas {mereka} hingga bila Fir'aun itu telah hampir tenggelam berkatalah dia: "Saya percaya bahawa tidak ada Tuhan melainkan Tuhan yang dipercayai oleh Bani Isra'il dan saya termasuk orang-orang yang berserah diri {kepada Allah}." 
 
-91. Apakah sekarang {baru kamu percaya} padahal sesungguhnya kamu telah durhaka sejak dahulu dan kamu termasuk orang-orang yang berbuat kerosakkan. 
+- Apakah sekarang {baru kamu percaya} padahal sesungguhnya kamu telah durhaka sejak dahulu dan kamu termasuk orang-orang yang berbuat kerosakkan. 
 
-92. Maka pada hari ini Kami akan selamatkan badanmu supaya kamu dapat menjadi pengajaran bagi orang-orang yang datang sesudahmu dan sesungguhnya kebanyakkan dari manusia lengah dari tanda-tanda kekuasaan Kami." { Yunus : 90 ~ 92 }
+- Maka pada hari ini Kami akan selamatkan badanmu supaya kamu dapat menjadi pengajaran bagi orang-orang yang datang sesudahmu dan sesungguhnya kebanyakkan dari manusia lengah dari tanda-tanda kekuasaan Kami." { Yunus : 90 ~ 92 }
 
 
 ## Nabi Musa A.S. dan Bani Isra'il setelah keluar dari Mesir
@@ -542,15 +542,15 @@ Bani Isra'il pengikut Nabi Musa yang sangat manja itu, merasa masih belum cukup 
 Menurut tuntutan mereka yang aneh-aneh itu berkatalah Nabi Musa: "Mahukah kamu memperoleh sesuatu yang rendah nilai dan harganya sebagai pengganti dari apa yang lebih baik yang telah Allah kurniakan kepada kamu? Pergilah kamu ke suatu kota di mana pasti kamu akan dapat apa yang telah kamu inginkan dan kamu minta."
 Kisah cerita tersebut di atas dikisahkan oleh Al-Quran dalam surah "Al-A'raaf ayat 138 sehingga 140 dan 160 ; serta surah "Al-Baqarah" ayat 61 yang berbunyi sebagai berikut:~
 
-138. Dan Kami seberangkan Bani Isra'il ke seberang lautan itu, maka setelah mereka sampai kepada suatu kaum yang tetap menyembah berhala, mereka {Bani Isra'il} berkata: "Hai Musa, buatlah untuk kami sebuah tuhan {berhala} sebagaimana mereka mempunyai beberapa tuhan {berhala}". Musa menjawab: "Sesungguhnya kamu ini adalah kaum yang tidak mengetahui {sifat-sifat Tuhan}". 
+- Dan Kami seberangkan Bani Isra'il ke seberang lautan itu, maka setelah mereka sampai kepada suatu kaum yang tetap menyembah berhala, mereka {Bani Isra'il} berkata: "Hai Musa, buatlah untuk kami sebuah tuhan {berhala} sebagaimana mereka mempunyai beberapa tuhan {berhala}". Musa menjawab: "Sesungguhnya kamu ini adalah kaum yang tidak mengetahui {sifat-sifat Tuhan}". 
 
-139. Sesungguhnya mereka itu akan dihancurkan kepercayaan yang dianutnya dan akan batal yang selalu mereka kerjakan. 
+- Sesungguhnya mereka itu akan dihancurkan kepercayaan yang dianutnya dan akan batal yang selalu mereka kerjakan. 
 
-140. Musa berkata: "Patutkah aku mencari tuhan untuk kamu yang selain dari Allah, padahal Dialah yang telah melebihkan kamu atas segala umat". { Al-A'raaf : 138 ~ 140 }
+- Musa berkata: "Patutkah aku mencari tuhan untuk kamu yang selain dari Allah, padahal Dialah yang telah melebihkan kamu atas segala umat". { Al-A'raaf : 138 ~ 140 }
 
-160. Dan mereka Kami bagi menjadi dua belas suku yang masing-masingnya berjumlah besar dan Kami wahyukan kepada Musa ketika kaumnya meminta air kepadanya: "Pukullah batu itu dengan tongkatmu". Maka memancarlah daripadanya dua belas mata air. Sesungguhnya tiap-tiap suku mengetahui tempat minum masing-masing. Dan Kami naungkan Awan di atas mereka dan Kami turunkan kepada mereka manna dan salwa. {Kami berfirman}: "Makanlah baik-baik dari apa yang Kami telah rezekikan kepadamu." Mereka tidak menganiaya Kami, tetapi merekalah yang selalu menganiaya dirinya sendiri." { Al-A'raaf : 160 }
+- Dan mereka Kami bagi menjadi dua belas suku yang masing-masingnya berjumlah besar dan Kami wahyukan kepada Musa ketika kaumnya meminta air kepadanya: "Pukullah batu itu dengan tongkatmu". Maka memancarlah daripadanya dua belas mata air. Sesungguhnya tiap-tiap suku mengetahui tempat minum masing-masing. Dan Kami naungkan Awan di atas mereka dan Kami turunkan kepada mereka manna dan salwa. {Kami berfirman}: "Makanlah baik-baik dari apa yang Kami telah rezekikan kepadamu." Mereka tidak menganiaya Kami, tetapi merekalah yang selalu menganiaya dirinya sendiri." { Al-A'raaf : 160 }
 
-61. Dan ingatlah ketika kamu berkata: "Hai Musa, kami tidak boleh sabar {tahan} dengan satu macam makanan saja. Sebab itu mohonkanlah untuk kami kepada Tuhanmu, Agar Dia mengeluarkan bagi kami dari apa yang ditumbuhkan oleh bumi, yaitu sayur-mayurnya, ketimunnya, bawang putihnya, kacang adasnya dan bawah merahnya." Musa berkata: "Mahukah kamu mengambil sesuatu yang rendah sebagai pengganti yang lebih baik? Pergilah kamu ke suatu kota, pasti kamu memperolehi apa yang kamu minta." { Al-Baqarah : 61 }
+- Dan ingatlah ketika kamu berkata: "Hai Musa, kami tidak boleh sabar {tahan} dengan satu macam makanan saja. Sebab itu mohonkanlah untuk kami kepada Tuhanmu, Agar Dia mengeluarkan bagi kami dari apa yang ditumbuhkan oleh bumi, yaitu sayur-mayurnya, ketimunnya, bawang putihnya, kacang adasnya dan bawah merahnya." Musa berkata: "Mahukah kamu mengambil sesuatu yang rendah sebagai pengganti yang lebih baik? Pergilah kamu ke suatu kota, pasti kamu memperolehi apa yang kamu minta." { Al-Baqarah : 61 }
 
 
 ## Musa bermunajat dengan Allah
@@ -576,17 +576,17 @@ Dalam kesempatan bermunajat itu, Allah menerimakan kepada Nabi Musa kitab suci "
 Allah mengiring pemberian "Taurat" kepada Musa dengan firman-Nya: "Wahai Musa, sesungguhnya Aku telah memilih engkau lebih dari manusia-manusia yang lain di masamu, untuk membawa risalah-Ku dan menyampaikan kepada hamba-hamba-Ku. Aku telah memberikan kepadamu keistimewaan dengan dapat bercakap-cakap langsung dengan Aku, maka bersyukurlah atas segala kurnia-Ku kepadamu dan berpegang teguhlah pada apa yang Aku tuturkan kepadamu. Dalam kitab yang Aku berikan kepadamu terhimpun tuntunan dan pengajaran yang akan membawa Bani Isra'il ke jalan yang benar, ke jalan yang akan membawa kebahagiaan dunia dan akhirat bagi mereka. Anjurkanlah kaummu Bani Isra'il agar mematuhi perintah-perintah-Ku jika mereka tidak ingin Aku tempatkan mereka di tempat-tempat orang-orang yang fasiq."
 Bacalah tentang kisah munajat Nabi Musa ini, surah "Thaha" ayat 83 dan 84 dan surah "Al-a'raaf" ayat 142 sehingga ayat 145 sebagaimana berikut :~
 
-83. Mengapa kamu datang lebih cepat daripada kaummu, hai Musa?" 
+- Mengapa kamu datang lebih cepat daripada kaummu, hai Musa?" 
 
-84. Berkata Musa: "Itulah mereka sedang menyusuli aku dan aku bersegera kepadamu ya Tuhanku, agar supaya Engkau redha kepadaku." { Thaha : 83 ~ 84 }
+- Berkata Musa: "Itulah mereka sedang menyusuli aku dan aku bersegera kepadamu ya Tuhanku, agar supaya Engkau redha kepadaku." { Thaha : 83 ~ 84 }
 
-142. Dan Kami telah janjikan kepada Musa {memberikan Taurat} sesudah berlalu waktu tiga puluh malam dan Kami sempurnakan jumlah malam itu dengan sepuluh {malam lagi}, maka sempurnalah waktu yang telah ditentukan Tuhannya empat puluh malam. Dan berkata Musa kepada saudaranya, yaitu Harun: "Gantilah aku dalam {memimpin} kaumku dan perbaikilah dan janganlah kamu mengikuti jalan orang-orang yang membuat kerosakkan". 
+- Dan Kami telah janjikan kepada Musa {memberikan Taurat} sesudah berlalu waktu tiga puluh malam dan Kami sempurnakan jumlah malam itu dengan sepuluh {malam lagi}, maka sempurnalah waktu yang telah ditentukan Tuhannya empat puluh malam. Dan berkata Musa kepada saudaranya, yaitu Harun: "Gantilah aku dalam {memimpin} kaumku dan perbaikilah dan janganlah kamu mengikuti jalan orang-orang yang membuat kerosakkan". 
 
-143. Dan tatkala Musa datang untuk {munajat} dengan {Kami} pada waktu yang telah Kami tentukan dan Tuhan telah berfirman {langsung} kepadanya, berkatalah Musa: "Ya Tuhanku nampakkanlah {Zat Engkau} kepadaku agar aku dapat melihat kepada Engkau." Tuhan berfirman: "Kamu sesekali tidak sanggup melihat-Ku, tetapi melihatlah ke bukit itu, maka jika ia tetap di tempatnya {sebagai sediakala} nescaya kamu dapat melihat-Ku." Tatkala Tuhannya nampak bagi gunung itu, kejadian itu menjadikan gunung itu hancur luluh dan Musa pun jatuh pengsan. Maka setelah Musa sedar kembali, dia berkata: "Maha Suci Engkau, aku bertaubat kepada-Mu dan aku orang yang pertama beriman." 
+- Dan tatkala Musa datang untuk {munajat} dengan {Kami} pada waktu yang telah Kami tentukan dan Tuhan telah berfirman {langsung} kepadanya, berkatalah Musa: "Ya Tuhanku nampakkanlah {Zat Engkau} kepadaku agar aku dapat melihat kepada Engkau." Tuhan berfirman: "Kamu sesekali tidak sanggup melihat-Ku, tetapi melihatlah ke bukit itu, maka jika ia tetap di tempatnya {sebagai sediakala} nescaya kamu dapat melihat-Ku." Tatkala Tuhannya nampak bagi gunung itu, kejadian itu menjadikan gunung itu hancur luluh dan Musa pun jatuh pengsan. Maka setelah Musa sedar kembali, dia berkata: "Maha Suci Engkau, aku bertaubat kepada-Mu dan aku orang yang pertama beriman." 
 
-144. Allah berfirman: "Hai Musa sesungguhnya Aku memilih kamu lebih dari manusia yang lain {di masamu} untuk membawa risalah-Ku dan untuk berbicara langsung dengan-Ku sebab itu berpegang teguhlah kepada apa yang Aku berikan kepadamu dan hendaklah kamu termasuk orang-orang yang bersyukur." 
+- Allah berfirman: "Hai Musa sesungguhnya Aku memilih kamu lebih dari manusia yang lain {di masamu} untuk membawa risalah-Ku dan untuk berbicara langsung dengan-Ku sebab itu berpegang teguhlah kepada apa yang Aku berikan kepadamu dan hendaklah kamu termasuk orang-orang yang bersyukur." 
 
-145. Dan Kami telah tuliskan untuk Musa luluh {Taurat} segala sesuatu sebagai pengajaran bagi sesuatu. Maka Kami berfirman: "Berpeganglah kepadanya dengan teguh dan suruhlah kaummu berpegang kepada {perintah-perintahnya} yang sebaik-baiknya, nanti Aku akan memperlihatkan kepadamu negeri orang-orang yang fasiq." { Al-A'raaf: 142 ~ 145 }
+- Dan Kami telah tuliskan untuk Musa luluh {Taurat} segala sesuatu sebagai pengajaran bagi sesuatu. Maka Kami berfirman: "Berpeganglah kepadanya dengan teguh dan suruhlah kaummu berpegang kepada {perintah-perintahnya} yang sebaik-baiknya, nanti Aku akan memperlihatkan kepadamu negeri orang-orang yang fasiq." { Al-A'raaf: 142 ~ 145 }
 
 ## Bani Isra'il kembali menyembah patung anak lembu
 
@@ -633,47 +633,47 @@ Nabi Musa merasa sedih melihat nasib maut yang menimpa kelompok tujuh puluh oran
 Alah memperkenankan doa Musa dan permohonannya dengan dihidupkan kembali kelompok tujuh puluh orang itu, maka bangunlah mereka seakan-akan orang yang baru sedar dari pengsannya. Kemudian pada kesempatan itu Nabi Musa mengambil janji dari mereka bahawa mereka akan berpegangan teguh kepada kitab Taurat sebagai pedoman hidup mereka melaksanakan perinta-perintahnya dan menjauhi segala apa yang dilarangnya.
 Kisah cerita yang dihuraikan di atas, dikisahkan oleh Al-Quran dalam banyak tempat, di antaranya surah "Thaha" ayat 85 sehingga 98, surah "Al-A'raaf ayat 149, 151, 154, 155 dan surah "Al-Baqarah" ayat 55, 56, 63 dan 64 sebagai berikut:~
 
-85. Allah berfirman: "Maka sesungguuhnya Kami telah menguji kaummu sesudah kamu tinggalkan dan mereka telah disesatkan oleh Samiri." 
+- Allah berfirman: "Maka sesungguuhnya Kami telah menguji kaummu sesudah kamu tinggalkan dan mereka telah disesatkan oleh Samiri." 
 
-86. Kemudian Musa kembali kepada kaumnya, bukankah Tuhanmu telah menjanjikan kepadamu suatu janji yang baik? Maka apakah terasa lama masa yang berlalu itu bagimu atau kamu melanggar perjanjian dengan aku?" 
+- Kemudian Musa kembali kepada kaumnya, bukankah Tuhanmu telah menjanjikan kepadamu suatu janji yang baik? Maka apakah terasa lama masa yang berlalu itu bagimu atau kamu melanggar perjanjian dengan aku?" 
 
-87. Mereka berkata: "Kami sesekali tidak melanggar perjanjian kamu dengan kemahuan kami sendiri, tetapi kami disuruh membawa beban-beban dari perhiasan kaum itu, maka kami telah melemparkannya, dan demikian pula Samiri melemparkannya." 
+- Mereka berkata: "Kami sesekali tidak melanggar perjanjian kamu dengan kemahuan kami sendiri, tetapi kami disuruh membawa beban-beban dari perhiasan kaum itu, maka kami telah melemparkannya, dan demikian pula Samiri melemparkannya." 
 
-88. Kemudian Samiri mengeluarkan untuk mereka anak lembu yang bertubuh dan bersuara, maka mereka berkata: "Inilah tuhanmu dan tuhan Musa tetapi Musa telah lupa." 
+- Kemudian Samiri mengeluarkan untuk mereka anak lembu yang bertubuh dan bersuara, maka mereka berkata: "Inilah tuhanmu dan tuhan Musa tetapi Musa telah lupa." 
 
-89. Maka apakah mereka tidak memperhatikan bahawa patung anak lembu itu tidak dapat memberi jawapan kepada mereka dan tidak dapat memberi kemudharatan kepada mereka dan tidak pula kemanfaatan? 
+- Maka apakah mereka tidak memperhatikan bahawa patung anak lembu itu tidak dapat memberi jawapan kepada mereka dan tidak dapat memberi kemudharatan kepada mereka dan tidak pula kemanfaatan? 
 
-90. Dan sesungguhnya Harun telah berkata kepada mereka sebelumnya: " Hai kaumku, sesungguhnya kamu itu hanya diberi cubaan dengan anak lembu itu dan sesungguhnya Tuhanmu ialah Tuhan Yang Maha Pemurah maka ikutilah aku dan taatilah perintahku." 
+- Dan sesungguhnya Harun telah berkata kepada mereka sebelumnya: " Hai kaumku, sesungguhnya kamu itu hanya diberi cubaan dengan anak lembu itu dan sesungguhnya Tuhanmu ialah Tuhan Yang Maha Pemurah maka ikutilah aku dan taatilah perintahku." 
 
-91. Mereka menjawab: "Kami akan tetap menyembah patung anak lembu ini, hingga Musa kembali kepada kami." 
+- Mereka menjawab: "Kami akan tetap menyembah patung anak lembu ini, hingga Musa kembali kepada kami." 
 
-92. Berkata Musa: "Hai Harun, apa yang menghalangi kamu ketika kamu melihat mereka telah tersesat, 
+- Berkata Musa: "Hai Harun, apa yang menghalangi kamu ketika kamu melihat mereka telah tersesat, 
 
-93. {sehingga} kamu tidak mengikuti aku? Maka apakah kamu telah sengaja mendurhakai perintahku?" 
+- {sehingga} kamu tidak mengikuti aku? Maka apakah kamu telah sengaja mendurhakai perintahku?" 
 
-94. Harun menjawab: "Hai putera ibuku, janganlah kamu pegang jangutku dan jangan pula kepalaku; sesungguhnya aku khuatir bahawa kamu akan berkata {kepadaku}: " Kamu telah memecah antara Bani Isra'il dan kamu tidak memelihara amanatku." 
+- Harun menjawab: "Hai putera ibuku, janganlah kamu pegang jangutku dan jangan pula kepalaku; sesungguhnya aku khuatir bahawa kamu akan berkata {kepadaku}: " Kamu telah memecah antara Bani Isra'il dan kamu tidak memelihara amanatku." 
 
-95. Berkatalah Musa: "Apakah yang mendorongmu {berbuat demikian} hai Samiri?" 
+- Berkatalah Musa: "Apakah yang mendorongmu {berbuat demikian} hai Samiri?" 
 
-96. Samiri menjawab: "Aku mengetahui sesuatu yang mereka tidak mengetahuinya maka aku ambil segenggam dari jejak rasul, lalu aku melemparkannya dan demikianlah nafsuku membujukku." 
+- Samiri menjawab: "Aku mengetahui sesuatu yang mereka tidak mengetahuinya maka aku ambil segenggam dari jejak rasul, lalu aku melemparkannya dan demikianlah nafsuku membujukku." 
 
-97. berkata Musa: "Pergilah kamu, maka sesungguhnya bagi kamu di dalam kehidupan di dunia ini hanya dapat menyatakan : Janganlah membatasi {aku}." Dan sesungguuhnya bagimu hukuman {di akhirat} yang kami sesekali tidak dapat menghindarinya dan lihatlah tuhanmu itu yang kamu tetap menyembahnya. Sesungguhnya kami akan membakarnya kemudian kami sesungguhnya akan menghamburkannya ke dalam laut {berupa abu yang berserakan} 
+- Berkata Musa: "Pergilah kamu, maka sesungguhnya bagi kamu di dalam kehidupan di dunia ini hanya dapat menyatakan : Janganlah membatasi {aku}." Dan sesungguuhnya bagimu hukuman {di akhirat} yang kami sesekali tidak dapat menghindarinya dan lihatlah tuhanmu itu yang kamu tetap menyembahnya. Sesungguhnya kami akan membakarnya kemudian kami sesungguhnya akan menghamburkannya ke dalam laut {berupa abu yang berserakan} 
 
-98. Sesungguhnya Tuhanmu hanyalah Allah yang tidak ada Tuhan selain Dia. Pengetahuan-Nya meliputi segala sesuatu." { Thaha : 85 ~ 98 }
+- Sesungguhnya Tuhanmu hanyalah Allah yang tidak ada Tuhan selain Dia. Pengetahuan-Nya meliputi segala sesuatu." { Thaha : 85 ~ 98 }
 
-149. Dan setelah mereka sangat menyesali perbuatanya dari mengetahui bahawa mereka telah sesat, mereka pun berkata: "Sesungguhnya jika Tuhan kami tidak memberi rahmat kepada kami dan tidak mengampuni kami pastilah kami menjadi orang-orang yang rugi." { Al-A'raaf : 149 }
+- Dan setelah mereka sangat menyesali perbuatanya dari mengetahui bahawa mereka telah sesat, mereka pun berkata: "Sesungguhnya jika Tuhan kami tidak memberi rahmat kepada kami dan tidak mengampuni kami pastilah kami menjadi orang-orang yang rugi." { Al-A'raaf : 149 }
 
-151. Musa berdoa: "Ya Tuhanku ampunilah aku dan saudaraku dan masukkanlah kami ke dalam rahmat Engkau dan Engkau adalah Maha Penyayang di antara para Penyayang." { Al-A'raaf : 151 }
+- Musa berdoa: "Ya Tuhanku ampunilah aku dan saudaraku dan masukkanlah kami ke dalam rahmat Engkau dan Engkau adalah Maha Penyayang di antara para Penyayang." { Al-A'raaf : 151 }
 
-154. Sesudah amarah Musa menjadi reda, lalu diambilnya kembali luh-luh {Taurat} itu; dan dalam tulisannya terdapat petunjuk dan rahmat untuk orang-orang yang takut kepada Tuhannya. 
+- Sesudah amarah Musa menjadi reda, lalu diambilnya kembali luh-luh {Taurat} itu; dan dalam tulisannya terdapat petunjuk dan rahmat untuk orang-orang yang takut kepada Tuhannya. 
 
-155. Dan Musa memilih tujuh puluh orang dari kaumnya untuk {memohonkan taubat kepada Kami} pada waktu yang telah Kami tentukan. Maka ketika mereka digoncangkan dengan gempa bumi Musa berkata: "Ya Tuhanku! kalau Engkau kehendaki tentulah Engkau telah membinasakan mereka dan aku sebelum ini. Apakah Engkau akan membinasakan kami kerana perbuatan orang-orang yang kurang akal di antara kami? Itu hanyalah cubaan dari Engkau, Engkau sesatkan dengan cubaan itu siapa yang Engkau kehendaki dan Engkau beri petunjuk kepada siapa yang Engkau kehendaki. Engkaulah yang memimpin kami maka ampunilah kami dan berikanlah kepada kami rahmat dan Engkaulah Pemberi ampun sebaik-baiknya." { Al-A'raaf : 154 ~ 155 }
+- Dan Musa memilih tujuh puluh orang dari kaumnya untuk {memohonkan taubat kepada Kami} pada waktu yang telah Kami tentukan. Maka ketika mereka digoncangkan dengan gempa bumi Musa berkata: "Ya Tuhanku! kalau Engkau kehendaki tentulah Engkau telah membinasakan mereka dan aku sebelum ini. Apakah Engkau akan membinasakan kami kerana perbuatan orang-orang yang kurang akal di antara kami? Itu hanyalah cubaan dari Engkau, Engkau sesatkan dengan cubaan itu siapa yang Engkau kehendaki dan Engkau beri petunjuk kepada siapa yang Engkau kehendaki. Engkaulah yang memimpin kami maka ampunilah kami dan berikanlah kepada kami rahmat dan Engkaulah Pemberi ampun sebaik-baiknya." { Al-A'raaf : 154 ~ 155 }
 
-55. Dan {ingatlah} ketika kamu berkata: "Hai Musa, kami tidak akan beriman kepadamu, sebelum kami melihat Allah dengan terang kerana itu kamu disambar kilat, sedang kamu menyaksikannya" 
+- Dan {ingatlah} ketika kamu berkata: "Hai Musa, kami tidak akan beriman kepadamu, sebelum kami melihat Allah dengan terang kerana itu kamu disambar kilat, sedang kamu menyaksikannya" 
 
-56. Setelah itu Kami bangkitkan kamu sesudah kamu mati, supaya kamu bersyukur." { Al-Baqarah : 55 ~ 56 }
+- Setelah itu Kami bangkitkan kamu sesudah kamu mati, supaya kamu bersyukur." { Al-Baqarah : 55 ~ 56 }
 
-63. Dan {ingatlah} ketika Kami mengambil janji dari kamu dan Kami angkatkan gunung { Thur Sina } di atas {seraya Kami berfirman} : "Peganglah teguh-teguh apa yang Kami berikan kepadamu dan ingatlah selalu apa yang ada di dalamnya, agar kamu bertakwa. Kemudian kamu berpaling setelah {adanya perjanjian} itu, maka kalau tidak ada kurnia Allah dan rahmat-Nya atasmu, nescaya kamu tergolong orang yang rugi." { Al-Baqarah : 63 ~ 64 }
+- Dan {ingatlah} ketika Kami mengambil janji dari kamu dan Kami angkatkan gunung { Thur Sina } di atas {seraya Kami berfirman} : "Peganglah teguh-teguh apa yang Kami berikan kepadamu dan ingatlah selalu apa yang ada di dalamnya, agar kamu bertakwa. Kemudian kamu berpaling setelah {adanya perjanjian} itu, maka kalau tidak ada kurnia Allah dan rahmat-Nya atasmu, nescaya kamu tergolong orang yang rugi." { Al-Baqarah : 63 ~ 64 }
 
 
 ## Bani Isra'il mengembara tiada hala tuju
@@ -692,19 +692,19 @@ Dalam keadaan marah setelah mengetahui bahawa tiada seorang daripada kaumnya yan
 
 Sebagaimana hukuman bagi Bani Isra'il yang telah menolak perintah Allah memasuki Palestin, Allah mengharamkan negeri itu atas mereka selama empat puluh tahun dan selama itu mereka akan mengembara berkeliaran di atas bumi Allah tanpa mempunyai tempat mukim yang tetap. Mereka hidup dalam kekeliruan sampai musnahlah mereka semuanya dan datang menyusul generasi baru yang akan mewarisi negeri yang suci itu sebagaimana yang telah disanggupkan oleh Allah kepada Nabi Ibrahim a.s. Kisah cerita tersebut di atas dikisahkan oleh Al-Quran dalam surah "Al-Maidah ayat 20 sehingga ayat 26 sebagaimana berikut :
 
-20. Dan {ingatlah} ketika Musa berkata kepada kaumnya: "Hai kaumku, ingatlah nikmat Allah atasmu ketika Dia mengangkat nabi-nabi di antaramu, dan dijadikannya kamu orang-orang merdeka dan diberi-Nya kepada mu apa yang belum pernah diberi-Nya kepada seorang pun di antara umat-umat yang lain." 
+- Dan {ingatlah} ketika Musa berkata kepada kaumnya: "Hai kaumku, ingatlah nikmat Allah atasmu ketika Dia mengangkat nabi-nabi di antaramu, dan dijadikannya kamu orang-orang merdeka dan diberi-Nya kepada mu apa yang belum pernah diberi-Nya kepada seorang pun di antara umat-umat yang lain." 
 
-21. Hai kaumku, masuklah ke tanah suci {Palestin} yang telah ditentukan oleh Allah bagimu dan janganlah kamu lari kebelakang {kerana takut kepada musuh} maka kamu akan menjadi orang-orang yang rugi. 
+- Hai kaumku, masuklah ke tanah suci {Palestin} yang telah ditentukan oleh Allah bagimu dan janganlah kamu lari kebelakang {kerana takut kepada musuh} maka kamu akan menjadi orang-orang yang rugi. 
 
-22. Mereka berkata: "Hai Musa, sesungguhnya dalam negeri itu ada orang-orang yang gagah perkasa sesungguhnya kami tidak sesekali akan memasukinya sebelum mereka keluar daripadanya. Jika mereka keluar daripadanya, pasti kami akan memasukinya" 
+- Mereka berkata: "Hai Musa, sesungguhnya dalam negeri itu ada orang-orang yang gagah perkasa sesungguhnya kami tidak sesekali akan memasukinya sebelum mereka keluar daripadanya. Jika mereka keluar daripadanya, pasti kami akan memasukinya" 
 
-23. Berkatalah dua orang di antara orrg-orang yang takut {kepada Allah} yang Allah telah memberi nikmat atas keduanya: " Serbulah mereka melalui pintu gerbang {kota} itu, maka bila kamu memasukinya nescaya kamu akan menang. Dan hanya kepada Allah hendaklah kamu bertawakkal, jika kamu orang-orang yang beriman." 
+- Berkatalah dua orang di antara orrg-orang yang takut {kepada Allah} yang Allah telah memberi nikmat atas keduanya: " Serbulah mereka melalui pintu gerbang {kota} itu, maka bila kamu memasukinya nescaya kamu akan menang. Dan hanya kepada Allah hendaklah kamu bertawakkal, jika kamu orang-orang yang beriman." 
 
-24. Mereka berkata: "Hai Musa, kami sesekali tidak akan memasuki selama-lamanya selagi mereka ada di dalamnya kerana itu pergilah kamu bersama Tuhanmu dan berperanglah kamu berdua, sesungguhnya kami hanya duduk menanti disini saja." 
+- Mereka berkata: "Hai Musa, kami sesekali tidak akan memasuki selama-lamanya selagi mereka ada di dalamnya kerana itu pergilah kamu bersama Tuhanmu dan berperanglah kamu berdua, sesungguhnya kami hanya duduk menanti disini saja." 
 
-25. Berkata Musa: "Ya Tuhanku, aku tidak menguasai kecuali diriku sendiri dan saudaraku. Sebab itu pisahkanlah antara kami dengan orang-orang yang fasiq itu." 
+- Berkata Musa: "Ya Tuhanku, aku tidak menguasai kecuali diriku sendiri dan saudaraku. Sebab itu pisahkanlah antara kami dengan orang-orang yang fasiq itu." 
 
-26. Allah berfirman : {Jika demikian} maka sesungguhnya negeri itu diharamkan atas mereka selama empat puluh tahun {selama itu} mereka akan berpusing-pusing kekeliruan di bumi itu. Maka janganlah kamu bersedih hati {memikirkan nasib} orang-orang yang fasiq itu." { Al-Maidah : 20 ~ 26 }
+- Allah berfirman : {Jika demikian} maka sesungguhnya negeri itu diharamkan atas mereka selama empat puluh tahun {selama itu} mereka akan berpusing-pusing kekeliruan di bumi itu. Maka janganlah kamu bersedih hati {memikirkan nasib} orang-orang yang fasiq itu." { Al-Maidah : 20 ~ 26 }
 
 
 ## Kisah sapi Bani Isra'il
@@ -729,19 +729,19 @@ Demikianlah mukjizat Allah yang kesekian kalinya diperlihatkan kepada Bani Isra'
 
 Ayat-ayat Al-Quran yang mengisahkan cerita di atas, terdapat dalam surah "Al-Baqarah ayat 67 sehingga 73 sebagaimana tersebut di bawah ini :~
 
-67. Dan {ingatlah} ketika Musa berkata kepada kaumnya: "Sesungguhnya Allah menyuruh kamu menyembelih sapi betina." Mereka berkata: "Apakah kamu hendak menjadikan kami buah ejekan." Musa menjawab: "Aku berlindung kepada Allah daripada menjadi salah seorang dari orang-orang yang jahil." 
+- Dan {ingatlah} ketika Musa berkata kepada kaumnya: "Sesungguhnya Allah menyuruh kamu menyembelih sapi betina." Mereka berkata: "Apakah kamu hendak menjadikan kami buah ejekan." Musa menjawab: "Aku berlindung kepada Allah daripada menjadi salah seorang dari orang-orang yang jahil." 
 
-68. Mereka menjawab: "Mohonlah kepada Tuhanmu untuk kami, agar Dia menerangkan kepada kami sapi betina apakah itu? Musa menjawab: "Sesungguhnya Allah berfirman bahawa sapi betina itu adalah sapi betina yang tidak tua dan tidak muda pertengahan antara itu maka kerjakanlah apa yang telah diperintahkan kepadamu." 
+- Mereka menjawab: "Mohonlah kepada Tuhanmu untuk kami, agar Dia menerangkan kepada kami sapi betina apakah itu? Musa menjawab: "Sesungguhnya Allah berfirman bahawa sapi betina itu adalah sapi betina yang tidak tua dan tidak muda pertengahan antara itu maka kerjakanlah apa yang telah diperintahkan kepadamu." 
 
-69. Mereka berkata: "Mohonkanlah kepada Tuhanmu untuk kami agar Dia menerangkan kepada kami apakah warnanya. Musa menjawab: "Sesungguhnya Allah berfirman bahawa sapi betina itu adalah sapi betina yang kuning tua warnanya, lagi menyenangkan orang-orang yang memandangnya." 
+- Mereka berkata: "Mohonkanlah kepada Tuhanmu untuk kami agar Dia menerangkan kepada kami apakah warnanya. Musa menjawab: "Sesungguhnya Allah berfirman bahawa sapi betina itu adalah sapi betina yang kuning tua warnanya, lagi menyenangkan orang-orang yang memandangnya." 
 
-70. Mereka berkata: "Mohonkanlah kepada Tuhanmu untuk kami agar Dia menerangkan kepada kami bagaimana hakikat sapi betina itu, kerana sesungguhnya sapi itu {masih} samar bagi kami dan sesungguhnya kami insya-Allah akan dapat petunjuk." 
+- Mereka berkata: "Mohonkanlah kepada Tuhanmu untuk kami agar Dia menerangkan kepada kami bagaimana hakikat sapi betina itu, kerana sesungguhnya sapi itu {masih} samar bagi kami dan sesungguhnya kami insya-Allah akan dapat petunjuk." 
 
-71. Musa berkata: "Sesungguhnya Allah berfirman bahawa sapi betina adalah sapi betina yang belum pernah dipakai untuk membajak tanah dan tidak pula untuk mengairi tanaman, tidak cacat, tidak ada belangnya." Mereka berkata: "Sekarang barulah kamu menerangkan hakikat sapi betina yang sebenar." Kemudian mereka menyembelihnya dan hampir saja mereka tidak melaksanakan perintah itu. 
+- Musa berkata: "Sesungguhnya Allah berfirman bahawa sapi betina adalah sapi betina yang belum pernah dipakai untuk membajak tanah dan tidak pula untuk mengairi tanaman, tidak cacat, tidak ada belangnya." Mereka berkata: "Sekarang barulah kamu menerangkan hakikat sapi betina yang sebenar." Kemudian mereka menyembelihnya dan hampir saja mereka tidak melaksanakan perintah itu. 
 
-72. Dan {ingatlah} ketika kamu membunuh seorang manusia lalu kamu saling tuduh menuduh tentang itu. Dan Allah hendak menyingkapkan apa yang selama ini kamu sembunyikan. 
+- Dan {ingatlah} ketika kamu membunuh seorang manusia lalu kamu saling tuduh menuduh tentang itu. Dan Allah hendak menyingkapkan apa yang selama ini kamu sembunyikan. 
 
-73. Lalu Kami berfirman: "Pukullah mayat itu dengan sebahagian anggota sapi betina itu." Demikianlah Allah menghidupkan kembali orang-orang yang telah mati dan memperlihatkan padamu tanda-tanda kekuasaan-Nya agar kamu mengerti." { Al-Baqarah : 67 ~ 73 }
+- Lalu Kami berfirman: "Pukullah mayat itu dengan sebahagian anggota sapi betina itu." Demikianlah Allah menghidupkan kembali orang-orang yang telah mati dan memperlihatkan padamu tanda-tanda kekuasaan-Nya agar kamu mengerti." { Al-Baqarah : 67 ~ 73 }
 
 ## Nabi Musa A.S. dan Nabi Khidir
 
@@ -808,51 +808,51 @@ Dan seteusnya adalah berkenaan dinding rumah yang aku perbaiki dan aku tegakkan 
 
 Kisah Musa dan Al-Khidir ini dapat dibaca dalam surah "Al-Kahfi" ayat 60 sehingga ayat 82 yang bermaksud:~
 
-60. Dan {ingatlah} ketika Musa berkata kepada muridnya: "Aku tidak akan berhenti berjalan sebelum sampai ke pertemuan dua buah lautan atau aku akan berjalan sampai bertahun-tahun." 
+- Dan {ingatlah} ketika Musa berkata kepada muridnya: "Aku tidak akan berhenti berjalan sebelum sampai ke pertemuan dua buah lautan atau aku akan berjalan sampai bertahun-tahun." 
 
-61. Maka tatkala mereka sampai ke pertemuan dua laut itu, mereka lalai akan ikannya, lalu ikan itu melompat mengambil jalannya ke laut itu. 
+- Maka tatkala mereka sampai ke pertemuan dua laut itu, mereka lalai akan ikannya, lalu ikan itu melompat mengambil jalannya ke laut itu. 
 
-62. Maka tatkala mereka berjalan lebih jauh berkatalah Musa kepada muridnya: "Bawalah kemari makanan kita sesungguhnya kita telah merasa letih kerana perjalanan kita ini." 
+- Maka tatkala mereka berjalan lebih jauh berkatalah Musa kepada muridnya: "Bawalah kemari makanan kita sesungguhnya kita telah merasa letih kerana perjalanan kita ini." 
 
-63. Muridnya menjawab: "Tahukah kamu tatkala kita mencari tempat berlindung di batu tadi, maka sesungguhnya aku lupa menceritakan tentang ikan itu dan tidaklah yang melupakan aku untuk menceritakannya kecuali syaitan dan ikan itu mengambil jalannya ke laut dengan cara yang aneh sekali." 
+- Muridnya menjawab: "Tahukah kamu tatkala kita mencari tempat berlindung di batu tadi, maka sesungguhnya aku lupa menceritakan tentang ikan itu dan tidaklah yang melupakan aku untuk menceritakannya kecuali syaitan dan ikan itu mengambil jalannya ke laut dengan cara yang aneh sekali." 
 
-64. Musa berkata: "Itulah tempat yang kita cari." Lalu keduanya kembali, mengikuti jejak mereka sendiri. 
+- Musa berkata: "Itulah tempat yang kita cari." Lalu keduanya kembali, mengikuti jejak mereka sendiri. 
 
-65. Lalu mereka bertemu dengan seorang hamba di antara hamba-hamba Kami, yang telah Kami berikan kepadanya rahmat dari sisi Kami dan yang telah Kami ajarkan kepadanya ilmu dari sisi Kami. 
+- Lalu mereka bertemu dengan seorang hamba di antara hamba-hamba Kami, yang telah Kami berikan kepadanya rahmat dari sisi Kami dan yang telah Kami ajarkan kepadanya ilmu dari sisi Kami. 
 
-66. Musa berkata Al-Khidhir: "Bolehkah aku mengikutimu supaya kamu mengajarkan kepadaku ilmu yang benar di antara ilmu-ilmu yang telah diajarkan kepadamu?" 
+- Musa berkata Al-Khidhir: "Bolehkah aku mengikutimu supaya kamu mengajarkan kepadaku ilmu yang benar di antara ilmu-ilmu yang telah diajarkan kepadamu?" 
 
-67. Dia menjawab: "Sesungguhnya kamu sesekali kamu tidak akan sanggup sabar bersamaku, 
+- Dia menjawab: "Sesungguhnya kamu sesekali kamu tidak akan sanggup sabar bersamaku, 
 
-68. Dan bagaimana kamu dapat sabar atas sesuatu, yang kamu belum mempunyai pengetahuan yang cukup tentang hal itu?" 
+- Dan bagaimana kamu dapat sabar atas sesuatu, yang kamu belum mempunyai pengetahuan yang cukup tentang hal itu?" 
 
-69. Musa berkata: "Insya-Allah kamu akan mendapati aku sebagai seorang yang sabar dan aku tidak akan menentangmu dalam sesuatu urusan pun." 
+- Musa berkata: "Insya-Allah kamu akan mendapati aku sebagai seorang yang sabar dan aku tidak akan menentangmu dalam sesuatu urusan pun." 
 
-70. Dia berkata: "Jika kamu mengikutiku, maka janganlah kamu menanyakan kepadaku tentang sesuatu apa pun, sampai aku sendiri menerangkannya kepadamu." 
+- Dia berkata: "Jika kamu mengikutiku, maka janganlah kamu menanyakan kepadaku tentang sesuatu apa pun, sampai aku sendiri menerangkannya kepadamu." 
 
-71. Maka berjalanlah keduanya, hingga keduanya menaiki perahu, lalu Al-Khidhir melubanginya. Musa berkata: "Mengapa kamu melubangi perahu itu yang akibatnya kamu menenggelamkan penumpamgnya?" Sesungguhnya kamu telah berbuat sesuatu kesalahan yang besar. 
+- Maka berjalanlah keduanya, hingga keduanya menaiki perahu, lalu Al-Khidhir melubanginya. Musa berkata: "Mengapa kamu melubangi perahu itu yang akibatnya kamu menenggelamkan penumpamgnya?" Sesungguhnya kamu telah berbuat sesuatu kesalahan yang besar. 
 
-72. Dia {Al-Khidhir} berkata: "Bukankah aku telah katakan: "Sesungguhnya kamu sesekali tidak akan sabar bersama dengan aku." 
+- Dia {Al-Khidhir} berkata: "Bukankah aku telah katakan: "Sesungguhnya kamu sesekali tidak akan sabar bersama dengan aku." 
 
-73. Musa berkata: "Janganlah kamu menghukum aku kerana kelupaanku dan janganlah kamu membebani aku dengan sesuatu kesulitan dalam urusanku," 
+- Musa berkata: "Janganlah kamu menghukum aku kerana kelupaanku dan janganlah kamu membebani aku dengan sesuatu kesulitan dalam urusanku," 
 
-74. Maka berjalanlah keduanya hingga tatkala keduanya berjumpa dengan seorang pemuda maka Al-Khidhir membunuhnya. Musa berkat: "Mengapa kamu bunuh jiwa yang bersih, bukan kerana dia membunuh orang lain? Sesungguhnya kamu telah melakukan sesuatu yang mungkar." 
+- Maka berjalanlah keduanya hingga tatkala keduanya berjumpa dengan seorang pemuda maka Al-Khidhir membunuhnya. Musa berkat: "Mengapa kamu bunuh jiwa yang bersih, bukan kerana dia membunuh orang lain? Sesungguhnya kamu telah melakukan sesuatu yang mungkar." 
 
-75. Al-Khidhir berkata: "Bukankah sudah kukatakan kepadamu bahawa sesungguhnya kamu tidak akan dapat sabar bersamaku?" 
+- Al-Khidhir berkata: "Bukankah sudah kukatakan kepadamu bahawa sesungguhnya kamu tidak akan dapat sabar bersamaku?" 
 
-76. Musa berkata: "Jika aku bertanya kepadamu tentang sesuatu sesudah {kali ini} maka janganlah kamu memperbolehkan aku menyertaimu, sesungguhnya kamu sudah cukup memberikan uzur padaku." 
+- Musa berkata: "Jika aku bertanya kepadamu tentang sesuatu sesudah {kali ini} maka janganlah kamu memperbolehkan aku menyertaimu, sesungguhnya kamu sudah cukup memberikan uzur padaku." 
 
-77. Maka keduanya berjalan hingga tatkala keduanya sampai kepada penduduk negeri itu tetapi penduduk negeri itu tidak mahu menjamu mereka kemudian keduanya dapati dalam negeri itu ada dinding rumah yang hampir roboh, maka Al-Khidhir menegakkan dinding itu. Musa berkata: "Jikalau kamu mahu nescaya kamu akan mengambil upah untuk itu." 
+- Maka keduanya berjalan hingga tatkala keduanya sampai kepada penduduk negeri itu tetapi penduduk negeri itu tidak mahu menjamu mereka kemudian keduanya dapati dalam negeri itu ada dinding rumah yang hampir roboh, maka Al-Khidhir menegakkan dinding itu. Musa berkata: "Jikalau kamu mahu nescaya kamu akan mengambil upah untuk itu." 
 
-78. Al-Khidhir berkata: "Inilah perpisahan antara aku dengan kamu kelak akan ku beritahukan kepadamu tujuan perbuatan-perbuatan yang kamu tidak dapat sabar terhadapnya. 
+- Al-Khidhir berkata: "Inilah perpisahan antara aku dengan kamu kelak akan ku beritahukan kepadamu tujuan perbuatan-perbuatan yang kamu tidak dapat sabar terhadapnya. 
 
-79. Adapun bahtera itu adalah kepunyaan orang-orang miskin yang bekerja di laut dan aku bertujuan merosakkan bahtera itu kerana di hadapan mereka ada seorang raja yang merampas tiap-tiap bahtera. 
+- Adapun bahtera itu adalah kepunyaan orang-orang miskin yang bekerja di laut dan aku bertujuan merosakkan bahtera itu kerana di hadapan mereka ada seorang raja yang merampas tiap-tiap bahtera. 
 
-80. Dan ada pun anak muda itu maka kedua orang tuanya adalah orang-orang mukmin dan kami khuatir dia akan mendorong kedua orang tuanya itu kepada kesesatan dan kekafiran. 
+- Dan ada pun anak muda itu maka kedua orang tuanya adalah orang-orang mukmin dan kami khuatir dia akan mendorong kedua orang tuanya itu kepada kesesatan dan kekafiran. 
 
-81. Dan kami menghendaki supaya Tuhan mereka mengganti bagi mereka dengan anak lain yang lebih baik kesuciannya dari anaknya itu dan lebih dalam kasih sayangnya {kepada ibubapanya}. 
+- Dan kami menghendaki supaya Tuhan mereka mengganti bagi mereka dengan anak lain yang lebih baik kesuciannya dari anaknya itu dan lebih dalam kasih sayangnya {kepada ibubapanya}. 
 
-82. Adapun dinding rumah itu kepunyaan dua orang anak muda yang yatim di kota itu sedang ayahnya adalah seorang yang soleh, maka Tuhanmu menghendaki agar supaya mereka sampai kepada kedewasaannya dan mengeluarkan simpanannya itu, sebagai rahmat dari Tuhanmu dan bukanlah aku melakukannnya itu menurut kemahuanku sendiri. Demikianlah itu adlah tujuan perbuatan-perbuatan yang kamu tidak dapat sabar terhadapnya." { Al-Kahfi : 60 ~ 82 }
+- Adapun dinding rumah itu kepunyaan dua orang anak muda yang yatim di kota itu sedang ayahnya adalah seorang yang soleh, maka Tuhanmu menghendaki agar supaya mereka sampai kepada kedewasaannya dan mengeluarkan simpanannya itu, sebagai rahmat dari Tuhanmu dan bukanlah aku melakukannnya itu menurut kemahuanku sendiri. Demikianlah itu adlah tujuan perbuatan-perbuatan yang kamu tidak dapat sabar terhadapnya." { Al-Kahfi : 60 ~ 82 }
 
 ## Nabi Musa A.S. dan Qarun si kaya raya
 
@@ -886,19 +886,19 @@ Peristiwa yang menimpa Qarun dan harta kekayaannya itu menjadi ibrah bagi pengik
 
 Isi cerita tersebut di atas dapat dibaca dalam surah "Qashash" ayat 76 sehingga 82 dan surah "Al-Ahzaab" ayat 69 sebagaimana berikut:~
 
-76. Sesungguhnya Qarun adalah termasuk kaum Musa maka ia berlaku aniaya terhadap mereka dan Kami telah menganugerahkan kepadanya perbendaharaan harta yang kuncinya sungguh berat dipikul oleh sejumlah orang yang kuat-kuat. {Ingatlah{ ketika kaumnya berkata kepadanya: "Janganlah kamu terlalu bangga sesungguhnya Allah tidak menyukai orang-orang yang terlalu membanggakan diri." 
+- Sesungguhnya Qarun adalah termasuk kaum Musa maka ia berlaku aniaya terhadap mereka dan Kami telah menganugerahkan kepadanya perbendaharaan harta yang kuncinya sungguh berat dipikul oleh sejumlah orang yang kuat-kuat. {Ingatlah{ ketika kaumnya berkata kepadanya: "Janganlah kamu terlalu bangga sesungguhnya Allah tidak menyukai orang-orang yang terlalu membanggakan diri." 
 
-77. Dan carilah pada apa yang telah dianugerahkan kepadamu {kebahagiaan} negeri akhirat, dan janganlah kamu melupakan bahagianmu dari {kenikmatan} duniawi dan berbuat baiklah {kepada orang lain} sebagaimana Allah telah berbuat baik kepadamu dan janganlah kamu berbuat kerosakkan di {muka} bumi ini. Sesungguhnya Allah tidak menyukai orang-orang yang berbuat kerosakkan. 
+- Dan carilah pada apa yang telah dianugerahkan kepadamu {kebahagiaan} negeri akhirat, dan janganlah kamu melupakan bahagianmu dari {kenikmatan} duniawi dan berbuat baiklah {kepada orang lain} sebagaimana Allah telah berbuat baik kepadamu dan janganlah kamu berbuat kerosakkan di {muka} bumi ini. Sesungguhnya Allah tidak menyukai orang-orang yang berbuat kerosakkan. 
 
-78. Qarun berkata: "Sesungguhnya aku diberi harta itu kerana ilmu yang ada padaku." Dan apakah ia tidak mengetahui bahwasannya Allah sungguh telah membinasakan umat-umat sebelumnya yang lebih kuat daripadanya dan lebih banyak mengumpulkan harta? Dan tidaklah perlu ditanya kepada orang-orang yang berdosa itu tentang dosa-dosa mereka. 
+- Qarun berkata: "Sesungguhnya aku diberi harta itu kerana ilmu yang ada padaku." Dan apakah ia tidak mengetahui bahwasannya Allah sungguh telah membinasakan umat-umat sebelumnya yang lebih kuat daripadanya dan lebih banyak mengumpulkan harta? Dan tidaklah perlu ditanya kepada orang-orang yang berdosa itu tentang dosa-dosa mereka. 
 
-79. Maka keluarlah Qarun kepada kaumnya dengan kemegahannya. Berkatalah orang-orang yang menghendaki kehidupan dunia: " Moga-moga kiranya kita mempunyai seperti apa yang telah diberikan kepada Qarun, sesungguhnya ia benar-benar mempunyai keuuntungan yang besar." 
+- Maka keluarlah Qarun kepada kaumnya dengan kemegahannya. Berkatalah orang-orang yang menghendaki kehidupan dunia: " Moga-moga kiranya kita mempunyai seperti apa yang telah diberikan kepada Qarun, sesungguhnya ia benar-benar mempunyai keuuntungan yang besar." 
 
-80. Berkatalah orang-orang yang telah dianugerahi ilmu: "Kecelakaan yang besarlah bagimu, pahala Allah adalah lebih baik bagi orang-orang yang beriman dan beramal soleh dan tidak diperoleh pahala itu kecuali oleh orang-orang yang sabar." 
+- Berkatalah orang-orang yang telah dianugerahi ilmu: "Kecelakaan yang besarlah bagimu, pahala Allah adalah lebih baik bagi orang-orang yang beriman dan beramal soleh dan tidak diperoleh pahala itu kecuali oleh orang-orang yang sabar." 
 
-81. Maka Kami benamkan Qarun berserta rumahnya ke dalam bumi. Maka tidak ada baginya suatu golongan pun yang menolongnya terhadap azab Allah. Dan tiadalah ia termasuk orang-orang {yang dapat} membela {dirinya}. 
+- Maka Kami benamkan Qarun berserta rumahnya ke dalam bumi. Maka tidak ada baginya suatu golongan pun yang menolongnya terhadap azab Allah. Dan tiadalah ia termasuk orang-orang {yang dapat} membela {dirinya}. 
 
-82. Dan jadilah orang-orang yang kelmarin mencita-citakan kedudukan Qarun itu berkata: "aduhai, benarlah Allah melapangkan rezeki bagi siapa yang dia kehendaki dari hamba-hamba-Nya dan menyempitkannya. Kalau Allah tidak melimpahkan kurnia-Nya atas kita benar-benar Dia {Allah} telah membenamkan kita {pula}. Aduhai benarlah, tidak beruntung orang-orang yang mengingkari {nikmat} Allah." { Al-Qashash : 76 ~ 82 }
+- Dan jadilah orang-orang yang kelmarin mencita-citakan kedudukan Qarun itu berkata: "aduhai, benarlah Allah melapangkan rezeki bagi siapa yang dia kehendaki dari hamba-hamba-Nya dan menyempitkannya. Kalau Allah tidak melimpahkan kurnia-Nya atas kita benar-benar Dia {Allah} telah membenamkan kita {pula}. Aduhai benarlah, tidak beruntung orang-orang yang mengingkari {nikmat} Allah." { Al-Qashash : 76 ~ 82 }
 
 "Hai orang-orang yang beriman, janganlah kamu menjadi seperti orang-orang yang menyakiti Musa maka Allah membersihkannya dari tuduhan-tuduhan yang mereka katakan. Dan adalah dia seorang yang mempunyai kedudukan terhormat di sisi Allah." { Al-Ahzaab : 69 }
 
