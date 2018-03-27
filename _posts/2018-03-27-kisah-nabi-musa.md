@@ -47,16 +47,25 @@ Anjuran kakak Musa diterima oleh isteri Fir'aun dan seketika itu jugalah dijempu
 Setelah selesai masa menyusunya, dikembalikan Musa oleh ibunya ke istana, di mana ia di asuh, dibesar dan dididik sebagaimana anak-anak raja yang lain. Ia membawa kenderaan Fir'aun dan berpakaian sesuai dengan cara-cara Fir'aun berpakaian sehingga ia dikenal orang sebagai Musa bin Fir'aun.
 Bacalah tentang isi cerita di atas di dalam Al-Quran dari ayat 4 - 13 dalam surah "Al-Qashash" sebagai berikut:
 
-"4.~ Sesungguhnya Fir'aun telah berbuat sewenang-wenang di muka bumi dan menjadikan penduduknya berpecah belah dengan menindas segolongan dari mereka, menyembelih anak lelaki mereka dan membiarkan hidup anak-anak perempuan mereka. Sesungguhnya Fir'aun termasuk orang-orang yang berbuat kerosakan.
-5.~ Dan Kami hendak memberi kurnia kepada orang-orang yang tertindas di bumi {Mesir} itu dan hendak menjadi mereka pemimpin dan menjadikan mereka orang-orang yang mewarisi {bumi}.
-6.~ Dan Kami akan teguhkan kedudukan mereka di muka bumi dan akan Kami perlihatkan kepada Fir'aun dan Haman berserta tenteranya apa yang selalu mereka khuatirkan dari mereka itu.
-7.~ Dan Kami ilhamkan kepada ibu Musa, "susukanlah dia, dan apabila kamu khuatir terhadapnya, maka jatuhkan dia ke dalam sungai {Nil}. Dan janganlah kamu khuatir dan janganlah pula bersedih hati, kerana sesungguhnya Kami akan mengembalikannya kepadamu, dan menjadikannya {salah seorang} dari para rasul.
-8.~ Maka pungutlah ia oleh keluarga Fir'aun yang akibatnya ia menjadi musuh dan kesedihan bagi mereka. Sesungguhnya Fir'aun dan Haman berserta tenteranya adalah orang-orang yang bersalah.
-9.~ Dan berkatalah isteri Fir'aun: "Ia {Musa} biji mata bagiku dan bagimu. Janganlah kamu membunuhnya, mudah-mudahan ia bermanfaat kepada kita atau kita ambil ia menjadi anak," sedang mereka tiada menyedari.
-10.~ Dan menjadi kekosongan hatei ibu Musa, seandainya Kami tidak teguhkan hatinya, supaya ia termasuk orang-orang yang percaya {kepada janji Allah}.
-11.~ Dan berkatalah ibu Musa kepada saudara Musa yang perempuan: "Ikutilah dia". Maka kelihatan olehnya Musa dari jauh, sedang mereka tidak mengetahuinya.
-12.~ Dan Kami cegah Musa dari menyusu kepada perempuan-perempuan yang mahu menyusukannya sebelum itu, maka berkatalah saudara Musa: "Mahukah kamu aku tunjukkan kepada kamu ahlul-bait yang akan memeliharakannya untukmu dan mereka dapat berlaku baik kepadanya?"
-13.~ Maka Kami kembalikan Musa kepada ibunya supaya senang hatinya dan tidak berduka cita dan supaya ia mengetahui bahawa janji Allah itu adalah benar, tetapi manusia kebanyakan tidak mengetahuinya." { Al-Qashash : 4 ~ 13 }
+4. Sesungguhnya Fir'aun telah berbuat sewenang-wenang di muka bumi dan menjadikan penduduknya berpecah belah dengan menindas segolongan dari mereka, menyembelih anak lelaki mereka dan membiarkan hidup anak-anak perempuan mereka. Sesungguhnya Fir'aun termasuk orang-orang yang berbuat kerosakan.
+
+5. Dan Kami hendak memberi kurnia kepada orang-orang yang tertindas di bumi {Mesir} itu dan hendak menjadi mereka pemimpin dan menjadikan mereka orang-orang yang mewarisi {bumi}.
+
+6. Dan Kami akan teguhkan kedudukan mereka di muka bumi dan akan Kami perlihatkan kepada Fir'aun dan Haman berserta tenteranya apa yang selalu mereka khuatirkan dari mereka itu.
+
+7. Dan Kami ilhamkan kepada ibu Musa, "susukanlah dia, dan apabila kamu khuatir terhadapnya, maka jatuhkan dia ke dalam sungai {Nil}. Dan janganlah kamu khuatir dan janganlah pula bersedih hati, kerana sesungguhnya Kami akan mengembalikannya kepadamu, dan menjadikannya {salah seorang} dari para rasul.
+
+8. Maka pungutlah ia oleh keluarga Fir'aun yang akibatnya ia menjadi musuh dan kesedihan bagi mereka. Sesungguhnya Fir'aun dan Haman berserta tenteranya adalah orang-orang yang bersalah.
+
+9. Dan berkatalah isteri Fir'aun: "Ia {Musa} biji mata bagiku dan bagimu. Janganlah kamu membunuhnya, mudah-mudahan ia bermanfaat kepada kita atau kita ambil ia menjadi anak," sedang mereka tiada menyedari.
+
+10. Dan menjadi kekosongan hatei ibu Musa, seandainya Kami tidak teguhkan hatinya, supaya ia termasuk orang-orang yang percaya {kepada janji Allah}.
+
+11. Dan berkatalah ibu Musa kepada saudara Musa yang perempuan: "Ikutilah dia". Maka kelihatan olehnya Musa dari jauh, sedang mereka tidak mengetahuinya.
+
+12. Dan Kami cegah Musa dari menyusu kepada perempuan-perempuan yang mahu menyusukannya sebelum itu, maka berkatalah saudara Musa: "Mahukah kamu aku tunjukkan kepada kamu ahlul-bait yang akan memeliharakannya untukmu dan mereka dapat berlaku baik kepadanya?"
+
+13. Maka Kami kembalikan Musa kepada ibunya supaya senang hatinya dan tidak berduka cita dan supaya ia mengetahui bahawa janji Allah itu adalah benar, tetapi manusia kebanyakan tidak mengetahuinya." { Al-Qashash : 4 ~ 13 }
 
 
 ## Musa keluar dari Mesir
