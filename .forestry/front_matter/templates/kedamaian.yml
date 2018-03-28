@@ -1,6 +1,6 @@
 ---
 pages:
 - _posts/wirid-selepas-solat-magrib-subuh.md
-hide_body: false
+hide_body: true
 fields:
 - type: textarea
