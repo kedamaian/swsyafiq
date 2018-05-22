@@ -1,7 +1,6 @@
 ---
 layout: post
 title: Makam Wali Allah di Pulau Besar Melaka
-date: '2018-05-30 02:35:17 +0000'
 published: true
 categories:
   - Tazkirah
