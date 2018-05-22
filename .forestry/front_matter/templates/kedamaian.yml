@@ -1,8 +1,8 @@
 ---
-pages:
-- _posts/2018-05-05-wirid-selepas-solat-maghrib-subuh.md
-- _posts/makam-wali-allah-di-pulau-besar-melaka.md
 hide_body: false
 is_partial: false
 fields:
 - type: textarea
+pages:
+- _posts/2018-05-22-makam-wali-allah-di-pulau-besar-melaka.md
+- _posts/2018-05-05-wirid-selepas-solat-maghrib-subuh.md
