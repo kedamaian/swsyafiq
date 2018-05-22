@@ -1,6 +1,6 @@
 ---
 title: Makam Wali Allah di Pulau Besar Melaka
-date: 2018-03-30 02:35:17 +0000
+date: 2018-05-30 02:35:17 +0000
 undefined: ''
 ---
 ![](/uploads/2018/03/30/WALI-768x384.jpg)
