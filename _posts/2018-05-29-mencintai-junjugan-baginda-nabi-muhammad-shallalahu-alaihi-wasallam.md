@@ -5,7 +5,7 @@ categories:
   - Tazkirah
   - Mutiara Hikmah
 author: tehnoblequran
-title: Mencintai Junjugan Baginda Nabi Muhammad Shallalahu Alaihi Wasallam
+title: Mencintai Junjungan Baginda Nabi Muhammad Shallalahu Alaihi Wasallam
 ---
 FI Rihab al-Mustafa ﷺ
 
