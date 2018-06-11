@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 categories:
   - Tazkirah
   - Ilmu dan Amalan
