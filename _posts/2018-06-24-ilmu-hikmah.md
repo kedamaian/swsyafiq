@@ -2,6 +2,7 @@
 layout: post
 published: true
 categories:
+  - Keilmuan
   - Tazkirah
 author: tehnoblequran
 title: Ilmu hikmah
