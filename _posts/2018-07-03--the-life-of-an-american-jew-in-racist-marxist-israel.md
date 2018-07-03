@@ -318,6 +318,7 @@ Jews - they are artificial Jews. Being artificial
 Jews, they have no biblical right to Palestine,
 now wrongfully called Israel. 
 
-
+Communism is Judaism
+What all people must realize is that Communism is Judaism.  No Jews – no Communism
 
 Jack Bernstein
