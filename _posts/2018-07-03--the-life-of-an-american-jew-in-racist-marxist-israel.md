@@ -166,14 +166,16 @@ One Israeli religious Jew said it well, “At one time we Jews were chosen by Go
  
 Anyone who has read the Bible with an open mind knows that God gave Jews of that time special favors. But, it was in the form of covenants. In these covenants were conditions — the conditions were that God demanded the Jews obey His Word. Time after time the Jews broke the covenants. They rejected God and turned to adoring mammon. It doesn’t take a biblical scholar to realize that long ago even the real Jews lost the right of being God’s chosen people.
  
-In comparing the degree to which the followers of the 3 major religions practice their beliefs, I make this observation:
+In comparing the degree to which the followers of the **3 major religions practice their beliefs**, I make this observation:
  
-Judaism—Few Jews, Sephardic or Ashkenazi, are religious. This is true in America, in Israel and world-wide.
+**Judaism**—Few Jews, **Sephardic** or **Ashkenazi**, are religious. This is true in America, in Israel and world-wide.
  
 Christianity—The Christians’ religion has felt the influence of Jewish meddling and infiltration (especially in America) resulting in confusion and bickering between the various Christian denominations. This has led to a ‘lukewarm’ attitude among most Christians toward their religion. There is evidence to prove that Jews, or one of their many fronts, have started many of the Christian denominations and thus dominate doctrine. 
  
 Islam—Moslems, who follow the teachings of Islam, are by far the most fervent of the 3 major religions in following their religious beliefs.
+
 The Judeo-Christian ethic we hear so much about in America is a big joke—the result of an intense Zionist propaganda campaign.
+
 I’ll toss in one last thought about the “God’s Chosen People” myth: God said, ‘Beware of those who call themselves Jews and are not, for they lie’. Could it be the Ashkenazi Jews are the people to whom God was referring? 
 
 The Zionist controlled news-media in America has kept from the American people the news that Israel is intensely racist. Most Ashkenazi Jews in America are not aware of the racism in Israel. Even those Jews who have visited Israel are not aware because they are carefully kept from witnessing racist incidents.
@@ -186,134 +188,64 @@ RACISM AS PRACTICED IN ISRAEL IS ONE REASON THAT ISRAEL WILL SOONER OR LATER DES
 
 
 **ISRAEL - SATAN'S PLAYGROUND**
-No country could have become as corrupt and sinful as has Israel through a
-normal chain of events. It would seem that there had to be some evil force at work.
+No country could have become as corrupt and sinful as has Israel through a normal chain of events. It would seem that there had to be some evil force at work.
 
-It would be well to note the evil history of the leadership of Israel and their followers.
-For centuries, they (the Bolshevik Jews) practiced atheistic Socialism/Communism
-in various European countries, especially Russia.
+It would be well to note the evil history of the leadership of Israel and their followers. For centuries, they (the Bolshevik Jews) practiced atheistic Socialism/Communism in various European countries, especially Russia.
 
-These Bolshevik (Ashkenazic) Jews, along with the Zionist oriented Jewish
-International Bankers, succeeded in overthrowing the Czar of Russia and imposing
-communist rule on the Russian people. With the aid of Bolshevik Jews who migrated
-from Russia to America, they have been able to spread their evil, satanic influence
+These Bolshevik (Ashkenazic) Jews, along with the Zionist oriented Jewish International Bankers, succeeded in overthrowing the Czar of Russia and imposing communist rule on the Russian people. With the aid of Bolshevik Jews who migrated from Russia to America, they have been able to spread their evil, satanic influence
 throughout America and extending world-wide.
 
-Many of these communist Jews from Russia and other European countries, who
-migrated to Israel, took with them the socialist/communist ideas of Karl Marx.
-With the help of American Bolshevik Jews, they were able to take control of Israel
-and impose the socialist/communist plans of Karl Marx.
+Many of these communist Jews from Russia and other European countries, who migrated to Israel, took with them the socialist/communist ideas of Karl Marx. With the help of American Bolshevik Jews, they were able to take control of Israel and impose the socialist/communist plans of Karl Marx.
 
-Running parallel to the Bolshevik movement was the Zionist movement, which had
-basically the same goals - world domination. At some point after the Bolshevik
-Revolution in Russia, the Bolsheviks and Zionists meshed together and became one.
+Running parallel to the Bolshevik movement was the Zionist movement, which had basically the same goals - world domination. At some point after the Bolshevik Revolution in Russia, the Bolsheviks and Zionists meshed together and became one.
 
 They are now commonly referred to as Zionists.
 
-During Biblical times, God promised the Jews of those days to be his messengers
-and he gave them special privileges - if they would obey his word.
+During Biblical times, God promised the Jews of those days to be his messengers and he gave them special privileges - if they would obey his word.
 
-The Bible tells how these Jews disobeyed his word and began adoring idols.
-Frustrated over the disobedience of the Jews, God said, "Ye are of the synagogue
-of Satan".
+The Bible tells how these Jews disobeyed his word and began adoring idols. Frustrated over the disobedience of the Jews, God said, "Ye are of the synagogue of Satan".
 
-The atheistic Zionist leaders of Israel and their followers have apparently adopted the
-"synagogue of Satan" and through their leadership have made Israel a virtual "Satan's Playground".
+The atheistic Zionist leaders of Israel and their followers have apparently adopted the "synagogue of Satan" and through their leadership have made Israel a virtual "Satan's Playground".
 
-In trying to give a true picture of the real Israel, I can best do so by taking you
-behind the scenes by relating my own personal experiences and observations.
-
+In trying to give a true picture of the real Israel, I can best do so by taking you behind the scenes by relating my own personal experiences and observations.
 
 
 **WHO IS A JEW?**
-Most American Gentiles have been led to believe
-that a Jew is a Jew - one class of people. This
-is a falsehood which has been perpetuated by the
-Zionist controlled mass news-media. History shows
-that most people who are referred to as Jews in
-the world are not Jews - at least not brood Jews.
+Most American Gentiles have been led to believe that a Jew is a Jew - one class of people. This is a falsehood which has been perpetuated by the Zionist controlled mass news-media. History shows that most people who are referred to as Jews in the world are not Jews - at least not brood Jews.
 
-There are Chinese Jews, black Jews, Indian Jews,
-etc., but the basic difference is in two divisions
-- Ashkenazic Jews and Sephardic Jews. They have
-different historical backgrounds and are from different
-parts of the world. These differences must be emphasised
-and understood by Gentiles, especially Christians, if there
-is to be a peaceful solution to the Mideast problems.
+There are Chinese Jews, black Jews, Indian Jews, etc., but the basic difference is in two divisions- Ashkenazic Jews and Sephardic Jews. They have different historical backgrounds and are from different parts of the world. These differences must be emphasised and understood by Gentiles, especially Christians, if there is to be a peaceful solution to the Mideast problems.
 
-Sephardic Jews are native to North Africa and the
-Mideast. Usually darker skinned than Ashkenazic
-Jews, they are blood related to the Arabs. In fact
-they are commonly and rightfully referred to as
-Arab Jews. Both the Sephardic Jews and Arabs are
-known as Semites, the descendants of Shem.
+Sephardic Jews are native to North Africa and the Mideast. Usually darker skinned than Ashkenazic Jews, they are blood related to the Arabs. In fact they are commonly and rightfully referred to as Arab Jews. Both the Sephardic Jews and Arabs are known as Semites, the descendants of Shem.
 
-These semetic people, the Arab (Sephardic) Jews,
-Arab Moslems and Arab Christians had lived together
-in peace for centuries.
+These semetic people, the Arab (Sephardic) Jews, Arab Moslems and Arab Christians had lived together in peace for centuries.
 
-Ashkenazic Jews became Jews in a strange manner.
-It happened this way:
+Ashkenazic Jews became Jews in a strange manner. It happened this way:
 
-History records that there existed in western
-Asia a warlike tribe known as the Khazars. They
-were pagans (idol worshipers) who engaged in sexual
-excesses of the vilest forms. This resulted in the
-moral decay of its people and of the Khazar empire.
+History records that there existed in western Asia a warlike tribe known as the Khazars. They were pagans (idol worshipers) who engaged in sexual excesses of the vilest forms. This resulted in the moral decay of its people and of the Khazar empire.
 
-About 750 A.D. their leader, King Bulan, decided
-to adopt a "one God" religion for his people, so
-he invited representatives of Christianity, Islam
-and Judaism to present their dogma. 
+About 750 A.D. their leader, King Bulan, decided to adopt a "one God" religion for his people, so he invited representatives of Christianity, Islam and Judaism to present their dogma. 
 
 **King Bulan chose Judaism**
-If he had chosen Christianity, it would have
-aroused the anger of the large number of followers
-of Islam in the surrounding area; and if he had
-chosen Islam, it would have aroused the anger of
-the large number of Christians around them. So,
-he played it safe - he chose Judaism.
+If he had chosen Christianity, it would have aroused the anger of the large number of followers of Islam in the surrounding area; and if he had chosen Islam, it would have aroused the anger of the large number of Christians around them. So, he played it safe - he chose Judaism.
 
-If the teachings of the Torah, the religious book
-of Judaism, had been followed by these Khazars,
-the history of the world would undoubtedly have
-been much different - and for the better. But, it
-seems the King and his court were more interested
-in the Talmud than the Torah.
+If the teachings of the Torah, the religious book of Judaism, had been followed by these Khazars, the history of the world would undoubtedly have been much different - and for the better. But, it seems the King and his court were more interested in the Talmud than the Torah.
 
-Most non-Jews think of the Talmud as a religious
-book. Actually, the Talmud is 63 books written by
-a small number of rabbis to be used by Jews as civil
-law and guide.
+Most non-Jews think of the Talmud as a religious book. Actually, the Talmud is 63 books written by a small number of rabbis to be used by Jews as civil law and guide.
 
-These Khazars were driven from their land by the Mongols,
-so they moved westward and settled mainly in Russia and
-Poland. Over the years, descendants of the Khazars became
-known as Ashkenazic Jews. 
-
+These Khazars were driven from their land by the Mongols, so they moved westward and settled mainly in Russia and Poland. Over the years, descendants of the Khazars became known as Ashkenazic Jews. 
 
 
 **ASHKENAZIC JEWS ARE NOT SEMITES**
-Before going any farther, it is important to point
-out to Gentiles, especially Christians, that Ash-
-kenazic Jews are not Semites.
+Before going any farther, it is important to point out to Gentiles, especially Christians, that Ash-kenazic Jews are not Semites.
 
-Virtually all Zionists are Ashkenzic Jews. When
-anyone criticizes wrongful acts by the Zionists,
-they cry out, with false indignity, "You're anti-
-semetic." Yet, these Ashkenazic (Zionist) Jews
-are not Semites.
+Virtually all Zionists are Ashkenzic Jews. When anyone criticizes wrongful acts by the Zionists, they cry out, with false indignity, "You're anti-semetic." Yet, these Ashkenazic (Zionist) Jews are not Semites.
 
-To be a Semite it is necessary to be a descendant
-of Shem. Ashkenazic Jews are not descendants of
+To be a Semite it is necessary to be a descendant of Shem. Ashkenazic Jews are not descendants of
 Shem, but descendants of Japhath.
 
-Sephardic (Arab) Jews, along with Arab Moslems
-and Arab Christians, are descendants of Shem and
-thus Semites.
+Sephardic (Arab) Jews, along with Arab Moslems and Arab Christians, are descendants of Shem and thus Semites.
 
-Since Ashkenazic Jews are not descendants of Shem,
-but descendants of Japhath, they are not Semetic
+Since Ashkenazic Jews are not descendants of Shem, but descendants of Japhath, they are not Semetic
 Jews - they are artificial Jews. Being artificial
 Jews, they have no biblical right to Palestine,
 now wrongfully called Israel. 
