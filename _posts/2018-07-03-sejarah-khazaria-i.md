@@ -66,3 +66,9 @@ Jadi bagaimana mereka boleh mengaku bahawa kononnya Jerusalem adalah milik merek
 ![Jacob Rotchschild aka Illuminati aka NWO]({{site.baseurl}}/images/jacobrothschild.jpg)
 ![Illuminati Chart]({{site.baseurl}}/images/illuminati.jpg)
 
+https://fakejew.wordpress.com/2012/07/14/historians-now-recognize-that-the-majority-of-eastern-so-called-jews-are-actually-khazars-have-no-semitic-roots-whatsoever/
+http://beforeitsnews.com/alternative/2017/12/trumps-recognition-of-jerusalem-as-israels-capitol-is-the-beginning-of-armageddon-3578750.html
+http://www.theeventchronicle.com/study/leaked-report-israel-acknowledges-jews-fact-khazars/
+https://www.veteranstoday.com/2015/03/08/the-hidden-history-of-the-incredibly-evil-khazarian-mafia/
+https://concisepolitics.com/2017/03/06/history-of-the-khazar-peoples-of-eurasia-now-call-themselves-zionists/
+http://www.khazaria.com/khazar-history.html
