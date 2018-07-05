@@ -39,4 +39,17 @@ para ulama hadis huraikan disini ialah rum ialah eropah dan america
 abdullah ibnu masud ulama hadis
 ada satu kumpulan yg murtad yang akan keluar daripada islam masa perang armageddon
 
+The only problem with turkey is that it is against Israel and USA and it is standing with innocent people. And USA always wanted full control on Middle East and Turkey is an obstacle. They want to remove it. It is just international politics.﻿
+
+erdoğan
+
+sunan abi daud peperangan akhir zaman
+syria akan tolong turkey
+espionage
+nusai ibnu jabir
+ep487992081my sweden,denmark, norway
+
+rum akan turun ke suatu tempat di al-aqmar @bil dabiqk di syria dimana tentera rum akan bertempur dgn imam mahdi
+
+
 http://www.keadilandaily.com/nik-aziz-jelaskan-perbezaan-antara-yahudi-dan-zionis/
