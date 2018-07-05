@@ -37,5 +37,6 @@ yaumul al malhamtil qubra / peperangan terbesar dalam sejarah dunia
 org mati syahid fi sabillillah tak rasa sakit mati 
 para ulama hadis huraikan disini ialah rum ialah eropah dan america
 abdullah ibnu masud ulama hadis
+ada satu kumpulan yg murtad yang akan keluar daripada islam masa perang armageddon
 
 http://www.keadilandaily.com/nik-aziz-jelaskan-perbezaan-antara-yahudi-dan-zionis/
