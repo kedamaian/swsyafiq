@@ -46,7 +46,7 @@ erdoğan
 sebesar mana kemanisan yg kita dpt dlm hidup kita, sebanyak itulah dugaan pahit yg perlu kita tempoh,. Selalunya macam tulah, sunnahtullah.-wadi annuar
 round ke 4 kemenangan milik orang islam lwn rum
 dasyatnya peperangan besar itu sehhingakan inna thoirot/thohirat..seekor burung yg melintasi perperagan..akan jatuh dan mati ke bawah..burung tu pun, yg tak ada kena mengena apa pun boleh mati. bertapa sengit nya perperangn
-
+syeikh fahmi zam zam
 sunan abi daud peperangan akhir zaman
 syria akan tolong turkey
 espionage
