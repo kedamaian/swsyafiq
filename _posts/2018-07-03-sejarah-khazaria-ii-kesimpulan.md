@@ -43,6 +43,8 @@ The only problem with turkey is that it is against Israel and USA and it is stan
 
 erdoğan
 
+sebesar mana kemanisan yg kita dpt dlm hidup kita, sebanyak itulah dugaan pahit yg perlu kita tempoh,. Selalunya macam tulah, sunnahtullah.-wadi annuar
+
 sunan abi daud peperangan akhir zaman
 syria akan tolong turkey
 espionage
