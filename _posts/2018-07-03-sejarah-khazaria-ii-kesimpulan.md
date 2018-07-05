@@ -42,7 +42,7 @@ ada satu kumpulan yg murtad yang akan keluar daripada islam masa perang armagedd
 The only problem with turkey is that it is against Israel and USA and it is standing with innocent people. And USA always wanted full control on Middle East and Turkey is an obstacle. They want to remove it. It is just international politics.﻿
 
 erdoğan
-
+nusai ibnu jabir
 
 sebesar mana kemanisan yg kita dpt dlm hidup kita, sebanyak itulah dugaan pahit yg perlu kita tempoh,. Selalunya macam tulah, sunnahtullah.-wadi annuar
 round ke 4 kemenangan milik orang islam lwn rum
