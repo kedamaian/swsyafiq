@@ -57,7 +57,7 @@ syria akan tolong turkey
 espionage
 nusai ibnu jabir
 ep487992081my sweden,denmark, norway
-
+perdamaian di antara org islam dgn bani asfar, jumhur ulama kata eropah dn amerika
  al-A'maq alias Dabiq
  Syeikh Ahmad Fahmi Bin Zamzam
  
