@@ -59,6 +59,6 @@ nusai ibnu jabir
 ep487992081my sweden,denmark, norway
 
 rum akan turun ke suatu tempat di al-aqmar @bil dabiqk di syria dimana tentera rum akan bertempur dgn imam mahdi
-
+Nabi Muhammad Shallallahu ‘Alaihi wa Sallam
 
 http://www.keadilandaily.com/nik-aziz-jelaskan-perbezaan-antara-yahudi-dan-zionis/
