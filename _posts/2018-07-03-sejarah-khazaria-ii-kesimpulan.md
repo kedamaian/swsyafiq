@@ -48,6 +48,8 @@ sebesar mana kemanisan yg kita dpt dlm hidup kita, sebanyak itulah dugaan pahit 
 round ke 4 kemenangan milik orang islam lwn rum
 dasyatnya peperangan besar itu sehhingakan inna thoirot/thohirat..seekor burung yg melintasi perperagan..akan jatuh dan mati ke bawah..burung tu pun, yg tak ada kena mengena apa pun boleh mati. bertapa sengit nya perperangn
 kitab syeikh fahmi zam zam- saya iqtimad dengan ilmu dia sebab dia orang alim.. saya tak tau di ambil hadis mana..
+
+satu lagi hadis(dhoif) akhir zaman yg nabi sebut, konstatinual ni bukannya turki/istanbul.. kata para ulama, dia adalah rum iaitu italy.. tu adalah pendapat mereka dan kita cuma sebut sahaja
 sunan abi daud peperangan akhir zaman
 syria akan tolong turkey
 espionage
