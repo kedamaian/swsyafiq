@@ -35,6 +35,7 @@ Berbalik tentang hadis Rum akan khianat setelah seorang dari Salib dibunuh oleh 
 
 
 
-
+ulama hadis huraikan disini ialah rum ialah eropah dan america
+abdullah ibnu masud ulama hadis
 
 http://www.keadilandaily.com/nik-aziz-jelaskan-perbezaan-antara-yahudi-dan-zionis/
