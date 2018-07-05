@@ -43,10 +43,11 @@ The only problem with turkey is that it is against Israel and USA and it is stan
 
 erdoğan
 
+
 sebesar mana kemanisan yg kita dpt dlm hidup kita, sebanyak itulah dugaan pahit yg perlu kita tempoh,. Selalunya macam tulah, sunnahtullah.-wadi annuar
 round ke 4 kemenangan milik orang islam lwn rum
 dasyatnya peperangan besar itu sehhingakan inna thoirot/thohirat..seekor burung yg melintasi perperagan..akan jatuh dan mati ke bawah..burung tu pun, yg tak ada kena mengena apa pun boleh mati. bertapa sengit nya perperangn
-syeikh fahmi zam zam
+kitab syeikh fahmi zam zam- saya iqtimad dengan ilmu dia sebab dia orang alim.. saya tak tau di ambil hadis mana..
 sunan abi daud peperangan akhir zaman
 syria akan tolong turkey
 espionage
