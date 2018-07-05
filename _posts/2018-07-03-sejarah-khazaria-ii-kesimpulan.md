@@ -60,7 +60,7 @@ ep487992081my sweden,denmark, norway
 perdamaian di antara org islam dgn bani asfar, jumhur ulama kata eropah dn amerika
  al-A'maq alias Dabiq
  Syeikh Ahmad Fahmi Bin Zamzam
- 
+ Ustadz Zulkifli M Ali
 rum akan turun ke suatu tempat di al-aqmar @bil dabiqk di syria dimana tentera rum akan bertempur dgn imam mahdi
 Nabi Muhammad Shallallahu ‘Alaihi wa Sallam
 
