@@ -59,6 +59,7 @@ nusai ibnu jabir
 ep487992081my sweden,denmark, norway
 
  al-A'maq alias Dabiq
+ Syeikh Ahmad Fahmi Bin Zamzam
  
 rum akan turun ke suatu tempat di al-aqmar @bil dabiqk di syria dimana tentera rum akan bertempur dgn imam mahdi
 Nabi Muhammad Shallallahu ‘Alaihi wa Sallam
