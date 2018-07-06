@@ -76,3 +76,4 @@ http://www.keadilandaily.com/nik-aziz-jelaskan-perbezaan-antara-yahudi-dan-zioni
 
 We are being poisoned with GMOs, fluoride, chem trails, fluoride, and pharmaceuticals
 Who buys this shit?
+Jewish Bolsheviks Yagoda and Lazar Kaganovich were responsible for at least 20 million death, during the Holodomor, between the two of them, but all we hear about is Hitler, Nazis and the holocaust. I guess because they were both jews and that would cancel out the 6 million.
