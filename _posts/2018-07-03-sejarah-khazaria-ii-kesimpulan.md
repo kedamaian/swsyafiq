@@ -104,5 +104,7 @@ and guess what? The REAL JEWS not the Zionist fake jews are Chosen and special i
  You have the real jews confused with those fake jews who use the Talmud. WE use the Bible OUR HISTORY BOOK. Theology is nothing but lies but the Ahayah of the universe does exist. We don't use Him to our advantage simply put He chose the blacks, Natives and Hispanics with Negroid fathers as the chosen people who are oppressed, murdered and hated. Simply put WE will continue to return to Our Heavenly Father and YOU and YOUR PEOPLE WILL PERISH OR YOU HAVE THE CHOICE TO SERVE US THE TRUE ISRAELITES. YOU OPINIONS DON'T MATTER AT ALL. WATCH WHAT YOU SAY.....YOU HAVE JUST DUG YOUR OWN GRAVE. ASK THE EGYPTIANS WHEN HE WIPED THEM OUT.﻿
  
  What kind of people would create and impose racism on another people? Hate, oppress and kill them daily??? That's what He did and you are not to question what He does, He's the creator and He can do whatever He wants. It just so happens that He chose those created in His image...blacks, Natives and Hispanics. We are not the author of racism but we know who is. Edomites/Caucasians﻿
+ 
+  these people are FAKE they come from Khazaria Europe. Jews are not white.﻿ 
 
 Noam Chomsky -
