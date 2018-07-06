@@ -71,3 +71,5 @@ Bumi ke-3 diberkati Allah : Syam (Syria, Palestine, Iraq, Lubnan,)
 Bumi ke-4 diberkati Allah: Yeman
 
 http://www.keadilandaily.com/nik-aziz-jelaskan-perbezaan-antara-yahudi-dan-zionis/
+
+'Democracy' is code word for Communism. jews run this country & have forced their Cultural Marxism down everyone's throat. People have simply failed to recognize it for what it is. They're too distracted, too comfortable with all the frills the jew has given them, to even care.
