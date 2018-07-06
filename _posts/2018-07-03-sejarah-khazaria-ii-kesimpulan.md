@@ -118,4 +118,10 @@ Israel has told Trump he must continue backing the Saudis, and continue demonizi
 Iran dangerous with Nukes? Has anyone seen what the U.S. did to the people of the Marshall Islands? The U.S. is the evil empire. Supported by the U.K., Saudi Arabia and Israel.﻿
 
 
+About saudi:
+Bani saud and GCC countries are NOT Muslim they are pure salafi wahabis and you sound like them too
+
+People who form alliances with Zionist Jews and Zionist Christians are not Muslim.
+
+
 Noam Chomsky -
