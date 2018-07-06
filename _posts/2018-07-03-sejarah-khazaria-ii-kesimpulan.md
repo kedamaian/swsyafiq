@@ -79,4 +79,30 @@ Who buys this shit?
 Jewish Bolsheviks Yagoda and Lazar Kaganovich were responsible for at least 20 million death, during the Holodomor, between the two of them, but all we hear about is Hitler, Nazis and the holocaust. I guess because they were both jews and that would cancel out the 6 million.
 
 ulama hadis huraikan disini ialah rum ialah eropah dan america
+
+You are confused. The Jews of the Bible were righteous the fake jews in Israel today are colonizing the world for the New World Order under Satan.﻿
+
+the good ones never became bad. The bad ones have taken on the identity of the good ones. They are Khazarian Europeans and have NO DNA link to Abraham while on the other hand the REAL Jews do.﻿ 
+
+What I'm saying is in 70 AD the Romans went after the Jews in Jerusalem. Christ warned them before this happened. He told them to flee into the mountains and they went into Egypt/Africa to hide among other dark skinned people. The UN put these fake ones in our land in 1948. They are actually Europeans and Converted to Judaism which is a religion. WE are a nationality not a religion. You cannot convert to be the Chosen people if you were NEVER chosen. That's like saying that YOU can convert and be a part of my family or vice versus. It's amazing how gullible people can be today. The Most High KNOWS who His people are and since they aren't chosen they are going to be wiped out in Israel. They control banking systems, they financed the slave trade of the real Jews. They are wealthy but the real Jews would be under curses for not following the Laws, Statues and Commandments as they are today﻿
+
+Seems like you are the ONE WHO IS DEEPLY IGNORANT. I HAVE FACTS WHILE YOU HAVE EMOTIONS, IGNORANCE AND OPINIONS.﻿
+
+ He's sitting on the right hand of the Throne He's NOT in Hell﻿ 
+The hebrews are the offspring of Abraham, Isaac and Jacob. These people were CREATED FOR THE MOST HIGH BY THE MOST HIGH. He created all people but He created the world for OUR SAKES. I'm not addicted to anything but the truth and apparently you don't know the truth. The Hebrews exist today in ghettos yeah the blacks, Natives and Hispanics with NEGROID FATHERS. The fake jews come from Khazarian in Europe where whites reside and they were not wanted to many places that's why Hitler began killing some of them and Hitler KNEW who the real Jews are. The bad ones stole the identity and land of the real Hebrews. That happened many many centuries ago. Today they claim they are us but we know they aren't. They NEVER suffered the curses nor did they go into slavery by cargo slave ships.﻿
+
+You are correct Zionist Jews are a danger and are the Synagogue of Satan while the REAL JEWS who have had their identity stolen and their land are suffering under the curses of Deuteronomy.﻿
+
+and guess what? The REAL JEWS not the Zionist fake jews are Chosen and special in the sight of the Most High. He said and I quote " you are a Holy and separate people unto me". We are royalty in His eyes and the apple of His eye even though His people are OPPRESSED, HATED AND MURDERED ON A DAILY BASIS.﻿
+
+ Chosen means the Most High selected and created a certain people to RULE the earth over the other nations and to be a light to the other nations so they may know righteousness.﻿ 
+ 
+ the Fake jews do murder, rob, rape and enslave the true jews. Sorry to burst your bubble they are not the true jews but are the synagogue of Satan. They are Khazarians and there is NO WAY YOU CAN CONVERT to being a bloodline of a people. Either it's in your blood or it isn't. You can't convert to my bloodline as being Israel if you WERE NOT BORN ISRAEL.﻿
+ 
+ Doug Graves um where did you come up with this? The zionist fake jews are the ones who are killing others and feel that all others are goyims. I'm am of the REAL Hebrews of the Bible. Not a fake jew who lives in Israel and came from Europe. Whoa!!! your mind is screwed﻿
+ 
+ You have the real jews confused with those fake jews who use the Talmud. WE use the Bible OUR HISTORY BOOK. Theology is nothing but lies but the Ahayah of the universe does exist. We don't use Him to our advantage simply put He chose the blacks, Natives and Hispanics with Negroid fathers as the chosen people who are oppressed, murdered and hated. Simply put WE will continue to return to Our Heavenly Father and YOU and YOUR PEOPLE WILL PERISH OR YOU HAVE THE CHOICE TO SERVE US THE TRUE ISRAELITES. YOU OPINIONS DON'T MATTER AT ALL. WATCH WHAT YOU SAY.....YOU HAVE JUST DUG YOUR OWN GRAVE. ASK THE EGYPTIANS WHEN HE WIPED THEM OUT.﻿
+ 
+ What kind of people would create and impose racism on another people? Hate, oppress and kill them daily??? That's what He did and you are not to question what He does, He's the creator and He can do whatever He wants. It just so happens that He chose those created in His image...blacks, Natives and Hispanics. We are not the author of racism but we know who is. Edomites/Caucasians﻿
+
 Noam Chomsky -
