@@ -113,4 +113,9 @@ Anyone who visits both Iran and Saudi Arabia will know how superior Iran is. The
 
 Israel has told Trump he must continue backing the Saudis, and continue demonizing Syria and Iran. So that is the way it is. Even Trump must follow orders when his superiors command him. I also heard Trump is thinking of moving the Pentagon to Israel to save time. Since all of the major USA foreign policy decisions are made there anyway.﻿
 
+ During the Iran and Iraq war, which country used chemical weapons, where did they get them from and who backed them? Iraq backed by the U.S.. Iran never used chemical weapons, so why would they use Nuclear weapons?  They want Nuclear weapons because of the threat of the U.S. and here allies in the region, Israel and Saudi Arabia. I'm not Muslim or do I totally support Iran, but if I ran a country that had been attacked by the U.S by proxy, I would have a few in my arsenal.﻿ 
+ 
+Iran dangerous with Nukes? Has anyone seen what the U.S. did to the people of the Marshall Islands? The U.S. is the evil empire. Supported by the U.K., Saudi Arabia and Israel.﻿
+
+
 Noam Chomsky -
