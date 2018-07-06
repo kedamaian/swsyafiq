@@ -106,5 +106,11 @@ and guess what? The REAL JEWS not the Zionist fake jews are Chosen and special i
  What kind of people would create and impose racism on another people? Hate, oppress and kill them daily??? That's what He did and you are not to question what He does, He's the creator and He can do whatever He wants. It just so happens that He chose those created in His image...blacks, Natives and Hispanics. We are not the author of racism but we know who is. Edomites/Caucasians﻿
  
   these people are FAKE they come from Khazaria Europe. Jews are not white.﻿ 
+  
+==========
+
+Anyone who visits both Iran and Saudi Arabia will know how superior Iran is. The people are just wonderful. They dress so well and are so friendly. On the other hand, Saudi is full of crap. The people all think they are policemen. They think all foreigners are inferior and treat them all with contempt and arrogance. You can feel it right at the moment you land in the airport. The way they throw back your passport at you. The way they go through your baggage, etc.﻿ 
+
+Israel has told Trump he must continue backing the Saudis, and continue demonizing Syria and Iran. So that is the way it is. Even Trump must follow orders when his superiors command him. I also heard Trump is thinking of moving the Pentagon to Israel to save time. Since all of the major USA foreign policy decisions are made there anyway.﻿
 
 Noam Chomsky -
