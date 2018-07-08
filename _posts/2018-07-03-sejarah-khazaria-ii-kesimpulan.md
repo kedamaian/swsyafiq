@@ -124,7 +124,7 @@ Bani saud and GCC countries are NOT Muslim they are pure salafi wahabis and you 
 People who form alliances with Zionist Jews and Zionist Christians are not Muslim.
 
 business man always protects his interests by playing  both sides
-
+Syaikh Omar Abdul Kafi
 Noam Chomsky -
 sheikh belal assaad and sheikh yasir qadhi
 لا حول ولا قوة الا بالله﻿
