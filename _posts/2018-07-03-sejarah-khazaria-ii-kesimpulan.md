@@ -126,6 +126,7 @@ People who form alliances with Zionist Jews and Zionist Christians are not Musli
 business man always protects his interests by playing  both sides
 
 Noam Chomsky -
+sheikh belal assaad and sheikh yasir qadhi
 
 Dalam hadis bukhari dan muslim nabi bermimpi suatu yang pelik iaitu beliau melihat sekumpulan tentera muslim datang dari arah syam menuju ke makaah untuk berperang dgn imam mahdi dan berkumpul di luar mekah iaitu di baidaa' lalu dengan izin dari Allah azzawajala bumi pun menelan kesemua tentera2 itu. Walaubagaimanapun, hanya tinggal seorang atau dua sahaja yang terselamat dari ditelan bumi dan mereka ini memberitahu kepada ketua mereka masing2 tentang kekalahan tentera mereka.
 
