@@ -147,3 +147,5 @@ Apabila terjadinya al malhamah qubra anda akan lihat burung2 yang berdekatan den
  I'm from muscle shoals and my grandmother told me stories about Antarctica bein the most important continent and a huge chunk of human history is under the ice there﻿ 
  
 al amaq/ Dabiq
+
+ It has been proven that the south pole has been TROPICAL 5 times in the last 13 million years based on evidence found in core samples. There is no doubt in my mind that the continent has been inhabited. There is no doubt in my mind that megalithic structures exist there. There is no doubt in my mind that the facts rewrite the history of mankind.  We may never no the facts because of international governmental conspiracy to conceal the truth.﻿ 
