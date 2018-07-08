@@ -149,3 +149,5 @@ Apabila terjadinya al malhamah qubra anda akan lihat burung2 yang berdekatan den
 al amaq/ Dabiq
 
  It has been proven that the south pole has been TROPICAL 5 times in the last 13 million years based on evidence found in core samples. There is no doubt in my mind that the continent has been inhabited. There is no doubt in my mind that megalithic structures exist there. There is no doubt in my mind that the facts rewrite the history of mankind.  We may never no the facts because of international governmental conspiracy to conceal the truth.﻿ 
+ 
+  That isn't a pyramid. It is a mountain. A mountain range was named after Rothschilds. Antarctica is sectioned off by many Countries.. Americans part is from the middle out. Russia has a part, China. China actually has. Military presence in Antarctica. They have found under the ice is. Huge Forrest. They say their is more oil in Antarctica than in Middle East. All kinds of gemstones. Metals of all kinds. Platnium, titanium, copper, Steel. Diamonds, emeralds, sapphires. They have found so much. Two countries do have a military. Not USA. So much hasn't been explored yet. It's amazing what They've recently found.﻿ 
