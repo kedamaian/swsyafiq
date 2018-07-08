@@ -145,3 +145,5 @@ Apabila terjadinya al malhamah qubra anda akan lihat burung2 yang berdekatan den
      
 
  I'm from muscle shoals and my grandmother told me stories about Antarctica bein the most important continent and a huge chunk of human history is under the ice there﻿ 
+ 
+al amaq/ Dabiq
