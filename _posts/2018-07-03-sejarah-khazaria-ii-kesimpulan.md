@@ -127,9 +127,9 @@ business man always protects his interests by playing  both sides
 
 Noam Chomsky -
 
-Dalam hadis bukhari dan muslim nabi bermimpi suatu yang pelik iaitu beliau melihat sekumpulan tentera muslim datang dari arah syam menuju ke makaah untuk dan berkumpul di luar mekah iaitu di baidaa' lalu dengan izin dari Allah azzawajala bumi pun menelan kesemua tentera2 itu.
+Dalam hadis bukhari dan muslim nabi bermimpi suatu yang pelik iaitu beliau melihat sekumpulan tentera muslim datang dari arah syam menuju ke makaah untuk berperang dgn imam mahdi dan berkumpul di luar mekah iaitu di baidaa' lalu dengan izin dari Allah azzawajala bumi pun menelan kesemua tentera2 itu. Walaubagaimanapun, hanya tinggal seorang atau dua sahaja yang terselamat dari ditelan bumi dan mereka ini memberitahu kepada ketua mereka masing2 tentang kekalahan tentera mereka.
 
-Imam mahdi datang dari madinah menuju ke mekah kerana kekacauan di madinah, kemudian orang2 Islam ikut dia juga ke mekah kemudian mereka berbaiah kepada imam mahdi dalam masa yg sama apabila berita mengenai tersebar ke seluruh dunia maka tentera datang dari syria 
+Imam mahdi datang dari madinah menuju ke mekah kerana kekacauan di madinah, kemudian orang2 Islam dari madinah ikut dia juga ke mekah kemudian mereka berbaiah kepada imam mahdi dalam pada masa yg sama apabila berita mengenainya tersebar ke seluruh dunia maka tentera umat Islam datang dari syria dan dipercayai dimasa itu juga sedang berlakunya peperangan civil war 
 
 ada army datang dari persia(iraq, afganistan_ untuk lawan imam mahdi, namun imam mahdi menang akhirnya
 
