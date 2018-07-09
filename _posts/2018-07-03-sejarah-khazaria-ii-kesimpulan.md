@@ -202,6 +202,8 @@ Heartless Bastard criminal top western Masonic mafia governments (USA, UK, Franc
   maybe ياجوج و ماجوج is the north and the south pole frozen ice. as the shaikh said. they will rush us faster than we can run out of them. just like a tsunami would. and the wall is some kind of dam. دو القرنين seems more like a viking to me. and vikings have a long story with sea ice. im no expert in explaining these things. always applyed reason when reading the holy quran and i never been so confused about an explanation than on this one. almighty god said " ولا يحيطون من علمه إلى بما شاء" may god allow us to discover the true meaning of ياجوج و ماجوج.
   
   
+  I'll have a Theory where they might be! Antarctica, checkout operation highjump. think about it! they are digging untill they see a hole, then the next morning it get filled so they have to re-dig... if they see a hole, why not continue?! my theory is that Night Falls and that region when Night Falls, temperature drops dramatically, and then next morning the snow fills up the whole, so thats why they have to re-dig it again. Allah knows best...﻿
+  
   
   
   
