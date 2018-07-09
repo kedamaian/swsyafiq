@@ -196,3 +196,5 @@ Heartless Bastard criminal top western Masonic mafia governments (USA, UK, Franc
 
 
  For anyone asking why we can't see them on maps. Take a look at Google Earth for example. The whole world is pretty defined and easy to see the regions. Like mountains. But when you go to either pole it becomes pixelated and u can't even see the pole itself! Why would they do that? The satellites CLEARLY have ability to see what's there with clarity. Clearly they're hiding something. And from the accumulated information. They are probably at either or both poles.﻿ 
+ 
+  I believe Gog and Magog are in the hollow earth of Antarctica. The barrier (SADD) was built in Antarctica. This  is the secret the world nations keep. Only military missions are made there. They believe the supreme race lives there. This will be exposed when the New World Order is established. God knows best.﻿ 
