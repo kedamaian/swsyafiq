@@ -60,8 +60,11 @@ Syaikh Omar Abdul Kafi
 Para Ulama Hadis
 Noam Chomsky
 Richard E. Byrd
-لا حول ولا قوة الا بالله
 
+لا حول ولا قوة الا بالله
+They plan , and Allah also plans..and Allah is the best of planners. They will push for this kind of control and if they have no resistance they will succeed surely! However the creator will send nations against them and foil their plans.
+ 
+ 
 yaumul al malhamtil qubra / peperangan terbesar dalam sejarah dunia
 org mati syahid fi sabillillah tak rasa sakit mati 
 para ulama hadis huraikan disini ialah rum ialah eropah dan america
