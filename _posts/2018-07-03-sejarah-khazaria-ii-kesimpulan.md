@@ -204,7 +204,7 @@ Heartless Bastard criminal top western Masonic mafia governments (USA, UK, Franc
   
   I'll have a Theory where they might be! Antarctica, checkout operation highjump. think about it! they are digging untill they see a hole, then the next morning it get filled so they have to re-dig... if they see a hole, why not continue?! my theory is that Night Falls and that region when Night Falls, temperature drops dramatically, and then next morning the snow fills up the whole, so thats why they have to re-dig it again. Allah knows best...﻿
   
-  
+  The place where they will come it is either from the North Pole or South Pole, search up in Google "hollow earth theory" they speak of a civilisation that is actually beneath the earth and that there is an inner sun underneath earth and all the stuff said about the earths core is fake﻿
   
   
   The story about cyrus is lines up
