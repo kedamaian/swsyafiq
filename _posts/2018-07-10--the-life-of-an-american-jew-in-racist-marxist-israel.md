@@ -2,6 +2,7 @@
 layout: post
 published: true
 categories:
+  - Tazkirah
   - Perang Akhir Zaman
 author: tehnoblequran
 title: ' The Life of an American Jew in Racist Marxist Israel'
@@ -169,7 +170,9 @@ Anyone who has read the Bible with an open mind knows that God gave Jews of that
 In comparing the degree to which the followers of the **3 major religions practice their beliefs**, I make this observation:
  
 **Judaism**—Few Jews, **Sephardic** or **Ashkenazi**, are religious. This is true in America, in Israel and world-wide.
- 
+
+![khazars6.png]({{site.baseurl}}/images/khazars6.png)
+
 Christianity—The Christians’ religion has felt the influence of Jewish meddling and infiltration (especially in America) resulting in confusion and bickering between the various Christian denominations. This has led to a ‘lukewarm’ attitude among most Christians toward their religion. There is evidence to prove that Jews, or one of their many fronts, have started many of the Christian denominations and thus dominate doctrine. 
  
 Islam—Moslems, who follow the teachings of Islam, are by far the most fervent of the 3 major religions in following their religious beliefs.
