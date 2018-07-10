@@ -1,8 +1,8 @@
 ---
 layout: post
-published: false
+published: true
 categories:
-  - Tazkirah
+  - Perang Akhir Zaman
 author: tehnoblequran
 title: ' The Life of an American Jew in Racist Marxist Israel'
 ---
