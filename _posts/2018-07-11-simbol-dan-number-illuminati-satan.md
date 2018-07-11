@@ -13,7 +13,7 @@ Simbol dan Number Illuminati Satan
 
 **Simbol, Nombor, Tanda**
 Pope’s 666 Hand-sign before Congress https://www.youtube.com/watch?v=vl-zk7cIRMo
-By pope https://youtu.be/B29Nq9ID4uE?t=650 , https://youtu.be/B29Nq9ID4uE?t=1859
+By pope https://youtu.be/B29Nq9ID4uE?t=645, https://youtu.be/B29Nq9ID4uE?t=1859
 
 
 Hidden Hands https://youtu.be/8x_xdq3PAbI?t=1627
@@ -28,3 +28,4 @@ Puppet of Zion | Trump is the Swamp https://www.youtube.com/watch?v=SNPNWEY44NY&
 News is Propaganda - Open Your Eyes https://www.youtube.com/watch?v=cabD_0h5mcA
 Media Monopoly | All News is Scripted | FOX, CBS, NBC, ABC https://www.youtube.com/watch?v=fWVgDLDNp5w
 Ultimate TV Mind Control Documentary | Media Manipulation  https://www.youtube.com/watch?v=-b9j6fJqD-g&t=0s
+Mainstream News is Fake and Scripted - Documentary https://www.youtube.com/watch?v=8McFUK5Y8WA
