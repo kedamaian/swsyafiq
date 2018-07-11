@@ -169,7 +169,7 @@ Anyone who has read the Bible with an open mind knows that God gave Jews of that
  
 In comparing the degree to which the followers of the **3 major religions practice their beliefs**, I make this observation:
  
-**Judaism**—Few Jews, **Sephardic** or **Ashkenazi**, are religious. This is true in America, in Israel and world-wide.
+**Judaism**—Few Jews, **Sephardic(Spanish)** or **Ashkenazi**, are religious. This is true in America, in Israel and world-wide.
 
 ![khazars6.png]({{site.baseurl}}/images/khazars6.png)
 
