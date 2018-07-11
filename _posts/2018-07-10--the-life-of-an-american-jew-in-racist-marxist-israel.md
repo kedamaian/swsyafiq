@@ -214,7 +214,7 @@ In trying to give a true picture of the real Israel, I can best do so by taking 
 
 
 **WHO IS A JEW?**
-Most American Gentiles have been led to believe that a Jew is a Jew - one class of people. This is a falsehood which has been perpetuated by the Zionist controlled mass news-media. History shows that most people who are referred to as Jews in the world are not Jews - at least not brood Jews.
+Most American Gentiles have been led to believe that a Jew is a Jew - one class of people. [This is a falsehood](https://www.youtube.com/watch?v=qqYIoG61yKk) which has been perpetuated by the Zionist controlled mass news-media. History shows that most people who are referred to as Jews in the world are not Jews - at least not brood Jews.
 
 There are Chinese Jews, black Jews, Indian Jews, etc., but the basic difference is in two divisions- Ashkenazic Jews and Sephardic Jews. They have different historical backgrounds and are from different parts of the world. These differences must be emphasised and understood by Gentiles, especially Christians, if there is to be a peaceful solution to the Mideast problems.
 
