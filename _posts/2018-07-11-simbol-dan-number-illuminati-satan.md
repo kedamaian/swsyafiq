@@ -29,3 +29,14 @@ News is Propaganda - Open Your Eyes https://www.youtube.com/watch?v=cabD_0h5mcA
 Media Monopoly | All News is Scripted | FOX, CBS, NBC, ABC https://www.youtube.com/watch?v=fWVgDLDNp5w
 Ultimate TV Mind Control Documentary | Media Manipulation  https://www.youtube.com/watch?v=-b9j6fJqD-g&t=0s
 Mainstream News is Fake and Scripted - Documentary https://www.youtube.com/watch?v=8McFUK5Y8WA
+
+
+
+
+
+
+
+
+
+
+Friday The 13th & The Knights Templar https://www.youtube.com/watch?v=2vseEmfr88g
