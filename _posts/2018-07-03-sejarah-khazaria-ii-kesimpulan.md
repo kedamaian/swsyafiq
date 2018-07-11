@@ -216,3 +216,5 @@ This statement is too stupid to warrant a reply
 astute analys
 
 The window of opportunity is fast closing and time is short. This life you comfortably lead will be pulled out from right under you, and everything will happen so fast you won't even know what has hit you. Make haste brothers and sisters to do good deeds and return to Islam before it is too late
+
+talpiot /Sheldon Adelson/ADL/AIPAC/CERN
