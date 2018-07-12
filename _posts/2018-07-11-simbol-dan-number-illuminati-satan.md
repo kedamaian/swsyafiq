@@ -12,15 +12,16 @@ Signs of Illuminati/Luciferious/Catholics/Vatican
 Simbol dan Number Illuminati Satan
 
 **Simbol, Nombor, Tanda**
-![666-number-1024x576.jpg]({{site.baseurl}}/images/666-number-1024x576.jpg)
-![32-10_F1-ios.jpg]({{site.baseurl}}/images/32-10_F1-ios.jpg)
-![Donald Trump Perfect Hand Gesture with Flag.jpg]({{site.baseurl}}/images/Donald Trump Perfect Hand Gesture with Flag.jpg)
-![e5bb63f9899c978b74b29226fd0dc090.jpg]({{site.baseurl}}/images/e5bb63f9899c978b74b29226fd0dc090.jpg)
-![feast-days-and-the-second-coming-75-638.jpg]({{site.baseurl}}/images/feast-days-and-the-second-coming-75-638.jpg)
-![Lecture 7 - 666 and the Mark of the Beast 1.jpg]({{site.baseurl}}/images/Lecture 7 - 666 and the Mark of the Beast 1.jpg)
-![maxresdefault.jpg]({{site.baseurl}}/images/maxresdefault.jpg)
-![pope-francis-666.png]({{site.baseurl}}/images/pope-francis-666.png)
-![universal allegiance of satan.jpg]({{site.baseurl}}/images/universal allegiance of satan.jpg)
+
+![666-number-1024x576-compressor.jpg]({{site.baseurl}}/images/666-number-1024x576-compressor.jpg)
+![32-10_F1-ios-compressor.jpg]({{site.baseurl}}/images/32-10_F1-ios-compressor.jpg)
+![Donald-Trump-Perfect-Hand-Gesture-with-Flag-compressor.jpg]({{site.baseurl}}/images/Donald-Trump-Perfect-Hand-Gesture-with-Flag-compressor.jpg)
+![e5bb63f9899c978b74b29226fd0dc090-compressor.jpg]({{site.baseurl}}/images/e5bb63f9899c978b74b29226fd0dc090-compressor.jpg)
+![feast-days-and-the-second-coming-75-638-compressor.jpg]({{site.baseurl}}/images/feast-days-and-the-second-coming-75-638-compressor.jpg)
+![Lecture-7---666-and-the-Mark-of-the-Beast-1-compressor.jpg]({{site.baseurl}}/images/Lecture-7---666-and-the-Mark-of-the-Beast-1-compressor.jpg)
+![maxresdefault-compressor.jpg]({{site.baseurl}}/images/maxresdefault-compressor.jpg)
+![POPE-666-compressor.jpg]({{site.baseurl}}/images/POPE-666-compressor.jpg)
+![universal-allegiance-of-satan-compressor.jpg]({{site.baseurl}}/images/universal-allegiance-of-satan-compressor.jpg)
 
 
 
