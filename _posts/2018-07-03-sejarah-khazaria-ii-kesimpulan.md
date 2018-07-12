@@ -219,3 +219,5 @@ The window of opportunity is fast closing and time is short. This life you comfo
 
 talpiot /Sheldon Adelson/ADL/AIPAC/CERN
  disinform,decoy,disasters,detain,disarm,depopulate,destroy the information trail.(done)﻿ 
+ 
+ Bilderbergers think they're a superior race....you are in their way...they don't like you...They are petty narcissistic tiny undeveloped human beings....they're actually pathetic.﻿
