@@ -221,3 +221,8 @@ talpiot /Sheldon Adelson/ADL/AIPAC/CERN
  disinform,decoy,disasters,detain,disarm,depopulate,destroy the information trail.(done)﻿ 
  
  Bilderbergers think they're a superior race....you are in their way...they don't like you...They are petty narcissistic tiny undeveloped human beings....they're actually pathetic.﻿
+ 
+  Dan Buchner
+Dan Buchner
+3 weeks ago (edited)
+Thanks, Luke and Dan, for being there and reporting when most of us can't go.  You were in the front lines with the elite, and I appreciate you taking the heat for us.  I believe they know that many people have woken up.  I also believe they want to use artificial intelligence, robotics, and automation much more in the more mundane jobs out there, i.e., cashiers, assembly line workers, warehouse workers, salesmen, human resource personnel, farm workers, secretaries, etc.  Of course, that will mean that the middle class will get further squeezed out, which is what they want.  They know that the lower class is powerless, and concern themselves with just surviving.  They know that the upper class has almost all of the wealth, and is already in power.  So, that only leaves the middle class that they have to get rid of.﻿ 
