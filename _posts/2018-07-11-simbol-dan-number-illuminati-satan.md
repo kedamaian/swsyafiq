@@ -4,6 +4,7 @@ published: false
 author: tehnoblequran
 title: Segalanya Mengenai Musuh Islam
 categories:
+  - Tazkirah
   - Perang Akhir Zaman
   - Privacy & Forensics
 ---
@@ -18,7 +19,6 @@ Simbol dan Number Illuminati Satan
 ![feast-days-and-the-second-coming-75-638.jpg]({{site.baseurl}}/images/feast-days-and-the-second-coming-75-638.jpg)
 ![Lecture 7 - 666 and the Mark of the Beast 1.jpg]({{site.baseurl}}/images/Lecture 7 - 666 and the Mark of the Beast 1.jpg)
 ![maxresdefault.jpg]({{site.baseurl}}/images/maxresdefault.jpg)
-![]({{site.baseurl}}/images/pope-francis-666.png)
 ![pope-francis-666.png]({{site.baseurl}}/images/pope-francis-666.png)
 ![universal allegiance of satan.jpg]({{site.baseurl}}/images/universal allegiance of satan.jpg)
 
