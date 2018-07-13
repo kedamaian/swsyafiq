@@ -1,10 +1,15 @@
 ---
 layout: post
-published: false
+published: true
 author: tehnoblequran
 title: THE ROTHSCHILDS
+categories:
+  - Perang Akhir Zaman
 ---
 The Rothschilds have been in control of the world for a very long time, their tentacles reaching into many aspects of our daily lives, as is documented in the following timeline. However, before you jump to the timeline, please read this invaluable introduction which will tell you who the Rothschilds are as oppose to who they claim to be. The Rothschilds claim that they are Jewish, when in fact they are Khazars. They are from a country called Khazaria, which occupied the land locked between the Black Sea and the Caspian Sea which is now predominantly occupied by Georgia. The reason the Rothschilds claim to be Jewish is that the Khazars under the instruction of the King, converted to the Jewish faith in 740 A.D., but of course that did not include converting their Asiatic Mongolian genes to the genes of the Jewish people.
+
+![jacobrothschild-compressor.jpg]({{site.baseurl}}/images/jacobrothschild-compressor.jpg)
+
 
 You will find that approximately 90% of people in the world today who call themselves Jews are actually Khazars, or as they like to be known, Ashkenazi Jews. These people knowingly lie to the world with their claims that the land of Israel is theirs by birthright, when in actual fact their real homeland is over 800 miles away in Georgia. 
 
@@ -776,3 +781,7 @@ Investopedia estimates the family’s total wealth at over $2 trillion in assets
     …their holdings span a number of diverse industries, including financial services, real estate, mining, energy and even charitable work.There are a few Rothschild-owned financial institutions still operating in Europe, including N M Rothschild & Sons Ltd in the United Kingdom, and Edmond de Rothschild Group in Switzerland. The family also owns more than a dozen wineries in North America, Europe, South America, South Africa and Australia.
 
 At $2 trillion plus, the family’s reported wealth is closing in on five times as much as the combined wealth of the world’s top 8 individual billionaires, meaning that the Rothschild family alone controls more wealth than perhaps three-fourths or more of the world’s total population.
+
+![552321_297406037039510_1338143790_n-compressor.jpg]({{site.baseurl}}/images/552321_297406037039510_1338143790_n-compressor.jpg)
+
+
