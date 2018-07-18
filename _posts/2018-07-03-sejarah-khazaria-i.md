@@ -1,8 +1,9 @@
 ---
 layout: post
-published: false
+published: true
 categories:
   - Tazkirah
+  - Perang Akhir Zaman
 author: tehnoblequran
 title: Sejarah Khazaria (i)
 ---
@@ -55,7 +56,7 @@ Seorang Pakar DNA yang bernama Dr. Eran Elhaik dari University Of Sheffield tela
 
 Mereka telah menukarkan identiti sebenar mereka dan telah mengistiharkan diri mereka sebagai yahudi.
 
-Jadi bagaimana mereka boleh mengaku bahawa kononnya Jerusalem adalah milik mereka? Mereka juga tidak ada hak untuk menjadikan Jerusalem sebagai ibu negara mereka.   
+Jadi bagaimana mereka boleh mengaku bahawa kononnya Jerusalem(Baitul Maqdis) adalah milik mereka? Mereka juga tidak ada hak untuk menjadikan Jerusalem sebagai ibu negara mereka.   
 
 ![Facts about Jews Khazars population]({{site.baseurl}}/images/khazar1.jpg)
 ![Facts about khazars by Dr Eran]({{site.baseurl}}/images/khazars2.png)
