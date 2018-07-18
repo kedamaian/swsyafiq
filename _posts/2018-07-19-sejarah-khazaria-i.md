@@ -1,6 +1,6 @@
 ---
 layout: post
-published: true
+published: false
 categories:
   - Tazkirah
   - Perang Akhir Zaman
@@ -78,4 +78,3 @@ Jadi bagaimana mereka boleh mengaku bahawa kononnya Jerusalem(Baitul Maqdis) ada
 - [https://concisepolitics.com/2017/03/06/history-of-the-khazar-peoples-of-eurasia-now-call-themselves-zionists/](https://concisepolitics.com/2017/03/06/history-of-the-khazar-peoples-of-eurasia-now-call-themselves-zionists/)
 
 - [http://www.khazaria.com/khazar-history.html](http://www.khazaria.com/khazar-history.html)
-
