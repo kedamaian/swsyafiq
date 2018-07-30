@@ -6,6 +6,8 @@ categories:
 author: tehnoblequran
 title: Menara babel
 ---
+Saya rasa kalau saya dan kakak ini hidup zaman Firaun mesti dia lebih kagum dengan apa yang ada pada zaman tu. Dari sudut teknologinya, tamadunnya, seni pembinaanya etc etc.
+
 Banyak negara sekarang berlumba-lumba membuat menara paling tinggi untuk menempa nama di medan antarabangsa. Mungkin kita terlupa pada zaman Firaun lagi menara telah didirikan ada yang kekal sehingga kini tetapi apa la sangat berbanding dengan kekuasaan Allah Taala.
 
 Menara, Obelisk dan Piramid merupakan asas-asas binaan Dajjal Laknatullah di seluruh dunia untuk menyambut kedatangannya dengan kaedah pengumpulan dan pengaliran tenaga negatif terus ke langit. Piramid, obelisk itu adalah cara pengumpulan tenaga dan tenaga yang disalurkan adalah tenaga negatif. Konsep yang sama juga digunakan di Masjid iaitu kubah. Kubah juga adalah salah satu binaan yang cukup baik untuk mengalirkan tenaga, dan tenaga yang dialirkan adalah tenaga positif. Ia adalah konsep yang mudah untuk difahami kan? Tower Of Babel ada disebutkan di dalam Al-Quran. Firaun telah mengarahkan pembinaan sebuah binaan tinggi untuk mencabar kekuasaan dan cuba memperlekehkan kuasa Allah S.W.T
@@ -32,19 +34,19 @@ Sehingga sekarang pun tidak diketahui secara pasti berapakah tinggi sebenarnya m
 
 *Pengembara pada abad ke 14, John Mandeville melaporkan tinggi menara menjulang keatas mencapai awan, setinggi 64 furlongs atau 12807.424 meter, berbeza dengan Burj Dubai iaitu 828 meter
 
-Awal Kehancuran Menara. Manusia tiba-tiba tak boleh berkomunikasi satu sama lain
+Awal Kehancuran Menara. Manusia tiba-tiba tak boleh berkomunikasi satu sama lain.
 
-Profesor J.E. Gordon mempertimbangkan ketinggian Menara Babel dalam bukunya “Struktur Atau Mengapa Sesuatu Tidak Jatuh ke Bawah” (1978–1984). Dia menulis, “Batu dan bata memiliki berat 120 lb per kaki bata (2000 kg per meter bata).
+Profesor J.E. Gordon mempertimbangkan ketinggian Menara Babel dalam bukunya “Struktur Atau Mengapa Sesuatu Tidak Jatuh ke Bawah” (1978–1984). Dia menulis, “Batu dan bata memiliki berat 120 lb per kaki bata (2000kg per meter bata).
 
-Akhir zaman ini manusia dilihat berlumba-lumba membina bangunan tinggi atau menara pencakar langit termasuk orang Islam. Mana-mana negara yang mempunyai bangunan tinggi mesti dianggap maju dan menjadi kebanggaan dan mercu tanda negara tersebut. Ini merupakan petanda hari kiamat sepertimana yang diriwayat dalam hadis Sahih Bukhori:
+Akhir zaman ini manusia dilihat berlumba-lumba membina bangunan tinggi atau menara pencakar langit termasuk orang Islam. Mana-mana negara yang mempunyai bangunan tinggi mesti dianggap maju dan menjadi kebanggaan dan mercu tanda negara tersebut. Ini merupakan petanda hari kiamat sepertimana yang diriwayat dalam hadis Sahih Bukhari:
 
 "Ketika pengembala(unta dan kambing) berlumba-lumba memdirikan bangunan tinggi, itu menjadi petanda tibanya kiamat."
 
 Jika kita melihat pada hari ini, bangunan yang tertinggi di dunia ialah Burj Dubai atau Burj Khalifa. Ketinggian menara Dubai mencapai 828meter (2,717 kaki). Dibina pada 2004. Ia dibuka secara rasmi pada Januari 2010. Kos pembinaan menara ini dianggar berjumlah $1.5 Billion.
 
-Jangan berasa zaman kita yang paling maju sedangkan kita belum ada sejarah buat tembok besar setinggi gunung, menara tertinggi zaman firaun, istana kota di tebuk di bina di dalam gunung, bahtera terbesar di dlm tamadun manusia, awet mayat, kota besar di permukaan air dan pelbagai lagi
+Jangan berasa zaman kita yang paling maju sedangkan kita belum ada sejarah buat tembok besar setinggi gunung(tembok yakjuj makjuj), menara tertinggi zaman firaun(menara babel), istana kota di tebuk di bina di dalam gunung, bahtera terbesar di dlm tamadun manusia, awet mayat, kota besar di permukaan air dan pelbagai lagi.
 
-Kesimpulannya Allah dah pernah beri kemajuan pada umat yang terdahulu, yang tak di beri pada kita umat akhir zaman 
+Kesimpulannya Allah dah pernah beri kemajuan pada umat yang terdahulu, yang tak di beri pada kita umat akhir zaman. Dan kemajuan, kerajaan dan apa yang ada dalam isinya semuanya hancur sekelip mata kerana kekufuran mereka.
 
 Semua dah di ceritakan melalui Al Quran & Hadis, ada bahagian yang tak dapat di jangkau dengan akal manusia.
 
