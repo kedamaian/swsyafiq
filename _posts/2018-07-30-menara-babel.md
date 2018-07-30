@@ -54,10 +54,10 @@ Semua dah di ceritakan melalui Al Quran & Hadis, ada bahagian yang tak dapat di 
 
 Usahkan zaman firaun, zaman nabi Allah Sulaiman lagi maju dari kita sekarang ni
 
-Nabi sulaiman kerajaan dia satu dunia (hujung barat hingga hujung timu, hujung utara sehingga hujung selatan) segala jin manusia binatang, makluk semua patuh pada dia. 
+Nabi sulaiman kerajaan dia satu dunia (hujung barat hingga hujung timu, hujung utara sehingga hujung selatan) segala jin manusia binatang, makluk semua patuh pada arahannya dengan izin Allah. 
 
 Allah ceritakan kepada kita melalui Rasulnya, Alquran di bukukan pada kita. Baca AlQuran yang dijiwai sesungguhnya akan menemukan khabar gembira, ada amaran, suri teladan, kesedaran dan keinsafan.
 
 Semak kaji selidik pelajari dan yang paling penting iktibar dan peringatan pada kita umat akhir zaman.
 
-Jangan melampaui batas. sesungguhnya sombong bongkak & takbur tidak layak di miliki pada makhluk.
+Pendeknya nak kata disini ialah jangan melampaui batas. sesungguhnya sombong bongkak & takabur tidak layak di miliki pada makhluk.
