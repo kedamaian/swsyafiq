@@ -52,7 +52,7 @@ Usahkan zaman firaun, zaman nabi Allah Sulaiman lagi maju dari kita sekarang ni
 
 Nabi sulaiman kerajaan dia satu dunia (hujung barat hingga hujung timu, hujung utara sehingga hujung selatan) segala jin manusia binatang, makluk semua patuh pada dia. 
 
-Allah ceritakan pada kita melalui Rasulnya, Alquran di bukukan pada kita. 
+Allah ceritakan pada kita melalui Rasulnya, Alquran di bukukan pada kita. Baca AlQuran yang dijiwai sesungguhnya akan menemukan khabar gembira, ada amaran, suri teladan, kesedaran dan keinsafan
 
 Semak kaji selidik pelajari dan yang paling penting iktibar dan peringatan pada kita umat akhir zaman.
 
