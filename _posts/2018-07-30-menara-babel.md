@@ -8,7 +8,7 @@ title: Menara babel
 ---
 Saya rasa kalau saya dan mak cik ini hidup zaman Firaun mesti dia lebih kagum dengan apa yang ada pada zaman tu. Dari sudut teknologinya, tamadunnya, kera jaannya, seni binaanya etc etc.
 
-Saya saja kaitkan zaman Firaun ni dengan kenyataan makcik ni yang kelihatan terlalu mengangkat negara sebelah sana dan fikrahnya kelihatan seperti too liberal. 
+Saya saja kaitkan zaman Firaun ni dengan kenyataan makcik ni yang kelihatan terlalu mengangkat negara sebelah sana sehinggakan dia tak sedar teknologi tu sebenarnya sudah lama dan fikrahnya kelihatan seperti too liberal. 
 
 Banyak negara sekarang berlumba-lumba membina menara paling tinggi untuk menempa nama di medan antarabangsa. Mungkin kita terlupa pada zaman Firaun lagi menara telah didirikan ada yang kekal sehingga kini tetapi apa la sangat berbanding dengan kekuasaan Allah Taala.
 
