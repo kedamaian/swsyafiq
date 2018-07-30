@@ -60,4 +60,4 @@ Allah ceritakan kepada kita melalui Rasulnya, Alquran di bukukan pada kita. Baca
 
 Semak kaji selidik pelajari dan yang paling penting iktibar dan peringatan pada kita umat akhir zaman.
 
-Pendeknya nak kata disini ialah jangan melampaui batas. sesungguhnya sombong bongkak & takabur tidak layak di miliki pada makhluk.
+Pendeknya nak kata disini ialah jangan melampaui batas. sesungguhnya sombong bongkak & takabur tidak layak di miliki pada makhluk lebih-lebih lagi penghuni akhir zaman seperti saya dan kita semua ni.
