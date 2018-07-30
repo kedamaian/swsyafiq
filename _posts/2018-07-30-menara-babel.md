@@ -52,7 +52,7 @@ Kesimpulannya Allah dah pernah beri kemajuan pada umat yang terdahulu, yang tak 
 
 Semua dah di ceritakan melalui Al Quran & Hadis, ada bahagian yang tak dapat di jangkau dengan akal manusia.
 
-Usahkan zaman firaun, zaman nabi Allah Sulaiman lagi maju dari kita sekarang ni
+Usahkan zaman firaun, zaman nabi Allah Sulaiman lagi maju dari kita sekarang ni.
 
 Nabi sulaiman kerajaan dia satu dunia (hujung barat hingga hujung timu, hujung utara sehingga hujung selatan) segala jin manusia binatang, makluk semua patuh pada arahannya dengan izin Allah. 
 
