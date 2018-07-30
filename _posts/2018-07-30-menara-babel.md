@@ -10,6 +10,8 @@ Saya rasa kalau saya dan mak cik ini hidup zaman Firaun mesti dia lebih kagum de
 
 Saya saja kaitkan zaman Firaun ni dengan kenyataan makcik ni yang kelihatan terlalu mengangkat negara sebelah sana sehinggakan dia tak sedar teknologi tu sebenarnya sudah lama dan fikrahnya kelihatan seperti too liberal. 
 
+Saya tak kata salah untuk dia kagum sekalipun, itu pendapat peribadi dan saya terima je tetapi kenyataan dia yang sedikit bercanggah dengan fakta bagi saya yang jahil ni.
+
 Banyak negara sekarang berlumba-lumba membina menara paling tinggi untuk menempa nama di medan antarabangsa. Mungkin kita terlupa pada zaman Firaun lagi menara telah didirikan ada yang kekal sehingga kini tetapi apa la sangat berbanding dengan kekuasaan Allah Taala.
 
 Menara, Obelisk dan Piramid merupakan asas-asas binaan Dajjal Laknatullah di seluruh dunia untuk menyambut kedatangannya dengan kaedah pengumpulan dan pengaliran tenaga negatif terus ke langit. Piramid, obelisk itu adalah cara pengumpulan tenaga dan tenaga yang disalurkan adalah tenaga negatif. Konsep yang sama juga digunakan di Masjid iaitu kubah. Kubah juga adalah salah satu binaan yang cukup baik untuk mengalirkan tenaga, dan tenaga yang dialirkan adalah tenaga positif. Ia adalah konsep yang mudah untuk difahami kan? Tower Of Babel ada disebutkan di dalam Al-Quran. Firaun telah mengarahkan pembinaan sebuah binaan tinggi untuk mencabar kekuasaan dan cuba memperlekehkan kuasa Allah S.W.T
