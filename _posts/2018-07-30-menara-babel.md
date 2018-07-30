@@ -8,13 +8,15 @@ title: Menara babel
 ---
 Saya rasa kalau saya dan mak cik ini hidup zaman Firaun mesti dia lebih kagum dengan apa yang ada pada zaman tu. Dari sudut teknologinya, tamadunnya, kera jaannya, seni binaanya etc etc.
 
-Banyak negara sekarang berlumba-lumba membuat menara paling tinggi untuk menempa nama di medan antarabangsa. Mungkin kita terlupa pada zaman Firaun lagi menara telah didirikan ada yang kekal sehingga kini tetapi apa la sangat berbanding dengan kekuasaan Allah Taala.
+Saya saja kaitkan zaman Firaun ni dengan kenyataan makcik ni yang kelihatan terlalu mengangkat negara sebelah sana dan fikrahnya kelihatan seperti too liberal. 
+
+Banyak negara sekarang berlumba-lumba membina menara paling tinggi untuk menempa nama di medan antarabangsa. Mungkin kita terlupa pada zaman Firaun lagi menara telah didirikan ada yang kekal sehingga kini tetapi apa la sangat berbanding dengan kekuasaan Allah Taala.
 
 Menara, Obelisk dan Piramid merupakan asas-asas binaan Dajjal Laknatullah di seluruh dunia untuk menyambut kedatangannya dengan kaedah pengumpulan dan pengaliran tenaga negatif terus ke langit. Piramid, obelisk itu adalah cara pengumpulan tenaga dan tenaga yang disalurkan adalah tenaga negatif. Konsep yang sama juga digunakan di Masjid iaitu kubah. Kubah juga adalah salah satu binaan yang cukup baik untuk mengalirkan tenaga, dan tenaga yang dialirkan adalah tenaga positif. Ia adalah konsep yang mudah untuk difahami kan? Tower Of Babel ada disebutkan di dalam Al-Quran. Firaun telah mengarahkan pembinaan sebuah binaan tinggi untuk mencabar kekuasaan dan cuba memperlekehkan kuasa Allah S.W.T
 
 Maksud surah Al-Qasas ayat 38:
 
-Dan Firaun pula berkata "wahai orang-orangku, aku tidak mengetahui ada bagi kamu sebarang tuhan yang lain daripadaku, oleh itu wahai Haman bakarkanlah bagiku batu-bata, serta binalah untukku bangunan yang tinggi supaya aku naik melihat Tuhan Musa (yang dikatakannya itu) dan sesungguhnya aku percaya adalah Musa dari orang-orang yang berdusta".
+Dan Firaun pula berkata "Wahai orang-orangku, aku tidak mengetahui ada bagi kamu sebarang tuhan yang lain daripadaku, oleh itu wahai Haman bakarkanlah bagiku batu-bata, serta binalah untukku bangunan yang tinggi supaya aku naik melihat Tuhan Musa (yang dikatakannya itu) dan sesungguhnya aku percaya adalah Musa dari orang-orang yang berdusta".
 
 Bangunan-bangunan tinggi yang dimaksudkan Firaun itu dengan nama lainnya dikenali sebagai Tower Of Babel. Cerita tentang Tower Of Babel ada juga disebut dalam Bible dan dipercayai oleh penganut Kabbalah. Salah satu binaan moden yang berasaskan Tower Of Babel ialah Parlimen EU.
 
@@ -24,7 +26,7 @@ Ahli kajisejarah yang lain, Abu al-Fida mengatakan perkara yang sama. Dengan men
 
 Menara Babil (Menurut Keterangan Sejarah)
 
-Sehingga sekarang pun tidak diketahui secara pasti berapakah tinggi sebenarnya menara Babel, namun beberapa sumber sejarah kanonikal mengatakan ketinggian asli dari menara yang hebat ini.
+Sehingga sekarang pun tidak diketahui secara pasti berapakah tinggi sebenarnya menara Babel, tetapi beberapa sumber sejarah kanonikal mengatakan ketinggian asli dari menara yang hebat ini.
 
 *Buku Yobel (The Book of Jubilees) menyebutkan ketinggiannya ialah 2484 meter, tiga kali ganda dari ketinggian Burj Dubai.
 
@@ -46,7 +48,7 @@ Jika kita melihat pada hari ini, bangunan yang tertinggi di dunia ialah Burj Dub
 
 Jangan berasa zaman kita yang paling maju sedangkan kita belum ada sejarah buat tembok besar setinggi gunung(tembok yakjuj makjuj), menara tertinggi zaman firaun(menara babel), istana kota di tebuk di bina di dalam gunung, bahtera terbesar di dlm tamadun manusia, awet mayat, kota besar di permukaan air dan pelbagai lagi.
 
-Kesimpulannya Allah dah pernah beri kemajuan pada umat yang terdahulu, yang tak di beri pada kita umat akhir zaman. Dan kemajuan, kerajaan dan apa yang ada dalam isinya semuanya hancur sekelip mata kerana kekufuran mereka.
+Kesimpulannya Allah dah pernah beri kemajuan pada umat yang terdahulu, yang tak di beri pada kita umat akhir zaman. Dan kemajuan, kerajaan dan apa segala yang ada dalam isinya semuanya hancur sekelip mata kerana kekufuran mereka.
 
 Semua dah di ceritakan melalui Al Quran & Hadis, ada bahagian yang tak dapat di jangkau dengan akal manusia.
 
