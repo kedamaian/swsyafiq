@@ -54,15 +54,17 @@ Dan setelah perang besar inilah yg nantinya Nabi Isa as akan turun semula dari l
 - Attajul Jami' Llusul (Juzuk 5 m/s 341)
 - Misykatul Masobih (Hadis 5456)
 
-Syeikh Ahmad Fahmi Bin Zamzam
-Ustaz Wadi Anuar Ayub
-Ustadz Zulkifli M Ali
-Syeikh Belal Assaad 
-Syeikh Yasir Qadhi
-Syaikh Omar Abdul Kafi
-Para Ulama Hadis
-Noam Chomsky
-Richard E. Byrd
+- Syeikh Ahmad Fahmi Bin Zamzam
+- Ustaz Wadi Anuar Ayub
+- Ustadz Zulkifli M Ali
+- Syeikh Belal Assaad 
+- Syeikh Yasir Qadhi
+- Syaikh Omar Abdul Kafi
+- Para Ulama Hadis
+- Noam Chomsky
+- Richard E. Byrd
 
-لا حول ولا قوة الا بالله
+
+> لا حول ولا قوة الا بالله
+
 They plan , and Allah also plans..and Allah is the best of planners. They will push for this kind of control and if they have no resistance they will succeed surely! However the creator will send nations against them and foil their plans at the end of the days.
