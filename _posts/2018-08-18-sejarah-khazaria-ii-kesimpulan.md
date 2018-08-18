@@ -3,6 +3,7 @@ layout: post
 published: false
 categories:
   - Tazkirah
+  - Perang Akhir Zaman
 author: tehnoblequran
 title: Sejarah Khazaria (ii) -Kesimpulan
 ---
@@ -63,4 +64,3 @@ Richard E. Byrd
 
 لا حول ولا قوة الا بالله
 They plan , and Allah also plans..and Allah is the best of planners. They will push for this kind of control and if they have no resistance they will succeed surely! However the creator will send nations against them and foil their plans at the end of the days.
- 
