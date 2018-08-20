@@ -1,8 +1,8 @@
 ---
 layout: post
-published: false
+published: true
 author: tehnoblequran
-title: Segalanya Mengenai Musuh Islam
+title: Simbol Musuh Islam
 categories:
   - Tazkirah
   - Perang Akhir Zaman
@@ -26,6 +26,7 @@ Simbol dan Number Illuminati Satan
 
 
 Pope’s 666 Hand-sign before Congress https://www.youtube.com/watch?v=vl-zk7cIRMo
+YOU WONT BELIEVE THE NEWEST SOCIAL MEDIA TREND...THE 666 CHALLENGE! https://www.youtube.com/watch?v=oWpyQpHkuWI
 By pope https://youtu.be/B29Nq9ID4uE?t=645, https://youtu.be/B29Nq9ID4uE?t=1859
 
 
