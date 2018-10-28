@@ -14,25 +14,25 @@ Saya terpanggil menulis, dengan kapasiti ceteknya ilmu saya, sekadar dari persep
 
 **SIAPA HABIB atau HABAIB (plural)?**
 
-Ya, saya percaya ramai yg sudah tahu gelaran HABIB digelarkan kepada para ULAMA berketurunan Rasulullah S.A.W khususnya dari jalur keturunan yg datang dari Hadramawt, Yaman seperti antaranya keturunan Al-Habsyi, Al-Jufri, Al-Hamid, Al-Khired, Al-Haddad, As-Seggaf, Al-Attas, Al-Idrus, Ben Yahya, Ben Hafidz dan banyak lagi. Habib yg membawa maksud yg difahami sebagai ‘Kekasih’ atau ‘yang dikasihi’ atau ‘yang dicintai’ ialah gelaran atas dasar menghormati, mengasihi dan mencintai keluarga Nabi, anak cucu dan keturunan baginda Rasulullah seperti yg digalakkan sendiri oleh baginda Rasulullah untuk mencintai mereka dalam banyak hadis-hadis baginda.
+Ya, saya percaya ramai yg sudah tahu gelaran HABIB digelarkan kepada para ULAMA berketurunan Rasulullah shalallahu alaihi wasallam khususnya dari jalur keturunan yg datang dari Hadramawt, Yaman seperti antaranya keturunan Al-Habsyi, Al-Jufri, Al-Hamid, Al-Khired, Al-Haddad, As-Seggaf, Al-Attas, Al-Idrus, Ben Yahya, Ben Hafidz dan banyak lagi. Habib yg membawa maksud yg difahami sebagai ‘Kekasih’ atau ‘yang dikasihi’ atau ‘yang dicintai’ ialah gelaran atas dasar menghormati, mengasihi dan mencintai keluarga Nabi, anak cucu dan keturunan baginda Rasulullah seperti yg digalakkan sendiri oleh baginda Rasulullah untuk mencintai mereka dalam banyak hadis-hadis baginda.
 
 Dari pemerhatian saya, gelaran habib ini bukanlah sewenang-wenangnya diberikan kepada semua yang berjalur keturunan yg saya sebutkan tadi, tetap selalunya khusus kepada para alim-ulama di kalangan mereka. Ramai juga sahabat-sahabat saya berketurunan syed dari jalur Al-Yahya, Al-Bukhary, Al-Idrus contohnya tidak pula kami memanggil mereka dengan gelaran habib.
 
-Setelah saya mengkaji secara ringkas, memang terdapat ramai alim ulama Ahli Sunnah wal Jamaah dari kalangan keturunan Rasulullah S.A.W di seluruh dunia, Cuma gelaran HABIB ini hanya digunakan di rantau Nusantara ini sahaja serta di Yaman, dan pastinya kerana Ulama-ulama habaib ini yg datang ke rantau ini dalam misi dakwah Islam satu masa dahulu. Jadi tiada masalahnya dengan gelaran Habib ini, kalau di sebelah Mesir contohnya, mereka ini selalu dikenali dengan gelaran jalur keturunan seperti Al-Hasani, manakala yang datang dari Mekah dulunya membawa dakwah Islam ke Malaysia pula digelar dengan gelaran Syarif.
+Setelah saya mengkaji secara ringkas, memang terdapat ramai alim ulama Ahli Sunnah wal Jamaah dari kalangan keturunan Rasulullah shalallahu alaihi wasallam di seluruh dunia, Cuma gelaran HABIB ini hanya digunakan di rantau Nusantara ini sahaja serta di Yaman, dan pastinya kerana Ulama-ulama habaib ini yg datang ke rantau ini dalam misi dakwah Islam satu masa dahulu. Jadi tiada masalahnya dengan gelaran Habib ini, kalau di sebelah Mesir contohnya, mereka ini selalu dikenali dengan gelaran jalur keturunan seperti Al-Hasani, manakala yang datang dari Mekah dulunya membawa dakwah Islam ke Malaysia pula digelar dengan gelaran Syarif.
 
 Bahkan golongan yang digelar Habib ini dulunya sewaktu datang ke Tanah Melayu digelar pula dengan gelaran Said atau Tuan Syed dan sebagainya. Bahkan ada juga yang menyorokkan gelaran dan keturunan mereka, mungkin juga atas faktor keselamatan ketika di zaman penjajah dan lebih selesa hanya dengan gelaran warga kampung tempatan seperti Tok atau Tokku begitu sahaja.
 
 **HABIB SUDAH LAMA DATANG KE MALAYSIA (BUKAN 2-3 TAHUN LALU TAPI BERATUS TAHUN DAHULU)**
 
-Jadi bukanlah baru semalam Habaib ini datang ke Malaysia? Jadi, bukanlah fenomena yg mereka bawa ini baru terjadi setahun dua ini? Ya, bukan, bahkan, kiranya mereka ini tidak mengharungi badai lautan datang berlayar ke Tanah Melayu atau ke Nusantara ini, boleh jadi nama kita sekarang ini bukanlah Muhammad atau Abdullah, tapi sebaliknya mungkin Merong Mahawangsa, atau Sang Sapurba, dan tiada pulalah Majlis-majlis seperti Marhaban Berzanji, Berqasidah atau Berselawat apatah lagi Solat berjemaah serta membaca Al-quran dan seluruh syiar Islam yg sedang kita nikmati sekarang ini di bumi Tanah Melayu ini. Begitulah kuatnya genetik seorang daie, pendakwah, yg dibawa dalam nasab keturunan mereka dari datuk/moyang mereka iaitu nabi kita tercinta yg juga kita gelarkan HABIB iaitulah Habibuna AlMustofa Muhammad Rasulullah S.A.W.
+Jadi bukanlah baru semalam Habaib ini datang ke Malaysia? Jadi, bukanlah fenomena yg mereka bawa ini baru terjadi setahun dua ini? Ya, bukan, bahkan, kiranya mereka ini tidak mengharungi badai lautan datang berlayar ke Tanah Melayu atau ke Nusantara ini, boleh jadi nama kita sekarang ini bukanlah Muhammad atau Abdullah, tapi sebaliknya mungkin Merong Mahawangsa, atau Sang Sapurba, dan tiada pulalah Majlis-majlis seperti Marhaban Berzanji, Berqasidah atau Berselawat apatah lagi Solat berjemaah serta membaca Al-quran dan seluruh syiar Islam yg sedang kita nikmati sekarang ini di bumi Tanah Melayu ini. Begitulah kuatnya genetik seorang daie, pendakwah, yg dibawa dalam nasab keturunan mereka dari datuk/moyang mereka iaitu nabi kita tercinta yg juga kita gelarkan HABIB iaitulah Habibuna AlMustofa Muhammad Rasulullah shalallahu alaihi wasallam.
 
-Saya agak kasihan dan sedih bila ada di kalangan sahabat-sahabat saya juga sendiri memperlekehkan dan menyindir anak cucu baginda Rasulullah S.A.W. yg kita gelarkan habib ini sedangkan beratus tahun sebelum kelahiran mereka yg menyindir ini lagi para habaib ini sudah datang membawa risalah Islam ke bumi tanah melayu ini. Kalau pun tidak suka, sekurang-kurangnya kita renung balik nikmat Islam dan Iman yg kita miliki hari ini yg dibawa oleh baginda Rasulullah S.A.W melalui pendakwah-pendakwah yang di antaranya dari kalangan para habaib ini sendiri. Kenanglah jasa mereka ini dengan kita menghormati dan meraikan anak cucu mereka.
+Saya agak kasihan dan sedih bila ada di kalangan sahabat-sahabat saya juga sendiri memperlekehkan dan menyindir anak cucu baginda Rasulullah shalallahu alaihi wasallam yg kita gelarkan habib ini sedangkan beratus tahun sebelum kelahiran mereka yg menyindir ini lagi para habaib ini sudah datang membawa risalah Islam ke bumi tanah melayu ini. Kalau pun tidak suka, sekurang-kurangnya kita renung balik nikmat Islam dan Iman yg kita miliki hari ini yg dibawa oleh baginda Rasulullah shalallahu alaihi wasallam melalui pendakwah-pendakwah yang di antaranya dari kalangan para habaib ini sendiri. Kenanglah jasa mereka ini dengan kita menghormati dan meraikan anak cucu mereka.
 
 **HABAIB DI ZAMAN DAHULU**
 
-Wali Songo atau wali Sembilan yg terkenal dalam catatan sejarah yang membawa ajaran Islam ke bumi Nusantara ini juga adalah dari kalangan mereka. Ulama’- ulama ini terkenal dengan pendekatan dakwah mereka yg menyesuaikan caranya dengan kebudayaan dan tradisi penduduk setempat tanpa menyalahi syariat Islam. Mungkin ramai yg tidak menyedari bahawa Wali Songo ini terdiri dari ulama habaib (keturunan Rasulullah) dari generasi yg ke 22, 23 dan 24.
+Wali Songo atau wali Sembilan yg terkenal dalam catatan sejarah yang membawa ajaran Islam ke bumi Nusantara ini juga adalah dari kalangan mereka. Ulama-ulama ini terkenal dengan pendekatan dakwah mereka yg menyesuaikan caranya dengan kebudayaan dan tradisi penduduk setempat tanpa menyalahi syariat Islam. Mungkin ramai yg tidak menyedari bahawa Wali Songo ini terdiri dari ulama habaib (keturunan Rasulullah) dari generasi yg ke 22, 23 dan 24.
 
-Antaranya Sunan Gresik atau nama sebenarnya Maulana Malik Ibrahim adalah keturuan ke 22 Nabi Muhammad S.A.W. Nasab beliau adalah seperti berikut: As-Sayyid Maulana Malik Ibrahim bin As-Sayyid Barakat Zainal Alam bin As-Sayyid Husain Jamaluddin bin As-Sayyid Ahmad Jalaluddin bin As-Sayyid Abdullah bin As-Sayyid Abdul Malik Azmatkhan bin As-Sayyid Alwi Ammil Faqih bin As-Sayyid Muhammad Shahib Mirbath bin As-Sayyid Ali Khali’ Qasam bin As-Sayyid Alwi bin As-Sayyid Muhammad bin As-Sayyid Alwi bin As-Sayyid Ubaidillah bin Al-Imam Ahmad Al-Muhajir bin Al-Imam Isa bin Al-Imam Muhammad bin Al-Imam Ali Al-Uraidhi bin Al-Imam Ja’far Shadiq bin Al-Imam Muhammad Al-Baqir bin Al-Imam Ali Zainal Abidin bin Al-Imam Al-Husain bin Sayyidah Fathimah Az-Zahra/Ali bin Abi Thalib, binti Nabi Muhammad Rasulullah s.a.w.
+Antaranya Sunan Gresik atau nama sebenarnya Maulana Malik Ibrahim adalah keturuan ke 22 Nabi Muhammad shalallahu alaihi wasallam. Nasab beliau adalah seperti berikut: As-Sayyid Maulana Malik Ibrahim bin As-Sayyid Barakat Zainal Alam bin As-Sayyid Husain Jamaluddin bin As-Sayyid Ahmad Jalaluddin bin As-Sayyid Abdullah bin As-Sayyid Abdul Malik Azmatkhan bin As-Sayyid Alwi Ammil Faqih bin As-Sayyid Muhammad Shahib Mirbath bin As-Sayyid Ali Khali’ Qasam bin As-Sayyid Alwi bin As-Sayyid Muhammad bin As-Sayyid Alwi bin As-Sayyid Ubaidillah bin Al-Imam Ahmad Al-Muhajir bin Al-Imam Isa bin Al-Imam Muhammad bin Al-Imam Ali Al-Uraidhi bin Al-Imam Ja’far Shadiq bin Al-Imam Muhammad Al-Baqir bin Al-Imam Ali Zainal Abidin bin Al-Imam Al-Husain bin Sayyidah Fathimah Az-Zahra/Ali bin Abi Thalib, binti Nabi Muhammad Rasulullah shalallahu alaihi wasallam.
 
 Begitu juga dengan Sunan Ampel-Raden Rahmat (generasi ke-22), Sunan Bonang-Makhdum Ibrahim (23), sunan drajat(23), sunan kudus(24), sunan giri, sunan Gunung Jati- Syarif Hidayatullah dan lain-lainnya.
 
@@ -60,9 +60,9 @@ Ketika Sayyid Ahmad Jamalullail di Kedah, beliau menikahi seorang wanita dari an
 
 Pendek kata, jika kita menelusuri sejarah Tanah Melayu, di setiap negeri-negeri di Malaysia, pasti kita akan temui jasa dan pengorbanan Ulama-ulama Habaib, Syarif, Sayyid dan lain-lainnya tanpa kita menafikan sedikit pun jasa dan pengorbanan Ulama-Ulama dan pejuang-pejuan dakwah yang tidak berketurunan Habaib ini.
 
-Tujuan artikel ini dibuat, ialah supaya generasi baru tahu dan kenal betapa dekatnya kita dengan ulama-ulama berketurunan Rasulullah S.A.W dalam masyarakat kita, dan ia bukannya sehari dua atau setahun dua yang lalu mereka baru datang ke Malaysia.
+Tujuan artikel ini dibuat, ialah supaya generasi baru tahu dan kenal betapa dekatnya kita dengan ulama-ulama berketurunan Rasulullah shalallahu alaihi wasallam dalam masyarakat kita, dan ia bukannya sehari dua atau setahun dua yang lalu mereka baru datang ke Malaysia.
 
-Kalau pun kita tidak suka dan tidak mahu menganggap mereka seseorang yang mulia, atau kita mengatakan mereka hanya insan biasa tiada kelebihannya, janganlah pula sampai kita mencerca dan memaki mereka, mengejek dan mempermainkan mereka, bimbang kalau-kalau perlakuan kita tidak beradab dan melukakan pula hati Datuk mereka yang kita cintai, iaitu Rasulullah S.A.W.
+Kalau pun kita tidak suka dan tidak mahu menganggap mereka seseorang yang mulia, atau kita mengatakan mereka hanya insan biasa tiada kelebihannya, janganlah pula sampai kita mencerca dan memaki mereka, mengejek dan mempermainkan mereka, bimbang kalau-kalau perlakuan kita tidak beradab dan melukakan pula hati Datuk mereka yang kita cintai, iaitu Rasulullah shalallahu alaihi wasallam.
 
 **Jadi bagi sahabat-sahabat saya yang bertanya apa kelebihan Para Habaib ini?**
 
@@ -82,17 +82,17 @@ Berikut saya kutip beberapa terjemahan Hadits.
 “Didiklah anak-anak kalian atas tiga hal. Mencintai Nabi kalian. Mencintai Ahli bait-ku. Membaca al-Qur’an.
 (Diriwayatkan oleh Ibnu Mundzir, Ibnu Abi Hatim, Ibnu Mardaweih, dan at-Thabrani dalam kitab tafsir-nya)
 
-Rasulullah SAW juga selalu mengingatkan umatnya agar mencintai ahli keluarganya. Sabda Rasulullah SAW:
+Rasulullah shalallahu alaihi wasallam juga selalu mengingatkan umatnya agar mencintai ahli keluarganya. Sabda Rasulullah shalallahu alaihi wasallam:
 
 عَنْ ابْنِ عَبَّاسٍ قَالَ: قَالَ رَسُولُ اللَّهِ صَلَّى اللَّهُ عَلَيْهِ وَسَلَّمَ: أَحِبُّوا اللَّهَ لِمَا يَغْذُوكُمْ مِنْ نِعَمِهِ وَأَحِبُّونِي بِحُبِّ اللَّهِ وَأَحِبُّوا أَهْلَ بَيْتِي بِحُبِّي.
 
 Maksudnya:
 
-Dari Ibn’Abbas r.a bahawasanya Rasulullah SAW telah bersabda: “Cintailah Allah kerana nikmat kurniaan-Nya memberikan kamu makan. Cintailah aku kerana cintakan Allah dan cintailah ahli keluargaku kerana mencintaiku.”
+Dari Ibn’Abbas r.a bahawasanya Rasulullah shalallahu alaihi wasallam telah bersabda: “Cintailah Allah kerana nikmat kurniaan-Nya memberikan kamu makan. Cintailah aku kerana cintakan Allah dan cintailah ahli keluargaku kerana mencintaiku.”
 (Riwayat al-Hakim: 4716)
 Al-Hakim mengatakan bahawa hadis ini sahih sanadnya, namun tidak dikeluarkan oleh al-Bukhari dan Muslim di dalam kitabnya. Begitu juga dengan al-Zahabi di dalam kitabnya, al-Talkhis. Al-Zahabi mengatakan bahawa hadis ini sahih.
 
-Terdapat juga hadis Nabi SAW yang menganjurkan kita agar mengasihi ahl al-baytnya dan menjauhkan perasaan benci terhadap mereka, iaitu sebuah hadis yang telah diriwayatkan oleh Abu Sa’id al-Khudri bahawa Rasulullah SAW telah bersabda:
+Terdapat juga hadis Nabi shalallahu alaihi wasallam yang menganjurkan kita agar mengasihi ahl al-baytnya dan menjauhkan perasaan benci terhadap mereka, iaitu sebuah hadis yang telah diriwayatkan oleh Abu Sa’id al-Khudri bahawa Rasulullah shalallahu alaihi wasallam telah bersabda:
 
 وَالَّذِيْ نَفْسِ بِيَدِهِ لاَ يُبْغِضُنَا أَهْلَ الْبَيْتِ أَحَدٌ إَلاَّ أَدْخَلَهُ اللهُ النَّارَ.
 
@@ -103,16 +103,16 @@ Maksudnya:
 
 Hadis ini sahih mengikut syarat Muslim dan tidak dikeluarkan oleh al-Bukhari dan Muslim di dalam kitab mereka.
 
-Begitulah peringatan dan ancaman yang telah dikhabarkan oleh Rasulullah SAW kepada umat Islam, betapa kita perlu untuk menyayangi ahli bayt baginda SAW dan jangan pula membenci mereka.
+Begitulah peringatan dan ancaman yang telah dikhabarkan oleh Rasulullah shalallahu alaihi wasallam kepada umat Islam, betapa kita perlu untuk menyayangi ahli bayt baginda shalallahu alaihi wasallam dan jangan pula membenci mereka.
 
 **Akhir sekali, marilah kita hayati sebuah Hadis dari Ibnu Mas‘ud:**
 
-Maksudnya: Dari Abdullah bin Mas’ud dia berkata: “Ketika kami berada di sisi Rasulullah SAW, tiba-tiba datang sekumpulan anak muda dari kalangan Bani Hasyim. Apabila terpandang akan mereka, maka kedua mata Rasulullah SAW berlinang air mata dan wajah baginda berubah. Aku pun bertanya, “Mengapa kami melihat pada wajahmu sesuatu yang tidak kami sukai?”
+Maksudnya: Dari Abdullah bin Mas’ud dia berkata: “Ketika kami berada di sisi Rasulullah shalallahu alaihi wasallam, tiba-tiba datang sekumpulan anak muda dari kalangan Bani Hasyim. Apabila terpandang akan mereka, maka kedua mata Rasulullah shalallahu alaihi wasallam berlinang air mata dan wajah baginda berubah. Aku pun bertanya, “Mengapa kami melihat pada wajahmu sesuatu yang tidak kami sukai?”
 
 Baginda menjawab, “Kami Ahlul Bait telah Allah pilih untuk kami Akhirat lebih dari dunia. Kaum kerabatku akan menerima bencana dan penyingkiran selepasku kelak sehinggalah datang suatu kaum dari sebelah Timur dengan membawa bersama-sama mereka panji-panji berwarna hitam. Mereka meminta kebaikan tetapi tidak diberikannya. Maka mereka pun berjuang dan beroleh kejayaan lalu diberikanlah apa yang mereka minta itu tetapi mereka tidak menerima sehinggalah mereka menyerahkannya kepada seorang lelaki dari kaum kerabatku yang memenuhi bumi dengan keadilan sebagai mana ia dipenuhi dengan kedurjanaan. Siapa di antara kamu yang sempat menemuinya maka datangilah mereka walaupun merangkak di atas salji. Sesungguhnya dia adalah Al Mahdi.”
 (Riwayat Ibnu Majah) (Lihat kitab Al Hawi lil Fatawa, m.s. 71-72)
 
-Semoga Allah menanamkan dalam hati kita kecintaan kepada Rasulullah S.A.W dan ahli keluarga dan keturunan baginda serta para sahabat ridhwanullah alaihim ajmain. Sehingga di akhir zaman nanti, anak cucu kita akan tergolong dalam mereka yang menyokong dan mengikuti Imam yang datang dari keturunan baginda iaitu Al-Mahdi, dan bukan kita dijadikan di kalangan kelompok yang membencinya, dan memeranginya, nauzubillahi min zaalik.
+Semoga Allah menanamkan dalam hati kita kecintaan kepada Rasulullah shalallahu alaihi wasallam dan ahli keluarga dan keturunan baginda serta para sahabat ridhwanullah alaihim ajmain. Sehingga di akhir zaman nanti, anak cucu kita akan tergolong dalam mereka yang menyokong dan mengikuti Imam yang datang dari keturunan baginda iaitu Al-Mahdi, dan bukan kita dijadikan di kalangan kelompok yang membencinya, dan memeranginya, nauzubillahi min zaalik.
 Wallahu a’lam.
 
 Al-Faqir:
