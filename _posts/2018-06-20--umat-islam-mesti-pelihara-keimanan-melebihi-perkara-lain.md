@@ -6,7 +6,7 @@ categories:
 author: tehnoblequran
 title: ' Umat Islam Mesti Pelihara Keimanan Melebihi Perkara Lain'
 ---
-Mukmin sejati menyedari pentingnya memelihara iman-tauhidnya bahkan sebelum puncak fitnah iaitu Ad-Dajjal akan keluar ke tengah umat manusia. Bahkan ketika dunia diwarnai oleh aneka fitnah pra-Dajjal seorang mukmin telah bersusah-payah memelihara iman-tauhidnya dengan tidak terjebak oleh aneka fitnah tersebut. Bahkan ketika dunia modern membentuk dirinya menjadi sebuah Novus Ordo Seclorum (Peraturan Dunia Baru) alias Sistem Dajjal ia telah memasang sikap dan bersedia memelihara iman-tauhidnya.
+Mukmin sejati menyedari pentingnya memelihara iman-tauhidnya bahkan sebelum puncak fitnah iaitu Ad-Dajjal akan keluar ke tengah umat manusia. Bahkan ketika dunia diwarnai oleh aneka fitnah pra-Dajjal seorang mukmin telah bersusah-payah memelihara iman-tauhidnya dengan tidak terjerumus oleh aneka fitnah tersebut. Bahkan ketika dunia modern membentuk dirinya menjadi sebuah Novus Ordo Seclorum (Peraturan Dunia Baru) alias Sistem Dajjal ia telah memasang sikap dan bersedia memelihara iman-tauhidnya.
  
 Seorang mukmin sejati tidak bakal tertipu oleh ideologi kafir yang menyerukan sekularisme, pluralisme dan liberalisme dibungkus slogan palsu seperti sikap kesaksamaan universal, tiada diskrimasi, keadilan serta kebebasan. Seorang mukmin sejati tidak bakal tertipu oleh sistem hukum kafir yang memberikan kekuasaan kepada manusia untuk membuat undang-undang mengikut hawa nafsu mereka tanpa berpandukan perintah Allah dan RasulNya. Seorang mukmin yang sejati akan berjuang menegakkan syariat Islam yang telah ditetapkan Allah walaupun di tentang oleh orang kafir dan munafik.
  
