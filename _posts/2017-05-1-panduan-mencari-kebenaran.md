@@ -15,7 +15,7 @@ Bagaimana nak tahu yang mana satu yang benar ?
 وَالَّذِىْ نَفْسُ مُحَمَّدٍ بِيَدِهِ, لَتَفْتَرِقُ اُمَّتِى عَلىَ ثَلاَثٍ وَسَبْعِيْنَ فِرْقَةً. فَوَاحِدَةً فى الْجَنَّةُ وَثِنْتَانِ وَسَبْعُوْنَ فِى النَّارِ. قِيْلَ: مَنْ هُمْ يَارَسُوْلُ اللهِ؟ قَالَ: اَهْلُ السُّنَّةِ وَالْجَمَاعَةِ
 (رواه الطبرانى)
 
-Rasulullah SAW bersumpah: "Demi zat yang menguasai jiwa Muhammad, sungguh umatku bakal terpecah menjadi 73 golongan. Maka yang satu golongan masuk syurga, sedangkan yang 72 golongan masuk neraka. Sahabat bertanya: Siapakah golongan (yang masuk Syurga) itu ya Rasulullah? Baginda menjawab: Ahlus sunnah Wal jamaah” (HR. al-Tabrani)
+Rasulullah shalallahu alaihi wasallam bersumpah: "Demi zat yang menguasai jiwa Muhammad, sungguh umatku bakal terpecah menjadi 73 golongan. Maka yang satu golongan masuk syurga, sedangkan yang 72 golongan masuk neraka. Sahabat bertanya: Siapakah golongan (yang masuk Syurga) itu ya Rasulullah? Baginda menjawab: Ahlus sunnah Wal jamaah” (HR. al-Tabrani)
 
 Ulasan Ishaq ibn Rahawaih, seorang ulama Salaf yang terkemuka: “Al-Jama’ah itu adalah para ulama yang berpegang pada atsar Nabi shallallaahu ‘alaihi wa sallam dan jalannya. Sesiapa bersama mereka dan mengikuti mereka, maka merekalah Al-Jama’ah”. (Hilyatul-Auliyaa’ (9/239).
 
