@@ -8,11 +8,11 @@ categories:
 ---
 Kemanisan iman (Halawatul Iman) tidak boleh dirasai jika kita tidak memulakan langkah untuk memahami hikmat di sebalik setiap apa yang kita lakukan, mengapa dan bagaimana kita lakukannya.
 
-Kesedaran diri adalah kata awalan terhadap setiap amalan yang kita buat. Diriwayatkan daripada Anas bin Malik, Rasulullah SAW bersabda bermaksud: ❝Ada tiga hal, yang jika tiga hal itu ada pada seseorang, maka dia akan berasakan manisnya iman. (Iaitu) Allah dan Rasul-Nya lebih dia cintai daripada selain keduanya; mencintai seseorang, dia tidak mencintainya kecuali kerana Allah; benci untuk kembali kepada kekufuran selepas Allah menyelamatkan darinya, seperti bencinya jika dicampakkan ke dalam api.❞ (Muttafaq alaih)
+Kesedaran diri adalah kata awalan terhadap setiap amalan yang kita buat. Diriwayatkan daripada Anas bin Malik, Rasulullah shalallahu alaihi wasallam bersabda bermaksud: ❝Ada tiga hal, yang jika tiga hal itu ada pada seseorang, maka dia akan berasakan manisnya iman. (Iaitu) Allah dan Rasul-Nya lebih dia cintai daripada selain keduanya; mencintai seseorang, dia tidak mencintainya kecuali kerana Allah; benci untuk kembali kepada kekufuran selepas Allah menyelamatkan darinya, seperti bencinya jika dicampakkan ke dalam api.❞ (Muttafaq alaih)
 
  
 
-    Anas berkata, ❝Aku melayani Rasulullah SAW selama sepuluh tahun, Baginda tidak pernah memukulku, tidak pernah mencelaku dan tidak pernah bermuka masam di hadapanku. Rasulullah SAW mendoakan Anas dikurnia harta dan anak yang ramai dan doa Baginda dikabulkan Allah.❞
+    Anas berkata, ❝Aku melayani Rasulullah shalallahu alaihi wasallam selama sepuluh tahun, Baginda tidak pernah memukulku, tidak pernah mencelaku dan tidak pernah bermuka masam di hadapanku. Rasulullah shalallahu alaihi wasallam mendoakan Anas dikurnia harta dan anak yang ramai dan doa Baginda dikabulkan Allah.❞
 
  
 
@@ -54,18 +54,18 @@ Kata kunci segala permasalahan ini adalah ikhlas. Mengikut Imam Ibnul Qayyim, an
 
  
 
-Mencintai Rasulullah SAW yang menyusul selepas mencintai Allah adalah ciri terpenting yang harus dimiliki sesiapa saja yang ingin berasakan kelazatan iman. Cinta Allah dan Rasul-Nya adalah kayu ukur bagi kecintaan terhadap diri sendiri, orang tua, anak dan seluruh manusia.
+Mencintai Rasulullah shalallahu alaihi wasallam yang menyusul selepas mencintai Allah adalah ciri terpenting yang harus dimiliki sesiapa saja yang ingin berasakan kelazatan iman. Cinta Allah dan Rasul-Nya adalah kayu ukur bagi kecintaan terhadap diri sendiri, orang tua, anak dan seluruh manusia.
 
  
 
-Suatu ketika Saidina Umar berkata kepada Nabi SAW:
+Suatu ketika Saidina Umar berkata kepada Nabi shalallahu alaihi wasallam:
 
 ❝Wahai Rasulullah, sungguh engkau lebih aku cintai daripada segala sesuatu apa pun, kecuali diriku.❞
 
  
 
-Maka Nabi SAW menjawab, ❝Bukan begitu, demi zat yang jiwaku berada di tangan-Nya, sehingga aku lebih engkau cintai daripada dirimu sendiri.❞ Maka Umar menjawab, ❝Demi Allah, sesungguhnya engkau sekarang lebih aku cintai daripada diriku sendiri.❞
+Maka Nabi shalallahu alaihi wasallam menjawab, ❝Bukan begitu, demi zat yang jiwaku berada di tangan-Nya, sehingga aku lebih engkau cintai daripada dirimu sendiri.❞ Maka Umar menjawab, ❝Demi Allah, sesungguhnya engkau sekarang lebih aku cintai daripada diriku sendiri.❞
 
-Maka Nabi SAW menjawab, ❝Sekarang Umar, (telah sempurna imanmu).❞
+Maka Nabi shalallahu alaihi wasallam menjawab, ❝Sekarang Umar, (telah sempurna imanmu).❞
 
-Anas juga meriwayatkan daripada Rasulullah SAW, beliau bersabda yang bermaksud: "Tidak beriman salah seorang di antara kalian, sehingga aku lebih dia cintai daripada orang tuanya, anaknya dan seluruh manusia."
+Anas juga meriwayatkan daripada Rasulullah shalallahu alaihi wasallam, beliau bersabda yang bermaksud: "Tidak beriman salah seorang di antara kalian, sehingga aku lebih dia cintai daripada orang tuanya, anaknya dan seluruh manusia."
