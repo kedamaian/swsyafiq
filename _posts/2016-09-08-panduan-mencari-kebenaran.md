@@ -14,7 +14,7 @@ Dari ‘Auf bin Malik, dia berkata: “Rasulullah Shallallahu ‘alaihi wa salla
 
 Al-Hafidz Ibnu Hajar rahimahullah dalam Kitab Fathul Bari XII/37 menukil perkataan Imam Thabari rahimahullah yang menyatakan: “Berkata para ulama, bahwa jama’ah adalah as-sawadul a’zham (kaum majoriti)".
 
-> Rasulullah s.a.w. bersabda yang bermaksud:
+> Rasulullah shalallahu alaihi wasallam bersabda yang bermaksud:
 “Sesungguhnya umat aku (umat Islam) tidak akan berhimpun dalam kesesatan. Jika kamu melihat perselisihan (dalam kalangan mereka), maka hendaklah kamu mengikuti sawadul a’zhom (majoriti umat Islam). Sesungguhnya, sesiapa yang terasing, maka dia akan terasing dalam neraka“ (Hadith riwayat Ibn Majah)
 
 
