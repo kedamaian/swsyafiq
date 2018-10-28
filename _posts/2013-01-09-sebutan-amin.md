@@ -23,7 +23,7 @@ Sebutan “AMIN” yang kurang tepat ketika mengaminkan doa atau selepas al-fati
 4. AAAAAM-MIIIIIIN - (A: panjang 5 harakat, mim:bertasydid, dan MIN: panjang), ertinya ‘orang yang bermaksud menuju suatu tempat’.
 
 
-“Bila Nabi SAW selesai membaca Al-Fatihah (dalam solat), baginda mengucapkan AMIN dengan suara keras dan panjang.” (HR. Bukhari dan Abu Dawud)
+“Bila Nabi shalallahu alaihi wasallam selesai membaca Al-Fatihah (dalam solat), baginda mengucapkan AMIN dengan suara keras dan panjang.” (HR. Bukhari dan Abu Dawud)
 
 Abu Hurairah meriwayatkan sebagai berikut: "Bersabda Nabi: "Apabila imam membaca amin hendaklah kamu membaca AMIN, kerana sesungguhnya para malaikat juga membaca AMIN bersama dengan imam. Sesiapa yang bersamaan ucapan AMINnya dengan ucapan AMIN para malaikat, akan diampuni dosa-dosanya yang lalu". (HR. Muslim)
 
