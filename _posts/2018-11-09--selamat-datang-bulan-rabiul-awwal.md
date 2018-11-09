@@ -13,7 +13,7 @@ title: ' Selamat datang bulan Rabiul Awwal'
 
 
 
-Selamat datang bulan Rabiul Awwal, Selamat datang duhai Pemberi syafaat kami.
+Ahlan Wa Sahlan Ya Robi' Al Anwar, Selamat datang duhai Pemberi syafaat kami.
 
 Kebahagian diri bertambah apabila masuknya bulan Rabi'
 
