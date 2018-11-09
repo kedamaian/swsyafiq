@@ -39,5 +39,5 @@ Sebahagian kelebihan bumi Madinah:
 
 Suntingan dari kitab الدخائر القدسية الى زيارة خير البرية
 
-Selepas subuh Jumaat
-1 Rabiulawwal.
+Selepas solat Jumaat
+1 Rabiulawwal 1440H.
