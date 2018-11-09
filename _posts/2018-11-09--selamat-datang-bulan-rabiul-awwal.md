@@ -17,7 +17,7 @@ Selamat datang bulan Rabiul Awwal, Selamat datang duhai Pemberi syafaat kami.
 
 Kebahagian diri bertambah apabila masuknya bulan Rabi'
 
-1 Rabiul anwar bulan kelahiran penghulu segala rasul saidina Muhammad sallAllahu alaihi wa sallam. Bergembiralah golongan yang mencintainya.
+1 Rabiul awwal bulan kelahiran penghulu segala rasul saidina Muhammad sallAllahu alaihi wa sallam. Bergembiralah golongan yang mencintainya.
 
 Sebahagian kelebihan bumi Madinah:
 
