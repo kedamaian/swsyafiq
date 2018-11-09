@@ -35,7 +35,7 @@ Sebahagian kelebihan bumi Madinah:
 
 7) Dalam ihya, amalan akan digandakan di bumi Madinah Al-Munaawarah
 
-8 Tanah Haram yg aman, Madinah merupakan kubah Islam, Tempat Iman dan tempat hijrahnya baginda Rasulullah صلى الله عليه واله وصحبه وسلم
+8) Tanah Haram yg aman, Madinah merupakan kubah Islam, Tempat Iman dan tempat hijrahnya baginda Rasulullah صلى الله عليه واله وصحبه وسلم
 
 Suntingan dari kitab الدخائر القدسية الى زيارة خير البرية
 
