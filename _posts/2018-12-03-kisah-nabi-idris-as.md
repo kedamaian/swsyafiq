@@ -63,6 +63,7 @@ Mujahid pula berpandangan bahawa Nabi Idris AS diangkat dalam keadaan masih hidu
 Sementara itu, Ibnu Abi Najih berkata dari Mujahid dalam firman Allah Ta’ala, “Dan Kami telah mengangkatnya ke martabat yang tinggi.” Dia berkata, Idris diangkat ke langit dalam keadaan hidup, belum dicabut nyawanya sebagaimana ‘Isa Alaihissalam (3), namun hal ini harus dikaji lebih dalam lagi, adapun jika maksudnya adalah dia diangkat ke langit dalam keadaan masih hidup kemudian dicabut nyawanya disana maka tidak dapat dinafikan dari apa yang diriwayatkan oleh Ka’ab Al-Ahbar. Wallahu'alam.
 
 **Nabi Idris As Kedatangan Tamu**
+
 Nama Nabi Idris As yang sebenarnya adalah ‘Akhnukh’. Sebab beliau dinamakan Idris, kerana beliau banyak membaca, mempelajari (tadarrus) kitab Allah SWT.
 
 Setiap hari Nabi Idris as menjahit qamis (baju kemeja), setiap kali beliau memasukkan jarum untuk menjahit pakaiannya, beliau mengucapkan tasbih. Jika pekerjaannya sudah selesai, kemudian pakaian itu diserahkannya kepada orang yang menempahnya dengan tanpa meminta upah. Walaupun demikian, Nabi Idris as masih sanggup beribadah dengan amalan yang sukar untuk digambarkan. Sehingga Malaikat Maut sangat rindu berjumpa dengan beliau. Nabi Idris AS juga menjahit pakaiannya sendiri, sambil sentiasa berzikir kepada Allah SWT sewaktu menjahit pakaiannya, maka dibuka semula jahitan tersebut dan menjahitnya kembali sambil berzikir kepada Allah SWT. Dikisahkan pula saat Iblis mendekati Idris yang sedang menjahit. Menurut Imam Sanusi dalam kitab Syarah Maqro’-nya menuturkan, Idris tidak memasukkan jarum kecuali menyebut asma Allah begitupun ketika mengeluarkan. Suatu ketika syaitan mendatanginya: “Apakah Tuhanmu mampu menjadikan dunia pada biji kacang ini?” tutur syaitan. Idris menjawab: “Bahkan Allah kuasa memasukkan seluruh dunia pada lubang jarum ini.” Lalu beliau mencocok mata syaitan dengan jarumnya. Subhanallah.
@@ -80,6 +81,7 @@ Kemudian beliau berkata: “Wahai tuan, mahukah tuan berkeliling bersama saya un
 Maka berjalanlah keduanya melihat alam persekitaran dengan berbagai jenis tumbuh-tumbuhan hidup di situ. Akhirnya ketika mereka sampai pada suatu kebun, maka Malaikat Maut berkata kepada Nabi Idris as : “Wahai Idris, adakah tuan izinkan saya untuk mengambil ini untuk saya makan? Nabi Idris as pun menjawab: Subhanallah, mengapa malam tadi tuan tidak mau memakan makanan yang halal, sedangkan sekarang tuan mau memakan yang haram?”
 
 **Malaikat Izrail mencabut nyawa Nabi Idris AS atas permintaannya**
+
 Kemudian Malaikat Maut dan Nabi Idris as meneruskan perjalanan mereka. Tidak terasa oleh mereka bahawa mereka telah berkeliling selama empat hari. Selama mereka bersahabat, Nabi Idris as menemui beberapa keanehan pada diri temannya itu. Segala tindak-tanduknya berbeda dengan sifat-sifat manusia biasa. Akhirnya Nabi Idris as tidak dapat menahan hasrat ingin tahunya itu.
 
 Kemudian beliau bertanya: “Wahai tuan, bolehkah saya tahu, siapakah tuan yang sebenarnya? Saya adalah Malaikat Maut.”
@@ -103,6 +105,7 @@ Lalu Allah SWT mewahyukan kepada Malaikat Maut, agar ia mencabut nyawa Nabi Idri
 Di waktu Malaikat Maut melihat kematian Nabi Idris as itu, maka menangislah ia. Dengan perasaan hiba dan sedih ia bermohon kepada Allah supaya Allah menghidupkan kembali sahabatnya itu. Allah mengabulkan permohonannya, dan Nabi Idris as pun dihidupkan oleh Allah SWT kembali.
 
 **Malaikat Izrail membawa Nabi Idris As ke Syurga dan ke Neraka**
+
 Kemudian Malaikat Maut memeluk Nabi Idris AS, dan ia bertanya: “Wahai saudaraku, bagaimanakah tuan merasakan kesakitan maut itu? Bila seekor binatang dilapah kulitnya ketika ia masih hidup, maka sakitnya maut itu seribu kali lebih sakit daripadanya. Padahal-kelembutan yang saya lakukan terhadap tuan, ketika saya mencabut nyawa tuan itu, belum pernah saya lakukan terhadap sesiapa pun sebelum tuan. Wahai Malaikat Maut, saya mempunyai permintaan lagi kepada tuan, iaitu saya sungguh-sungguh berhasrat melihat Neraka, supaya saya dapat beribadah kepada Allah SWT lebih banyak lagi, setelah saya menyaksikan dahsyatnya api neraka itu. Wahai Idris AS saya tidak dapat pergi ke Neraka jika tanpa izin dari Allah SWT.”
 
 Akhirnya Allah SWT mewahyukan kepada Malaikat Maut agar ia membawa Nabi Idris AS ke dalam Neraka. Maka pergilah mereka berdua ke Neraka. Di Neraka itu, Nabi Idris AS dapat melihat semua yang diciptakan Allah SWT untuk menyiksa musuh-musuh-Nya. Seperti rantai-rantai yang panas, ular yang berbisa, kala, api yang membara, timah yang mendidih, pokok-pokok yang penuh berduri, air panas yang mendidih dan lain-lain.
@@ -139,6 +142,7 @@ Maka Allah menurunkan wahyu kepada Malaikat Maut itu: “Biarkanlah dia, kerana 
 Allah menceritakan tentang kisah Nabi Idris AS ini kepada Rasulullah Sallahu alaihi wasallam dengan firman-Nya bermaksud: “Dan ceritakanlah (hai Muhammad kepada mereka, kisah) Idris yang tersebut di dalam Al-Quran. Sesungguhnya ia adalah seorang yang sangat membenarkan dan seorang Nabi. Dan kami telah mengangkatnya ke martabat yang tinggi.” (Maryam: 56-57)
 
 **Nabi Idris di dalam Al-Qur’an dan Hadits**
+
 Terdapat empat ayat yang berhubungan dengan Nabi Idris AS dalam Al-Qur’an, dimana ayat-ayat tersebut saling terhubung didalam Surah Maryam (Maryam) dan Surah Al-Anbiya’ (Nabi-nabi).
 
 “Dan ceritakanlah (hai Muhammad kepada mereka, kisah) Idris (yang tersebut) di dalam Al-Quran. Sesungguhnya ia adalah seorang yang sangat membenarkan dan seorang nabi. Dan Kami telah mengangkatnya ke martabat yang tinggi. (Qur’an 19:56-57)”
@@ -154,6 +158,7 @@ Nabi Idris AS dipercayai sebagai seorang penjahit berdasarkan hadits ini:
 Ibnu Abbas berkata, “Daud adalah seorang pembuat perisai, Adam seorang petani, Nuh seorang tukang kayu, Idris seorang penjahit dan Musa adalah penggembala.” (dari al-Hakim)
 
 **Dicintai Allah SWT, Dihormati Manusia**
+
 Menurut Dr. Hamid Ahmad al-Tahir dalam kitabnya Qasas al-Anbiya'’ li al-Atfal, Nabi Idris AS tidak hanya menjalankan ibadah begitu sahaja, tetapi Baginda AS beruasaha untuk memberikan ibadah dan pengabdian yang terbaik kepada Allah SWT iaitu dengan melakukan solat tepat pada waktunya, menjalankan ibadah puasa dan selalu ingat kepada golongan fakir dan miskin.
 
 Ketika Nabi Idris AS mencapai kualiti ilmu pengetahuan yang tinggi dan pengabdian yang sempurna kepada Allah SWT, penduduk di setiap negeri yang disinggahinya pun mencintainya, sehinggakan semua masyarakat di setiap wilayah dan negara yang disinggahinya berusaha memperlihatkan kepada dunia bahawa Nabi Idris AS berasal dari negeri mereka.
@@ -182,6 +187,7 @@ Para malaikat sangat mencintai Nabi Idris AS kerana Baginda AS seorang yang gema
 Baginda AS membacanya siang dan malam. Mulut Baginda AS tidak pernah berhenti dari mengucapkan tasbih menyucikan Allah SWT.
 
 **Mewariskan Ilmu**
+
 Allah SWT mengangkatnya ke tempat yang tinggi iaitu Allah SWT mengangkat darjat Nabi Idris AS. Di dunia manusia sangat mencintainya, mengingatinya dengan segala amalan dan perbuatan baiknya.
 
 Sedangkan di langit, Allah SWT mengangkat darjatnya di sisi Allah SWT hingga dekat dengan-Nya. Nabi Idris AS sangat dekat dan sangat dicintai Allah SWT. 
@@ -195,6 +201,7 @@ Baginda AS juga memberikan wasiat kepada mereka agar selalu menjada keimanan kep
 Baginda AS juga telah mewasiatkan kepada mereka agar berjuang memerangi anak cucu Qabil yang menyembah berhala dan kufur kepada Allah SWT.
 
 **Nasihat & Ajaran**
+
 Berikut ini adalah beberapa nasihat dan untaian kata mutiara Nabi Idris AS
 
 1. Kesabaran yang disertai iman kepada Allah (akan) membawa kemenangan.
