@@ -22,9 +22,9 @@ Tak perlulah melaporkannya kepada dunia, kerana hal itu hanya akan menggugurkan 
 
 Yang soleh pasti tahu, bahawa Malaikat Raqib takkan salah mencatatnya meski tidak diceritakan.
 
-Yang solehah pasti paham, bahwa Allaah tak kan keliru membalasnya meski tidak dilaporkan.
+Yang solehah pasti faham, bahawa Allah tak kan keliru membalasnya meski tidak dilaporkan.
 
-"Janganlah kamu tertipu dengan banyaknya amal ibadah yang telah kamu lakukan, kerana sesungguhnya kamu tidak mengetahui apakah Allaah menerima amalan kamu atau tidak.
+"Janganlah kamu tertipu dengan banyaknya amal ibadah yang telah kamu lakukan, kerana sesungguhnya kamu tidak mengetahui apakah Allah menerima amalan kamu atau tidak.
 
 Jangan pula kamu merasa aman dari dosa-dosa yang kamu lakukan, kerana sesungguhnya kamu tidak mengetahui apakah Allah mengampuni dosa-dosa kamu tersebut atau tidak".
 
