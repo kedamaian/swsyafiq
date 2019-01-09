@@ -1,6 +1,6 @@
 ---
 layout: post
-published: false
+published: true
 categories:
   - Tazkirah
 author: tehnoblequran
@@ -16,4 +16,4 @@ Seseorang yang merasa dirinya lebih baik daripada orang lain, maka dia akan jatu
 
 Angkatlah dirimu di sisi Allah سبحانه و تعالى dengan tidak memandang rendah kepada orang lain .
 
-- Sayyidil Al Habib Ali Zaenal Abidin Bin Abu Bakar Al Hamid -Murobbi❤️
+- Sayyidil Al Habib Ali Zaenal Abidin Bin Abu Bakar Al Hamid - 
