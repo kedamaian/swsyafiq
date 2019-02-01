@@ -12,17 +12,17 @@ Khususnya untuk para wanita..
 
 Sayidina Ali ra menceritakan suatu ketika melihat
 
-Rasulullah saw menangis manakala ia datang bersama Fatimah.
+Rasulullah Sallalahu Alaihi Wasallam menangis manakala ia datang bersama Fatimah.
 
 Lalu keduanya bertanya mengapa Rasulullah saw menangis. Beliau menjawab,
 
 “Pada malam aku di-isra’- kan , aku melihat perempuan-perempuan yang sedang disiksa dengan berbagai siksaan. Itulah sebabnya mengapa aku menangis. Kerana, menyaksikan mereka yang sangat berat dan mengerikan siksanya.
 
-Putri Rasulullah saw kemudian menanyakan apa yang dilihat ayahandanya.
+Putri Rasulullah Sallalahu Alaihi Wasallam kemudian menanyakan apa yang dilihat ayahandanya.
 
 “Aku lihat ada perempuan digantung rambutnya, otaknya mendidih. Aku lihat perempuan digantung lidahnya, tangannya diikat ke belakang dan timah cair dituangkan ke dalam tengkoraknya.
 
-Aku lihat perempuan tergantung kedua kakinya dengan terikat tangannya sampai ke ubun-ubunnya, diulurkan ular dan kalajengking.
+Aku lihat perempuan tergantung kedua kakinya dengan terikat tangannya sampai ke ubun-ubunnya, diulurkan ular dan kala jengking.
 
 Dan aku lihat perempuan yang memakan badannya sendiri, di bawahnya dinyalakan api neraka. Serta aku lihat perempuan yang bermuka hitam, memakan tali perutnya sendiri.
 
