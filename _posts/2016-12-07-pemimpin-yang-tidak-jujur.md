@@ -8,7 +8,7 @@ categories:
 ---
 ”Sesiapa yang diserahkan oleh Allah akan sesuatu urusan dari beberapa urusan pemerintahan kaum muslimin, lalu dia tidak mempedulikan tentang keperluan mereka, kesusahan dan penderitaan mereka, nescaya Allah tidak akan mempedulikan tentang keperluan, kesusahan dan penderitaannya di hari kiamat nanti.”  (HR Abu Daud dan Tirmidzi)
 
-Dari Abu Hurairah r.a,  Nabi saw bersabda, ”Sesungguhnya Imam (pemimpin, pembesar atau penguasa) itu adalah bagaikan perisai, di mana orang berperang memakai perisai dan menjaga diri dengannya. Jika Imam memerintahkan supaya bertaqwa kepada Allah ‘Azza wa Jalla dan berlaku adil, dia mendapat pahala kerananya dan jika dia memerintahkan selain itu maka dia mendapat siksa.” (HR Muslim)
+Dari Abu Hurairah r.a,  Nabi Sallalahu Alaihi Wasallam bersabda, ”Sesungguhnya Imam (pemimpin, pembesar atau penguasa) itu adalah bagaikan perisai, di mana orang berperang memakai perisai dan menjaga diri dengannya. Jika Imam memerintahkan supaya bertaqwa kepada Allah ‘Azza wa Jalla dan berlaku adil, dia mendapat pahala kerananya dan jika dia memerintahkan selain itu maka dia mendapat siksa.” (HR Muslim)
 
 “Sesungguhnya selepasku ini akan ada para pemimpin yang melakukan kezaliman dan penipuan. Sesiapa pergi kepada mereka lalu membenarkan penipuan mereka dan menolong kezaliman mereka maka dia bukan dariku dan aku bukan darinya dan dia tidak akan mendatangi telagaku. Sesiapa yang tidak membenar pembohongan mereka dan tidak menolong kezaliman mereka, maka dia dari kalanganku dan aku dari kalangannya dan dia akan mendatangi telagaku”. (HR Ahmad, Nasai dan Tirmidzi)
 
