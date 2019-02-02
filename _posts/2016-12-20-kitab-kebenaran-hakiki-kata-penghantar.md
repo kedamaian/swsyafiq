@@ -6,7 +6,7 @@ title: 'Kitab Kebenaran Hakiki: Kata Penghantar'
 categories:
   - Kitab Kebenaran Hakiki
 ---
-Segala pujian terkhusus bagi Allah s.w.t, Pencipta sekalian alam. Selawat dan salam ke atas junjungan besar Nabi Muhammad s.a.w serta seluruh pejuang kebenaran sehingga akhir zaman.
+Segala pujian terkhusus bagi Allah s.w.t, Pencipta sekalian alam. Selawat dan salam ke atas junjungan besar Nabi Muhammad Sallalahu Alaihi Wasallam serta seluruh pejuang kebenaran sehingga akhir zaman.
 
 Manusia merupakan makhluk istimewa dicipta oleh Allah s.w.t namun, keistimewaan tersebut bergantung kepada realiti dirinya, kesedaran serta ketaatan terhadap apa yang diperintahkan oleh Penciptanya. Kemuliaan manusia sehingga dilantik menjadi khalifah dan diangkat menjadi rasul-rasul dan nabi-nabi adalah membuktikan tentang hakikat kejadian tersebut serta tanggungjawab yang bakal dipikul olehnya.
 
@@ -20,7 +20,7 @@ Betapa ramai orang yang sihat, musnah kerana kesihatannya,
 Betapa ramai orang alim, musnah kerana ilmunya,
 Betapa ramai orang jahil, musnah kerana kejahilannya
 
-Pencarian jalan yang benar mestilah lahir dari kesedaran yang benar kemudian melalui hanya lorong-lorong makrifah yang telah dirintis oleh Rasulullah s.a.w dan para sahabat. Pencarian ini bilamana telah melalui jalannya yang benar, bukan sekadar mampu mengutip mutiara keindahan makrifah, tetapi jauh di sebalik itu, ialah kemampuan untuk membawa dan membesarkan laluan tersebut, agar dengannya tidak akan membawa manusia ke jalan yang sesat, dan memandu manusia lain untuk melalui jalan tersebut.
+Pencarian jalan yang benar mestilah lahir dari kesedaran yang benar kemudian melalui hanya lorong-lorong makrifah yang telah dirintis oleh Rasulullah Sallalahu Alaihi Wasallam dan para sahabat. Pencarian ini bilamana telah melalui jalannya yang benar, bukan sekadar mampu mengutip mutiara keindahan makrifah, tetapi jauh di sebalik itu, ialah kemampuan untuk membawa dan membesarkan laluan tersebut, agar dengannya tidak akan membawa manusia ke jalan yang sesat, dan memandu manusia lain untuk melalui jalan tersebut.
 
 Sebahagian manusia takut untuk melalui jalan-jalan yang masih kabur, agar ia selamat dari kesesatan; walaupun di saat yang sama ia berada dalam kegelapan. Terdapat pula kumpulan yang berhati-hati untuk menempuhi jalan-jalan ini. Tindakan ini ada kebaikannya, kerana bilamana datang pertunjuk dan panduan maka ia akan menerangi jalan-jalan yang gelap tersebut, dan ia seharusnya menjalani jalan-jalan tersebut setakat yang ia yakin dengan kebenarannya. Hakikat ini dijelaskan oleh Allah s.w.t dengan firman-Nya yang bermaksud:
 
