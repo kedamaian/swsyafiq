@@ -18,7 +18,7 @@ Inilah yang menjadi punca mengapa ramai dalam kalangan umat Islam dimasukkan ke 
 
 Umat Islam perlu sentiasa berhati-hati daripada melakukan dosa kecil kerana mungkin dianggap kecil, namun sebaliknya di sisi Allah SWT.
 
-“Sebagaimana hadis Rasulullah SAW yang diriwayatkan oleh Abdullah bin Mas’ud r.a. bermaksud: “Sesungguhnya seorang Mukmin (ketika) dia melihat dosa-dosanya, adalah seperti (ketika) ia duduk di lereng sebuah gunung, dan ia sangat khuatir gunung itu akan menimpanya. Sedangkan seorang fajir (orang yang selalu berbuat dosa), ketika dia melihat dosa-dosanya adalah seperti ia melihat seekor lalat yang hinggap di batang hidungnya, kemudian ia mengusirnya seperti ini lalu terbang (ia menganggap remeh dosa),” – Riwayat Bukhari
+“Sebagaimana hadis Rasulullah Sallalahu Alaihi Wasallam yang diriwayatkan oleh Abdullah bin Mas’ud r.a. bermaksud: “Sesungguhnya seorang Mukmin (ketika) dia melihat dosa-dosanya, adalah seperti (ketika) ia duduk di lereng sebuah gunung, dan ia sangat khuatir gunung itu akan menimpanya. Sedangkan seorang fajir (orang yang selalu berbuat dosa), ketika dia melihat dosa-dosanya adalah seperti ia melihat seekor lalat yang hinggap di batang hidungnya, kemudian ia mengusirnya seperti ini lalu terbang (ia menganggap remeh dosa),” – Riwayat Bukhari
 
 “Hadis ini perlu dijadikan iktibar. Jangan sampai kita dikategorikan dalam golongan orang fajir,”
 
@@ -28,7 +28,7 @@ Sikap tidak mengambil berat terhadap kesalahan dan dosa kecil, tambah Assad, lam
 
 “Ingatlah, di neraka kita tidak akan merasakan selesa walau sekelip mata. Oleh itu, jangan sesekali menganggap remeh dosa walaupun kecil kerana dosa yang dirasakan remeh itu secara tidak disedari akan menggelincirkan kita ke lembah kesengsaraan, kepedihan dan penderitaan yang teramat sangat.
 
-“Ia sebagaimana sabda Rasulullah SAW: “Api yang kamu nyalakan di dunia adalah sebahagian daripada 70 bahagian dibandingkan dengan panas api neraka…- Riwayat Bukhari dan Muslim,”
+“Ia sebagaimana sabda Rasulullah Sallalahu Alaihi Wasallam: “Api yang kamu nyalakan di dunia adalah sebahagian daripada 70 bahagian dibandingkan dengan panas api neraka…- Riwayat Bukhari dan Muslim,”
 
 Justeru, beliau menyeru kepada seluruh umat Islam agar tidak memandang remeh kesalahan kecil dan melakukannya dengan sengaja.
 
