@@ -6,7 +6,7 @@ title: 'Peristiwa Akhir Zaman 15, 16 & 17'
 categories:
   - Hadis
 ---
-Dari Anas r.a: Rasulullah saw bersabda, “Akan datang kepada umat ku suatu zaman di mana orang yang berpegang pada agamanya laksana menggenggam bara api.” (Riwayat Tirmidzi)
+Dari Anas r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Akan datang kepada umat ku suatu zaman di mana orang yang berpegang pada agamanya laksana menggenggam bara api.” (Riwayat Tirmidzi)
 
 **Penjelasan dan Pengajaran:**
 
@@ -17,20 +17,20 @@ Dari Anas r.a: Rasulullah saw bersabda, “Akan datang kepada umat ku suatu zama
 3. Akhir zaman juga orang Islam akan menghadapi tentangan yang hebat, sekiranya leka maka terlepaslah Islam dari tangan mereka. 
 
 Golongan Ruwaibidhoh 
-Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Lagi akan datang kepada manusia tahun-tahun yang tandus.
+Dari Abu Hurairah r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Lagi akan datang kepada manusia tahun-tahun yang tandus.
 
 - Dan pada waktu itu orang yang berdusta dikatakan benar dan orang yang benar dikatakan berdusta.
  
 - Orang khianat akan disuruh memegang amanah dan orang yang amanah dikatakan pengkhianat.
  
-- Dan yang berpeluang bercakap hanyalah golongan ‘Ruwaibidhoh’.” Sahabat bertanya, ‘Apakah Ruwaibidhoh itu hai Rasulullah?’ Nabi saw menjawab, “Orang yang kerdil dan sebenarnya hina dan tidak mengerti urusan orang ramai.”
+- Dan yang berpeluang bercakap hanyalah golongan ‘Ruwaibidhoh’.” Sahabat bertanya, ‘Apakah Ruwaibidhoh itu hai Rasulullah?’ Nabi Sallalahu Alaihi Wasallam menjawab, “Orang yang kerdil dan sebenarnya hina dan tidak mengerti urusan orang ramai.”
  (Riwayat Ibnu Majah) 
 
 Penjelasan dan Pengajaran: Zaman yang tandus tersebut bermaksud zaman orang-orang yang ketandusan ilmu dan pemikiran. Orang yang benar akan diketepikan dan orang yang khianat serta fasiq akan disanjung dan dijadikan idola. Orang yang berilmu dan berada pada kebenaran tidak dibenarkan bercakap dan dituduh pula dengan berbagai-bagai tohmahan. Orang yang dibenarkan bercakap pula adalah orang-orang yang hina dan tidak tahu bagaimana hendak menyelesaikan masalah yang dihadapi oleh masyarakat dan mengelirukan. Maha Benar Allah. Melalui hadis ini juga kita lihat zaman ini berapa ramai ahli ilmu yang dibiarkan sepi tanpa mengambil peduli pada apa yang disampaikan oleh mereka. Malah mereka dituduh pula sebagai pengkhianat agama. 
 
 **Peperangan Demi Peperangan**
 
-Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Hari kiamat tidak akan terjadi sehingga melimpah ruah harta benda dan timbul fitnah (ujian kepada keimanan) dan banyak berlaku ‘al-Harj’.” Sahabat bertanya, ‘Apakah al-Harj itu hai Rasulullah?’ Nabi saw menjawab, “Peperangan demi peperangan demi peperangan.” (Riwayat Ibnu Majah) 
+Dari Abu Hurairah r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Hari kiamat tidak akan terjadi sehingga melimpah ruah harta benda dan timbul fitnah (ujian kepada keimanan) dan banyak berlaku ‘al-Harj’.” Sahabat bertanya, ‘Apakah al-Harj itu hai Rasulullah?’ Nabi Sallalahu Alaihi Wasallam menjawab, “Peperangan demi peperangan demi peperangan.” (Riwayat Ibnu Majah) 
 
 **Penjelasan dan Pengajaran:** 
 
