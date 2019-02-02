@@ -10,7 +10,7 @@ categories:
 
 "Mahukah kalian aku beritahu sesuatu yang lebih aku takutkan daripada Dajal? Kami katakan: Tentu. Baginda bersabda: Riak, syirik yang tersembunyi iaitu apabila seseorang mengerjakan solat lalu dia menyempurnakan solatnya apabila mengetahui seseorang memandangnya." (HR Ibnu Majah)
 
-Nabi SAW bersabda yang maksudnya: “Sesiapa sum'ah (memperdengarkan amalnya), maka Allah akan memperdengarkan aibnya dan sesiapa beramal kerana riak (memperlihatkan amalnya) maka Allah akan membuka niatnya di hadapan manusia pada hari kiamat kelak.” (HR Bukhari dan Muslim) 
+Nabi Sallalahu Alaihi Wasallam bersabda yang maksudnya: “Sesiapa sum'ah (memperdengarkan amalnya), maka Allah akan memperdengarkan aibnya dan sesiapa beramal kerana riak (memperlihatkan amalnya) maka Allah akan membuka niatnya di hadapan manusia pada hari kiamat kelak.” (HR Bukhari dan Muslim) 
 
 Riak ialah menampakan atau memperlihatkan ibadah dengan niat mendapat perhatian atau pujian manusia, kedudukan atau penghargaan atau keuntungan duniawi. 
 
@@ -28,9 +28,9 @@ Ibadah orang yang riak atau sum'ah akan ditolak serta tiada nilai disisi Allah.
 
 "Sesungguhnya Allah tidak akan menerima amal kecuali amal yang dilaksanakan dengan ikhlas dan dilakukan semata-mata untuk mengharap redha Allah. (HR Abu Daud dan An-Nasa'i)
 
-Nabi SAW bersabda yang maksudnya: “Sesungguhnya setiap amalan bergantung pada niat dan setiap orang akan mendapat ganjaran sesuai dengan niatnya.” (HR Bukhari dan Muslim)
+Nabi Sallalahu Alaihi Wasallam bersabda yang maksudnya: “Sesungguhnya setiap amalan bergantung pada niat dan setiap orang akan mendapat ganjaran sesuai dengan niatnya.” (HR Bukhari dan Muslim)
 
-Abu Hurairah yang berkata, ”Saya mendengar Rasulullah SAW bersabda, “Sesungguhnya orang yang pertama kali di adili pada hari kiamat adalah orang yang mati syahid di jalan Allah. Dia didatangkan kemudian dinampakkan kepadanya nikmat-nikmat yang diberikan kepadanya maka dia pun mengakuinya. Allah bertanya, “Apa yang kamu lakukan dengannya?” Dia menjawab, “Aku berperang untuk-Mu sampai aku mati syahid.” Allah berfirman, “Engkau dusta, sebenarnya engkau berperang kerana ingin disebut sebagai orang yang berani. Dan itu sudah kau perolehi.” Kemudian Allah memerintahkan malaikat untuk mengheretnya tertelungkup di atas wajahnya lalu dilemparkan ke dalam neraka.
+Abu Hurairah yang berkata, ”Saya mendengar Rasulullah Sallalahu Alaihi Wasallam bersabda, “Sesungguhnya orang yang pertama kali di adili pada hari kiamat adalah orang yang mati syahid di jalan Allah. Dia didatangkan kemudian dinampakkan kepadanya nikmat-nikmat yang diberikan kepadanya maka dia pun mengakuinya. Allah bertanya, “Apa yang kamu lakukan dengannya?” Dia menjawab, “Aku berperang untuk-Mu sampai aku mati syahid.” Allah berfirman, “Engkau dusta, sebenarnya engkau berperang kerana ingin disebut sebagai orang yang berani. Dan itu sudah kau perolehi.” Kemudian Allah memerintahkan malaikat untuk mengheretnya tertelungkup di atas wajahnya lalu dilemparkan ke dalam neraka.
 
 Kemudian seorang yang menuntut ilmu dan mengajarkannya dan juga membaca Al Quran. Dia didatangkan kemudian ditunjukkan kepadanya nikmat-nikmat yang sudah didapatinya dan dia pun mengakuinya. Allah bertanya, “Apakah yang sudah kau perbuat dengannya?” Maka dia menjawab, “Aku menuntut ilmu, mengajarkannya dan membaca Al Quran kerana-Mu.” Allah berfirman, ”Engkau dusta, sebenarnya engkau menuntut ilmu supaya disebut sebagai orang alim. Engkau membaca Quran supaya disebut sebagai Qari’.” Kemudian Allah memerintahkan malaikat untuk mengheretnya tertelungkup di atas wajahnya lalu dilemparkan ke dalam neraka. 
 
