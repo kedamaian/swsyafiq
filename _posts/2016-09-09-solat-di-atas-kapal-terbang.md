@@ -78,9 +78,9 @@ Apabila kita telah kembali ke tempat asal maka solat hormat waktu mestilah di qa
 
 Sebaliknya jika kita berpeluang untuk mengqada solat hormat waktu ini setelah adanya air atau tanah, tetapi kita masih melengah-lengahkannya maka kita dikira berdosa.
 
-Aisyah menceritakan bahawasanya beliau telah meminjam daripada Asma’ seutas rantai, lalu ia hilang. Maka Rasulullah SAW menghantar beberapa orang sahabat baginda untuk mencarinya.
+Aisyah menceritakan bahawasanya beliau telah meminjam daripada Asma’ seutas rantai, lalu ia hilang. Maka Rasulullah Sallalahu Alaihi Wasallam menghantar beberapa orang sahabat baginda untuk mencarinya.
 
-Lalu tiba waktu solat, dan mereka pun solat tanpa wuduk. Apabila mereka mendatangi Nabi SAW, mereka mengadu hal tersebut, lalu turunlah ayat pensyariatan tayammum.
+Lalu tiba waktu solat, dan mereka pun solat tanpa wuduk. Apabila mereka mendatangi Nabi Sallalahu Alaihi Wasallam, mereka mengadu hal tersebut, lalu turunlah ayat pensyariatan tayammum.
 
 
 Pendapat ulama:
@@ -91,25 +91,25 @@ Pendapat yang paling sahih di sisi ulama mazhab (Al-Syafie) ialah: Wajib solat k
 
 Ada juga pendapat wajib solat dan tidak wajib mengulanginya. Ini adalah pilihan Al-Muzani. Kata Abu Thaur: Inilah yang menepati qiyas dan ia disebut oleh Ibnu Abd Al-Barr daripada sebilangan fuqaha.
 
-Imam Al-Nawawi berkata: “Sesungguhnya ia adalah pendapat yang paling kuat dalilnya dan pendapat ini dikukuhkan oleh hadis ini iaitu mereka (para sahabat) solat tanpa wuduk sebelum turun ayat tayamum dan tidak dinukilkan bahawa Nabi SAW mengarahkan mereka untuk mengulanginya.”
+Imam Al-Nawawi berkata: “Sesungguhnya ia adalah pendapat yang paling kuat dalilnya dan pendapat ini dikukuhkan oleh hadis ini iaitu mereka (para sahabat) solat tanpa wuduk sebelum turun ayat tayamum dan tidak dinukilkan bahawa Nabi Sallalahu Alaihi Wasallam mengarahkan mereka untuk mengulanginya.”
 
 
 
 ## KELAPAN: PERI PENTING DAN KEDUDUKAN SOLAT
 
-Secara mutlak, solat merupakan ibadah badaniyah yang paling utama. Ini berdasarkan peristiwa seorang lelaki telah bertanya Nabi SAW tentang amalan yang afdhal.
+Secara mutlak, solat merupakan ibadah badaniyah yang paling utama. Ini berdasarkan peristiwa seorang lelaki telah bertanya Nabi Sallalahu Alaihi Wasallam tentang amalan yang afdhal.
 
-Rasulullah SAW bersabda yang bermaksud: Solat. Dia terus bertanya: Kemudian apa pula ? Nabi bersabda: Kemudian solat. Dia bertanya lagi: Kemudian apa? Baginda bersabda: Solat. Baginda telah mengulangi jawapan solat sebanyak tiga kali. (Riwayat Ibnu Hibban)
+Rasulullah Sallalahu Alaihi Wasallam bersabda yang bermaksud: Solat. Dia terus bertanya: Kemudian apa pula? Nabi bersabda: Kemudian solat. Dia bertanya lagi: Kemudian apa? Baginda bersabda: Solat. Baginda telah mengulangi jawapan solat sebanyak tiga kali. (Riwayat Ibnu Hibban)
 
 Menebus dosa
 
-Dalam kitab Sahih al-Bukhari dan Sahih Muslim ada menyatakan dua solat yang dilakukan seseorang Islam dengan betul akan menebus dosa-dosa yang berlaku di antara kedua-dua solat tersebut. Ini berdasarkan hadis, Abu Hurairah r.a berkata, Rasulullah SAW bersabda yang bermaksud: Dengan melakukan solat lima waktu Allah akan menghapuskan dosa-dosa. (Riwayat al-Bukhari)
+Dalam kitab Sahih al-Bukhari dan Sahih Muslim ada menyatakan dua solat yang dilakukan seseorang Islam dengan betul akan menebus dosa-dosa yang berlaku di antara kedua-dua solat tersebut. Ini berdasarkan hadis, Abu Hurairah r.a berkata, Rasulullah Sallalahu Alaihi Wasallam bersabda yang bermaksud: Dengan melakukan solat lima waktu Allah akan menghapuskan dosa-dosa. (Riwayat al-Bukhari)
 
-Hadis seterusnya, Uthman R.anhu berkata, Rasulullah SAW bersabda yang bermaksud: Sesiapa yang berwuduk dengan sempurna sebagaimana yang diperintahkan oleh Allah, maka semua solat fardu yang dilakukannya akan menebus dosa yang ada di antara solat tersebut. (Riwayat Muslim)
+Hadis seterusnya, Uthman R.anhu berkata, Rasulullah Sallalahu Alaihi Wasallam bersabda yang bermaksud: Sesiapa yang berwuduk dengan sempurna sebagaimana yang diperintahkan oleh Allah, maka semua solat fardu yang dilakukannya akan menebus dosa yang ada di antara solat tersebut. (Riwayat Muslim)
 
 Begitu juga orang yang cuai mengerjakan solat, sama ada sengaja melengah-lengahkan atau meninggalkannya akan membawa kepada kekufuran sekiranya dia berterusan begitu. Oleh itu, solat merupakan santapan utama bagi iman sebagaimana yang telah disebutkan.
 
-Seterusnya hadis daripada Ummu Aiman, Rasulullah SAW bersabda yang bermaksud: `Jangan engkau sengaja meninggalkan solat,` sesungguhnya sesiapa yang sengaja meninggalkan solat dia akan terlepas daripada mendapat perlindungan Allah dan Rasul-Nya."  (Riwayat Imam Ahmad)
+Seterusnya hadis daripada Ummu Aiman, Rasulullah Sallalahu Alaihi Wasallam bersabda yang bermaksud: `Jangan engkau sengaja meninggalkan solat,` sesungguhnya sesiapa yang sengaja meninggalkan solat dia akan terlepas daripada mendapat perlindungan Allah dan Rasul-Nya."  (Riwayat Imam Ahmad)
 
 
 
