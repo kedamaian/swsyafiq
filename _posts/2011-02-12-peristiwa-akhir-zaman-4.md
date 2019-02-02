@@ -6,7 +6,7 @@ title: Peristiwa Akhir Zaman 4
 categories:
   - Hadis
 ---
-Dari Abdullah bin Amr bin ‘Ash r.a : Rasulullah saw bersabda, “Bahawasanya Allah Subhana wa Ta’ala (SWT) tidak mencabut (menghilangkan) akan ilmu itu dengan sekaligus dari manusia. Tetapi Allah SWT menghilangkan ilmu itu dengan mematikan alim ulama. 
+Dari Abdullah bin Amr bin ‘Ash r.a : Rasulullah Sallalahu Alaihi Wasallam bersabda, “Bahawasanya Allah Subhana wa Ta’ala (SWT) tidak mencabut (menghilangkan) akan ilmu itu dengan sekaligus dari manusia. Tetapi Allah SWT menghilangkan ilmu itu dengan mematikan alim ulama. 
 
 Maka apabila sudah tiada alim ulama, orang ramai akan memilih orang-orang yang jahil sebagai pemimpin mereka. Maka apabila pemimpin yang jahil itu ditanya, mereka akan berfatwa tanpa ilmu pengetahuan. Mereka sesat dan menyesatkan orang lain.” [Riwayat Muslim] 
 
