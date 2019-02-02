@@ -6,7 +6,7 @@ title: Peristiwa Akhir Zaman 10 & 11
 categories:
   - Hadis
 ---
-Dari ‘Aisyah r.a: Rasulullah saw bersabda, “Tidak akan berlaku kiamat sehingga: 
+Dari ‘Aisyah r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Tidak akan berlaku kiamat sehingga: 
 
 1. anak seseorang menjadi punca kemarahan (bagi ibu bapanya) dan
 2. hujan akan menjadi panas (hujan berkurangan dan cuaca menjadi semakin panas) dan
@@ -17,7 +17,7 @@ Dari ‘Aisyah r.a: Rasulullah saw bersabda, “Tidak akan berlaku kiamat sehing
 
 **Penjelasan dan Pengajaran:** Adakah salah satu dari enam perkara di atas masih belum terjadi kepada kita pada hari ini?
 
-Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Akan datang suatu zaman seseorang tidak mempedulikan dari mana ia mendapatkan harta, apakah dari sumber yang halal ataupun haram.” (Riwayat Muslim) 
+Dari Abu Hurairah r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Akan datang suatu zaman seseorang tidak mempedulikan dari mana ia mendapatkan harta, apakah dari sumber yang halal ataupun haram.” (Riwayat Muslim) 
 
 **Penjelasan dan Pengajaran:** 
 
