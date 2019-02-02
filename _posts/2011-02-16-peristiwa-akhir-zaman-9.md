@@ -6,7 +6,7 @@ title: Peristiwa Akhir Zaman 9
 categories:
   - Hadis
 ---
-Dari Muadz bin Jabal r.a: Rasulullah saw bersabda, “Ambillah pemberian itu selama ia masih sebagai pemberian. Tetapi apabila ia telah menjadi rasuah dalam pandangan agama, maka kamu jangan mengambilnya. Namun kenyataannya kamu tidak akan dapat meninggalkan rasuah itu kerana kamu takut (menjadi) fakir dan kamu sangat berhajat untuk mengambilnya. (Riwayat At-Thabrani dan Abu Nuaim) 
+Dari Muadz bin Jabal r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Ambillah pemberian itu selama ia masih sebagai pemberian. Tetapi apabila ia telah menjadi rasuah dalam pandangan agama, maka kamu jangan mengambilnya. Namun kenyataannya kamu tidak akan dapat meninggalkan rasuah itu kerana kamu takut (menjadi) fakir dan kamu sangat berhajat untuk mengambilnya. (Riwayat At-Thabrani dan Abu Nuaim) 
 
 Penjelasan dan Pengajaran: 
 
