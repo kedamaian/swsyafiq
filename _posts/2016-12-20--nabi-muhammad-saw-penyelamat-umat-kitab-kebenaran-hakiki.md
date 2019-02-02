@@ -6,7 +6,7 @@ title: ' Nabi Muhammad shalallahu alaihi wasallam penyelamat umat | Kitab Kebena
 categories:
   - Kitab Kebenaran Hakiki
 ---
-oo1. Nabi Muhammad saw penyelamat umat
+oo1. Nabi Muhammad Sallalahu Alaihi Wasallam penyelamat umat
 
 **KEADAAN DUNIA SEBELUM KELAHIRAN NABI MUHAMMAD shalallahu alaihi wasallam:**
 Dunia pada abad ke enam Masehi adalah umpama seorang yang sedang sakit tenat, tersangat memerlukan kepada penyelamat dan perawat yang mahir untuk mengubati penyakitnya dan menyelamatkannya daripada berbagai-bagai huru-hara dan kemusnahan. Semua bangsa-bangsa di seluruh pelusuk dunia dicengkam oleh kegelapan akidah dan kehancuran moral. Bangsa Aria di Sepanyol dan di selatan Perancis terlibat di dalam perebutan kuasa dengan kerajaan Clovis yang bermazhab Katholik. Bangsa Aria yang mendapat bantuan daripada kerajaan Roman Timur berjaya menewaskan kerajaan Clovis. Setelah berjaya menewaskan kerajaan Clovis, bangsa Aria berperang pula menentang kerajaan Roman Timur yang telah membantu mereka, kerana berebut kuasa ke atas tanah jajahan. Di negeri Inggeris pula bangsa Anglo dan bangsa Saxon terlibat di dalam kes perebutan tanah juga. Di Itali, kekuasaan kerajaan Roman sudah sangat lemah, lalu ia berpindah kepada kekuasaan gereja (agama Masehi). Kerajaan Yunani pula sudah dijajah oleh kerajaan Roman Timur.
