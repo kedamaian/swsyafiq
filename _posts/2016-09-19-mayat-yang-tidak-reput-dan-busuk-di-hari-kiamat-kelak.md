@@ -9,13 +9,13 @@ categories:
 ### SEPULUH ORANG YANG MAYATNYA TIDAK BUSUK DAN TIDAK REPUT DI HARI QIAMAT KELAK
 Disebutkan di dalam satu riwayat, bahawasanya apabila para makhluk dibangkitkan dari kubur, mereka semuanya berdiri tegak di kubur masing-masing selama 44 tahun UMUR AKHIRAT dalam keadaan TIDAK MAKAN dan TIDAK MINUM, TIDAK DUDUK dan TIDAK BERCAKAP.
 
-Bertanya orang kepada Rasulullah saw: 'Bagaimana kita dapat mengenali ORANG-ORANG MUKMIN kelak di hari qiamat?'
+Bertanya orang kepada Rasulullah Sallalahu Alaihi Wasallam: 'Bagaimana kita dapat mengenali ORANG-ORANG MUKMIN kelak di hari qiamat?'
 
-Maka jawabnya Rasulullah saw 'Umatku dikenali kerana WAJAH mereka putih disebabkan oleh WUDHU'. Bila qiamat datang maka malaikat datang ke kubur orang mukmin sambil membersihkan debu di badan mereka KECUALI pada tempat sujud. Bekas SUJUD tidak dihilangkan.
+Maka jawabnya Rasulullah Sallalahu Alaihi Wasallam 'Umatku dikenali kerana WAJAH mereka putih disebabkan oleh WUDHU'. Bila qiamat datang maka malaikat datang ke kubur orang mukmin sambil membersihkan debu di badan mereka KECUALI pada tempat sujud. Bekas SUJUD tidak dihilangkan.
 
 Maka memanggillah dari zat yang memanggil. Bukanlah debu 'itu dari debu kubur mereka, akan tetapi debu itu ialah debu KEIMANAN' mereka. Oleh itu tinggallah debu itu sehingga mereka melalui titian' Siratul Mustaqim dan memasuki Alam SYURGA, sehingga setiap orang melihat para mukmin itu mengetahui bahawa mereka adalah pelayan Ku dan hamba-hamba Ku.
 
-Disebutkan oleh hadith Rasulullah saw bahawa sepuluh orang yang mayatnya TIDAK BUSUK dan TIDAK REPUT dan akan bangkit dalam tubuh asal diwaktu mati:
+Disebutkan oleh hadith Rasulullah Sallalahu Alaihi Wasallam bahawa sepuluh orang yang mayatnya TIDAK BUSUK dan TIDAK REPUT dan akan bangkit dalam tubuh asal diwaktu mati:
 
 1. Para Nabi
 
@@ -37,7 +37,7 @@ Disebutkan oleh hadith Rasulullah saw bahawa sepuluh orang yang mayatnya TIDAK B
 
 10. Orang yang mati di siang hari atau di malam Jumaat jika mereka itu dari kalangan orang yang beriman.
 
-Didalam satu riwayat yang lain dari Jabir bin Abdullah ra sabda Rasulullah saw: Apabila datang hari QIAMAT dan orang-orang yang berada di dalam kubur dibangkitkan maka Allah swt memberi wahyu kepada Malaikat Ridhwan:
+Didalam satu riwayat yang lain dari Jabir bin Abdullah ra sabda Rasulullah Sallalahu Alaihi Wasallam: Apabila datang hari QIAMAT dan orang-orang yang berada di dalam kubur dibangkitkan maka Allah swt memberi wahyu kepada Malaikat Ridhwan:
 
 > Wahai Ridhwan, sesungguhnya Aku telah mengeluarkan hamba-hamba Ku berpuasa ( Ahli Puasa ) dari kubur mereka di dalam keadaan letih dan dahaga. Maka ambillah dan berikan mereka segala makanan yang digoreng dan buah-buahan SYURGA.
 
