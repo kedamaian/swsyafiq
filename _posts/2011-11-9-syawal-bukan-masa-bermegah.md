@@ -13,7 +13,7 @@ Allah SWT berfirman: “Dan bertakwalah kepada Allah yang kamu selalu meminta de
 
 Mungkin sebelum ini ada antara kita yang berkecil hati dengan orang tuanya mahupun sebaliknya. Justeru, ruang yang disediakan oleh Allah SWT melalui sambutan hari raya sebaiknya direbut untuk menjernihkan semula hubungan yang keruh. Meriahkan sambutan Aidilfitri dengan amalan bermaafan di samping menikmati juadah serta baju baharu dengan matlamat mencari keredaan Allah SWT. Selain memperkukuh ikatan dengan jiran tetangga, kemeriahan masih dirasai dengan jemputan rumah terbuka, meraikan tetamu yang berkunjung ke rumah. 
 
-Majlis boleh diadakan secara sederhana bukan untuk bermegah. Yang utama rendahkan hati untuk mengundang mereka beraya di rumah kita serta bertandang ke rumah mereka. Nabi Muhammad SAW dalam menjaga hati jiran bersabda: “Barang siapa yang beriman kepada Allah SWT dan Hari Kiamat (akhirat) maka janganlah menyakiti jirannya.” (Riwayat Bukhari)
+Majlis boleh diadakan secara sederhana bukan untuk bermegah. Yang utama rendahkan hati untuk mengundang mereka beraya di rumah kita serta bertandang ke rumah mereka. Nabi Muhammad Sallalahu Alaihi Wasallam dalam menjaga hati jiran bersabda: “Barang siapa yang beriman kepada Allah SWT dan Hari Kiamat (akhirat) maka janganlah menyakiti jirannya.” (Riwayat Bukhari)
 
 Masa jernih hubungan.
 Jika ada yang bertelagah dan bermusuh, hari raya adalah peluang terbaik menjernihkan kembali hubungan. Ini mengambil saranan daripada firman Allah SWT yang bermaksud: “Sesungguhnya orang Mukmin itu adalah bersaudara, maka perbaikilah (perhubungan) antara dua saudara kamu yang bertelagah dan bertakwalah kamu kepada Allah SWT moga kamu semua mendapat rahmat.” (Surah al-Hujurat, ayat 10)
