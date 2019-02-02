@@ -18,7 +18,7 @@ b). Apabila anak mendapat bisul maka ditudungkan kepala dengan penapis lalu meng
 
 c). Pemberian azimat atau tangkal-tangkal tertentu dalam pelbagai bentuk lalu dikalungkan atau diletak di badan seperti pakaian buruk dan tulang manusia kononnya penyakit itu akibat perbuatan roh jahat. Malah sakit tekak juga ‘dikurniakan’ azimat kepada mereka. 
 
-Apabila datangnya Islam maka tradisi perubatan yang tidak masuk akal ini diperangi dengan pelbagai cara melalui ajaran Nabi saw dan hasil ijtihad para sahabatnya. Adapun kaedah Nabi saw bukan sahaja melalui ruqyah (bacaan-bacaan doa) malah termasuk juga cara mencegah dan merawat melalui pemakanan.
+Apabila datangnya Islam maka tradisi perubatan yang tidak masuk akal ini diperangi dengan pelbagai cara melalui ajaran Nabi saw dan hasil ijtihad para sahabatnya. Adapun kaedah Nabi Sallalahu Alaihi Wasallam bukan sahaja melalui ruqyah (bacaan-bacaan doa) malah termasuk juga cara mencegah dan merawat melalui pemakanan.
 
 ## Pelbagai Doa 
 
