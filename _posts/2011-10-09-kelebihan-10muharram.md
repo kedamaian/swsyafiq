@@ -6,15 +6,15 @@ title: Kelebihan 10 Muharram
 categories:
   - Tazkirah
 ---
-Dari Ibnu Abbas r.a. katanya, ketika Nabi SAW tiba di Madinah, Baginda melihat orang yahudi berpuasa pada hari Asyura. Nabi pun bertanya, "Hari apa ini?". Jawab mereka, "Hari ini ialah hari yang baik. Pada hari ini Allah melepaskan Bani Israil dari musuh mereka, kerana itu Nabi Musa berpuasa kerananya". Sabda Nabi, "Aku lebih berhak daripada kamu dengan Musa". Oleh itu Nabi berpuasa dan menyuruh orang lain berpuasa pada hari Asyura. (HR Bukhari)
+Dari Ibnu Abbas r.a. katanya, ketika Nabi Sallalahu Alaihi Wasallam tiba di Madinah, Baginda melihat orang yahudi berpuasa pada hari Asyura. Nabi pun bertanya, "Hari apa ini?". Jawab mereka, "Hari ini ialah hari yang baik. Pada hari ini Allah melepaskan Bani Israil dari musuh mereka, kerana itu Nabi Musa berpuasa kerananya". Sabda Nabi, "Aku lebih berhak daripada kamu dengan Musa". Oleh itu Nabi berpuasa dan menyuruh orang lain berpuasa pada hari Asyura. (HR Bukhari)
 
-Dari Aisyah r.a. katanya "Biasanya orang Quraisy pada masa jahiliah berpuasa pada hari Asyura dan Nabi SAW pun berpuasa. Ketika Baginda tiba di Madinah, Baginda juga berpuasa pada hari Asyura dan menyuruh orang lain berpuasa juga". (HR Muslim)
+Dari Aisyah r.a. katanya "Biasanya orang Quraisy pada masa jahiliah berpuasa pada hari Asyura dan Nabi Sallalahu Alaihi Wasallam pun berpuasa. Ketika Baginda tiba di Madinah, Baginda juga berpuasa pada hari Asyura dan menyuruh orang lain berpuasa juga". (HR Muslim)
 
-Dari Salamah bin Akwa r.a., dia menceritakan bahawa Rasulullah SAW mengutus seorang lelaki suku Aslam pada hari Asyura dan memerintahkan kepadanya supaya mengumumkan kepada orang ramai, "Sesiapa yang belum puasa hari ini hendaklahlah dia berpuasa dan siapa yang telah terlanjur makan hendaklahlah dia puasa juga sejak mendengar pengumuman ini sampai malam". (HR Muslim)
+Dari Salamah bin Akwa r.a., dia menceritakan bahawa Rasulullah Sallalahu Alaihi Wasallam mengutus seorang lelaki suku Aslam pada hari Asyura dan memerintahkan kepadanya supaya mengumumkan kepada orang ramai, "Sesiapa yang belum puasa hari ini hendaklahlah dia berpuasa dan siapa yang telah terlanjur makan hendaklahlah dia puasa juga sejak mendengar pengumuman ini sampai malam". (HR Muslim)
 
-Dari Ibnu Abbas r.a katanya, "Penduduk Khaibar berpuasa pada hari asyura dan menjadikannya sebagai hari raya, dimana wanita mereka memakai perhiasan dan pakaian yang indah pada hari itu. Lalu Rasulullah SAW bersabda, "Puasalah kamu pada hari itu". (HR Muslim)
+Dari Ibnu Abbas r.a katanya, "Penduduk Khaibar berpuasa pada hari asyura dan menjadikannya sebagai hari raya, dimana wanita mereka memakai perhiasan dan pakaian yang indah pada hari itu. Lalu Rasulullah Sallalahu Alaihi Wasallam bersabda, "Puasalah kamu pada hari itu". (HR Muslim)
 
-Dari Abu Qatadah Al-Anshari r.a. katanya Rasulullah SAW ditanya orang tentang puasa hari Arafah (9 Zulhijjah). Jawab baginda, "Dapat menghapus dosa tahun yang lalu dan tahun yang akan datang". Kemudian Nabi ditanya pula tentang puasa hari Asyura (10 Muharram). Jawab baginda, "Dapat menghapus dosa tahun yang lalu". (HR Muslim)
+Dari Abu Qatadah Al-Anshari r.a. katanya Rasulullah Sallalahu Alaihi Wasallam ditanya orang tentang puasa hari Arafah (9 Zulhijjah). Jawab baginda, "Dapat menghapus dosa tahun yang lalu dan tahun yang akan datang". Kemudian Nabi ditanya pula tentang puasa hari Asyura (10 Muharram). Jawab baginda, "Dapat menghapus dosa tahun yang lalu". (HR Muslim)
 
 Imam Syafie Rahimahullahu Taala menyebutkan di dalam Kitab Al-Umm dan Al-Imla', disunatkan berpuasa tiga hari iaitu hari kesembilan (Tasu "a), kesepuluh ("Asyura) dan kesebelas bulan Muharram. Tetapi tidak ditegah jika berpuasa hanya pada 10 Muharram sahaja.
 
