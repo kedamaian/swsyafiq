@@ -27,7 +27,7 @@ Satu contoh yang mudah; jika seseorang berdakwah mengatakan sembahlah Allah yang
 Surah An-Nuur [24] : 54 54. Katakanlah: "Taat kepada Allah dan taatlah kepada rasul; dan jika kamu berpaling maka sesungguhnya kewajiban rasul itu adalah apa yang dibebankan kepadanya, dan kewajiban kamu sekalian adalah semata-mata apa yang dibebankan kepadamu. Dan jika kamu taat kepadanya, nescaya kamu mendapat petunjuk. Dan tidak lain kewajiban rasul itu melainkan menyampaikan (amanat Allah) dengan terang." 
 
 ## ISI PERBINCANGAN
-Persoalannya, sejauh mana dakwah para pendakwah benar-benar berkesan terhadap penerima dakwah? Sedikit kajian, pemerhatian dan penelitian dalam Al-Quran, Hadis dan sirah Nabi Muhammad saw, didapati beberapa golongan yang sangat sukar menerima dakwah dan berdakwah kepadanya. Moga-moga kita terhindar dari menjadi golongan seperti ini, antaranya: 
+Persoalannya, sejauh mana dakwah para pendakwah benar-benar berkesan terhadap penerima dakwah? Sedikit kajian, pemerhatian dan penelitian dalam Al-Quran, Hadis dan sirah Nabi Muhammad Sallalahu Alaihi Wasallam, didapati beberapa golongan yang sangat sukar menerima dakwah dan berdakwah kepadanya. Moga-moga kita terhindar dari menjadi golongan seperti ini, antaranya: 
 
 
 ### 1. Mereka yang Menolak Kebenaran
@@ -37,13 +37,13 @@ Surah Al-Anfaal [8] : 22 22. Sesungguhnya binatang (makhluk) yang seburuk-burukn
 
 Maksudnya, manusia yang paling buruk di sisi Allah yang Maha Agung ialah yang tidak mahu mendengar dan memahami kebenaran. (Rujukan : Tafsir Ibn Katsir) 
 
-Zaman ini: Setelah mendengar seruan Nabi Muhammad salallahu ‘alaihi wasallam (saw) mereka mengingkarinya dan mengatakan itu adalah amalan orang-orang lama (konservatif) dan pemikiran yang beku (jumud). Mereka menolak hadis-hadis dari Rasulullah saw dengan pelbagai alasan, malah mengatakan hadis-hadis inilah punca perselisihan dan perpecahan umat Islam sekarang. 
+Zaman ini: Setelah mendengar seruan Nabi Muhammad salallahu ‘alaihi wasallam (Sallalahu Alaihi Wasallam) mereka mengingkarinya dan mengatakan itu adalah amalan orang-orang lama (konservatif) dan pemikiran yang beku (jumud). Mereka menolak hadis-hadis dari Rasulullah Sallalahu Alaihi Wasallam dengan pelbagai alasan, malah mengatakan hadis-hadis inilah punca perselisihan dan perpecahan umat Islam sekarang. 
 
-Orang-orang seperti ini sangat sukar menerima dakwah kerana mereka sendiri enggan mengakui akan kebenaran Al-Quran dan Nabi Muhammad saw. Perkara ini bukan hanya terjadi pada orang kafir dan munafik sahaja, malah tergolong juga pada orang-orang yang mengaku Islam pada mulutnya, tetapi tidak beriktikad dalam hatinya. 
+Orang-orang seperti ini sangat sukar menerima dakwah kerana mereka sendiri enggan mengakui akan kebenaran Al-Quran dan Nabi Muhammad Sallalahu Alaihi Wasallam. Perkara ini bukan hanya terjadi pada orang kafir dan munafik sahaja, malah tergolong juga pada orang-orang yang mengaku Islam pada mulutnya, tetapi tidak beriktikad dalam hatinya. 
 
-Mereka tetap bersolat dan melaksanakan ibadah sebagai seorang muslim, tetapi mereka menolak apa yang diperintahkan Allah yang Maha Agung melalui Rasul-Nya dan sebenarnya mereka tidak mengetahui mereka telah cenderung kepada kemunafikan dan kekufuran. Contohnya; Mereka mengatakan ada perkataan dan hukum yang lebih baik dari Al-Quran, malah mencaci pula Rasulullah saw dan para sahabatnya r.a. 
+Mereka tetap bersolat dan melaksanakan ibadah sebagai seorang muslim, tetapi mereka menolak apa yang diperintahkan Allah yang Maha Agung melalui Rasul-Nya dan sebenarnya mereka tidak mengetahui mereka telah cenderung kepada kemunafikan dan kekufuran. Contohnya; Mereka mengatakan ada perkataan dan hukum yang lebih baik dari Al-Quran, malah mencaci pula Rasulullah Sallalahu Alaihi Wasallam dan para sahabatnya r.a. 
 
-Hadis: Dari Abu Hurairah: Rasulullah saw bersabda, "Barangsiapa taat kepadaku, bererti dia telah taat kepada Allah SWT; dan barangsiapa menderhakaiku, bererti dia derhaka kepada Allah SWT." (0003) [Sahih Ibnu Majah] 
+Hadis: Dari Abu Hurairah: Rasulullah Sallalahu Alaihi Wasallam bersabda, "Barangsiapa taat kepadaku, bererti dia telah taat kepada Allah SWT; dan barangsiapa menderhakaiku, bererti dia derhaka kepada Allah SWT." (0003) [Sahih Ibnu Majah] 
 
 
 ### 2. Mereka yang Taksub Mengikuti Tradisi
@@ -59,7 +59,7 @@ Selain itu ada pula yang mengikuti tradisi kitab. Apabila berdakwah kepadanya me
 
 Orang-orang seperti ini sangat sukar berdakwah kepadanya kerana mereka begitu taksub dengan tradisi mereka. 
 
-Hadis: Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Barangsiapa menyeru ke jalan petunjuk (kebaikan), maka baginya pahala seperti pahala orang-orang yang mengikutinya, yang tidak terkurangi sedikitpun dari pahala-pahala amal mereka sama sekali. 
+Hadis: Dari Abu Hurairah r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Barangsiapa menyeru ke jalan petunjuk (kebaikan), maka baginya pahala seperti pahala orang-orang yang mengikutinya, yang tidak terkurangi sedikitpun dari pahala-pahala amal mereka sama sekali. 
 
 Barangsiapa menyeru kepada jalan yang menyesatkan, maka baginya dosa semisal (sama) dosa orang-orang yang mengikutinya, yang tidak terkurangi sedikitpun dari dosa-dosa mereka sama sekali.” (0172) [Sahih Ibnu Majah] 
 
@@ -79,19 +79,19 @@ Apa yang penting adalah, kebenaran itu didasari dengan ilmu. Di manakah pula car
 
 Kebenaran itu tidak semestinya mengikut majoriti, jika terdapat kesalahan dan kesilapan orang terdahulu kemudian setelah diketahui kebenarannya, hendaklah kita menerima dengan hati yang terbuka dan perbetuli kembali kesalahan dan kesilapan itu agar tidak membiarkan generasi akan datang terus menerus dalam kesilapan. 
 
-Hadis : Dari Abu Hurairah r.a : Rasulullah saw bersabda, “Kalau amanah tidak lagi dipegang teguh, maka tunggulah saat kehancuran.” 
+Hadis : Dari Abu Hurairah r.a : Rasulullah Sallalahu Alaihi Wasallam bersabda, “Kalau amanah tidak lagi dipegang teguh, maka tunggulah saat kehancuran.” 
 
-Ia (Abu Hurairah) bertanya, ‘Bagaimana orang (yang) tidak memegang teguh amanah itu ya Rasulullah?’ Beliau (Nabi saw) menjawab, “Kalau sesuatu urusan telah diserahkan kepada orang yang bukan ahlinya, maka tunggulah saat kehancuran.” (1746) [Sahih Bukhari] 
+Ia (Abu Hurairah) bertanya, ‘Bagaimana orang (yang) tidak memegang teguh amanah itu ya Rasulullah?’ Beliau (Nabi Sallalahu Alaihi Wasallam) menjawab, “Kalau sesuatu urusan telah diserahkan kepada orang yang bukan ahlinya, maka tunggulah saat kehancuran.” (1746) [Sahih Bukhari] 
 
 ### 4. Mereka yang Berilmu Pengetahuan
 
 Surah Al-Mu'min [40] : 83 83. Maka tatkala datang kepada mereka rasul-rasul (yang diutus kepada) mereka dengan membawa keterangan-keterangan, mereka merasa senang dengan pengetahuan yang ada pada mereka dan mereka dikepung oleh azab Allah yang selalu mereka perolok-olokkan itu. 
 
-Di antara orang yang paling sukar didakwahkan juga adalah orang yang ‘menyangka’ dia sudah mempunyai ilmu pengetahuan yang cukup. Sebarang pendapat yang berlainan dengannya akan ditentang habis-habisan walaupun bertentangan dengan hadis Nabi saw. Mereka akan berhujah dengan kitab itu dan ini, kata-kata guru itu dan guru ini malah mereka lebih mengikut pendapat guru dan kitab mereka melebihi perkataan Rasulullah saw sendiri. 
+Di antara orang yang paling sukar didakwahkan juga adalah orang yang ‘menyangka’ dia sudah mempunyai ilmu pengetahuan yang cukup. Sebarang pendapat yang berlainan dengannya akan ditentang habis-habisan walaupun bertentangan dengan hadis Nabi Sallalahu Alaihi Wasallam. Mereka akan berhujah dengan kitab itu dan ini, kata-kata guru itu dan guru ini malah mereka lebih mengikut pendapat guru dan kitab mereka melebihi perkataan Rasulullah Sallalahu Alaihi Wasallam sendiri. 
 
-Apa yang lebih melucukan adalah, mereka menggunakan dalil yang langsung tidak layak seperti suratkhabar, radio dan sebagainya bagi menentang atau beralasan menolak hadis Rasulullah saw. 
+Apa yang lebih melucukan adalah, mereka menggunakan dalil yang langsung tidak layak seperti suratkhabar, radio dan sebagainya bagi menentang atau beralasan menolak hadis Rasulullah Sallalahu Alaihi Wasallam. 
 
-Hadis (diringkaskan): Dari Irbadh bin Sariyah : Rasulullah saw bersabda, “....Kamu akan melihat perselisihan yang sangat dahsyat sesudahku, maka hendaklah kamu berpegang pada Sunnah-ku dan Sunnah-Khulafa ur rasyidin yang mendapat petunjuk. Gigitlah dengan gigi gerahammu dan jauhilah perkara-perkara baru, sesungguhnya setiap bidaah (perkara baru dalam agama) adalah sesat.” (0040) 
+Hadis (diringkaskan): Dari Irbadh bin Sariyah : Rasulullah Sallalahu Alaihi Wasallam bersabda, “....Kamu akan melihat perselisihan yang sangat dahsyat sesudahku, maka hendaklah kamu berpegang pada Sunnah-ku dan Sunnah-Khulafa ur rasyidin yang mendapat petunjuk. Gigitlah dengan gigi gerahammu dan jauhilah perkara-perkara baru, sesungguhnya setiap bidaah (perkara baru dalam agama) adalah sesat.” (0040) 
 
 ### 5. Orang yang Mempunyai Pangkat, Harta dan Kuasa
 
@@ -105,7 +105,7 @@ Surah Al-Qashash [28] : 78 78. Qarun berkata: "Sesungguhnya aku hanya diberi har
 
 Kedua-dua ayat diatas menyatakan akan kesombongan golongan yang kelima ini. Apabila didakwahkan kepada mereka agar mentaati perintah Allah yang Maha Agung dan Rasul-Nya, mereka sangat sombong; mereka berkata ada perkataan yang lebih baik dari itu pada zaman moden ini. Tujuan mereka tidak lain hanyalah untuk menambah kekayaan mereka sahaja dan takut rugi dari segi kehilangan pengaruh dan kuasa. 
 
-Hadis: Dari Abu Hurairah r.a: Rasulullah saw bersabda, “Setiap umat ku masuk ke dalam syurga, selain orang yang enggan.” Mereka bertanya, ‘Ya, Rasulullah, Siapakah yang enggan (masuk syurga) itu?’ Jawab Nabi saw, “Siapa yang mematuhi perintah ku, masuk syurga dan siapa yang melanggar perintah ku, maka sesungguhnya orang itu enggan (masuk syurga).” (1952) [Sahih Bukhari] 
+Hadis: Dari Abu Hurairah r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Setiap umat ku masuk ke dalam syurga, selain orang yang enggan.” Mereka bertanya, ‘Ya, Rasulullah, Siapakah yang enggan (masuk syurga) itu?’ Jawab Nabi Sallalahu Alaihi Wasallam, “Siapa yang mematuhi perintah ku, masuk syurga dan siapa yang melanggar perintah ku, maka sesungguhnya orang itu enggan (masuk syurga).” (1952) [Sahih Bukhari] 
 
 ### 6. Sangka Buruk
 
@@ -119,7 +119,7 @@ Mencela diri sendiri juga bermaksud mencela para mukmin yang lain. Orang seperti
 
 Surah Az-Zumar [39] : 9 9. ...... Katakanlah: "Adakah sama orang-orang yang mengetahui dengan orang-orang yang tidak mengetahui?" Sesungguhnya orang yang berakallah yang dapat menerima pelajaran. 
 
-Hadis: Dari Aisyah r.a : Rasulullah saw bersabda, “Orang yang sangat dibenci Allah ialah orang yang suka bermusuh-musuhan.” (1915) [Sahih Bukhari] 
+Hadis: Dari Aisyah r.a : Rasulullah Sallalahu Alaihi Wasallam bersabda, “Orang yang sangat dibenci Allah ialah orang yang suka bermusuh-musuhan.” (1915) [Sahih Bukhari] 
 
 ## PENUTUP 
 
@@ -131,12 +131,12 @@ Hanya kepada Allah yang Maha Pengasih lagi Maha Penyayanglah kita memohon perlin
 
 Surah Al-Baqarah [2] : 153 153. Hai orang-orang yang beriman, jadikanlah sabar dan solat sebagai penolongmu, sesungguhnya Allah berserta orang-orang yang sabar. 
 
-Hadis: Dari Mu’awiyah r.a : Rasulullah saw bersabda, “Sentiasa ada segolongan umat ku yang selalu berjuang menegakkan agama AllahTa’ala. Mereka tidak akan celaka oleh orang-orang yang menghina atau menentang mereka sampai hari kiamat. Bahkan mereka tetap menang atas semua manusia.” (1873) [Sahih Muslim] 
+Hadis: Dari Mu’awiyah r.a : Rasulullah Sallalahu Alaihi Wasallam bersabda, “Sentiasa ada segolongan umat ku yang selalu berjuang menegakkan agama AllahTa’ala. Mereka tidak akan celaka oleh orang-orang yang menghina atau menentang mereka sampai hari kiamat. Bahkan mereka tetap menang atas semua manusia.” (1873) [Sahih Muslim] 
 
 Rujukan: 
 
 - Terjemahan Al-Quran dan Tafsir Ibn Katsir
 - Hadis-hadis sahih
-- Sirah dan Riwayat Hidup Nabi Muhammad Saw [Abu Mazaya Al-Hafiz]
+- Sirah dan Riwayat Hidup Nabi Muhammad Sallalahu Alaihi Wasallam [Abu Mazaya Al-Hafiz]
 - Metodologi Dakwah [Prof. Dr. Abd Aziz bin Mohd. Zin]
 - As-Sunnah dalam mengamalkan As-Sunnah [Ustaz Fadlan bin Mohd. Othman]
