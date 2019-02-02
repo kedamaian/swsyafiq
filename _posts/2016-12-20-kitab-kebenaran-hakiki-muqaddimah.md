@@ -39,4 +39,4 @@ Kami teramat berhutang budi kepada Ybg. Dato' Haji Tuan Ibrahim bin Tuan Man, ya
 
 Kami sangat bersyukur kepada Allah s.w.t yang telah meneguhkan kesabaran ahli-ahli kami yang terpaksa menanggung berbagai-bagai kesulitan selama kami berada dalam pekerjaan ini.
 
-Semoga Allah s.w.t mengurniakan ganjaran yang melimpah ruah kepada mereka semua. Amin!
+Semoga Allah s.w.t mengurniakan ganjaran yang melimpah ruah kepada mereka semua. Ameenn!
