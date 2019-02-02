@@ -6,11 +6,11 @@ title: Peristiwa Akhir Zaman 2
 categories:
   - Hadis
 ---
-Dari Zainab binti Jahsy r.a (isteri Rasulullah saw), katanya : Rasulullah saw masuk ke dalam rumahnya dalam keadaan cemas sambil bersabda, “La ilaa ha illallah, celaka (binasa) bagi bangsa Arab dari kejahatan (bencana) yang sudah hampir menimpa mereka. 
+Dari Zainab binti Jahsy r.a (isteri Rasulullah Sallalahu Alaihi Wasallam), katanya : Rasulullah Sallalahu Alaihi Wasallam masuk ke dalam rumahnya dalam keadaan cemas sambil bersabda, “La ilaa ha illallah, celaka (binasa) bagi bangsa Arab dari kejahatan (bencana) yang sudah hampir menimpa mereka. 
 
-Pada hari ini telah terbuka dinding Ya’juj dan Ma’juj,” dan Baginda saw menemukan ujung ibu jari dan ujung jari yang sebelahnya (jari telunjuk) yang dengan itu mengisyaratkan seperti bulatan. 
+Pada hari ini telah terbuka dinding Ya’juj dan Ma’juj,” dan Baginda Sallalahu Alaihi Wasallam menemukan ujung ibu jari dan ujung jari yang sebelahnya (jari telunjuk) yang dengan itu mengisyaratkan seperti bulatan. 
 
-Saya (Zainab binti Jahsy) lalu bertanya, ‘Ya Rasulullah, apakah kami akan binasa sedangkan di kalangan kami masih ada orang-orang soleh?’ Lalu Nabi saw bersabda, “Ya, jikalau kejahatan sudah terlalu banyak.” [Riwayat Bukhari dan Muslim] 
+Saya (Zainab binti Jahsy) lalu bertanya, ‘Ya Rasulullah, apakah kami akan binasa sedangkan di kalangan kami masih ada orang-orang soleh?’ Lalu Nabi Sallalahu Alaihi Wasallam bersabda, “Ya, jikalau kejahatan sudah terlalu banyak.” [Riwayat Bukhari dan Muslim] 
 
 **Penjelasan dan Pengajaran:**
 
