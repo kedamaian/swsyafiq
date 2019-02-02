@@ -6,9 +6,9 @@ title: Peristiwa Akhir Zaman 5
 categories:
   - Hadis
 ---
-Dari Abu Sa’id Al-Khudri r.a: Rasulullah saw bersabda, “Kamu akan mengikut jejak langkah umat-umat sebelum kamu sejengkal demi sejengkal, sehasta demi sehasta sehingga jikalau mereka masuk ke lubang biawak pun kamu akan mengikuti mereka.” 
+Dari Abu Sa’id Al-Khudri r.a: Rasulullah Sallalahu Alaihi Wasallam bersabda, “Kamu akan mengikut jejak langkah umat-umat sebelum kamu sejengkal demi sejengkal, sehasta demi sehasta sehingga jikalau mereka masuk ke lubang biawak pun kamu akan mengikuti mereka.” 
 
-Sahabat bertanya, ‘Ya Rasulullah, apakah Yahudi dan Nasrani yang kau maksudkan?’ Nabi saw menjawab, “Siapa lagi kalau bukan mereka.” [Riwayat Muslim] 
+Sahabat bertanya, ‘Ya Rasulullah, apakah Yahudi dan Nasrani yang kau maksudkan?’ Nabi Sallalahu Alaihi Wasallam menjawab, “Siapa lagi kalau bukan mereka.” [Riwayat Muslim] 
 
 **Penjelasan dan Pengajaran:**
 
