@@ -6,7 +6,7 @@ title: Kelebihan Hari Jumaat
 categories:
   - Tazkirah
 ---
-Daripada Abu Hurairah katanya, Rasulullah SAW bersabda, maksudnya: “Sebaik-baik hari yang terbit matahari ialah hari Jumaat. Pada hari itu Adam diciptakan dan pada hari itu juga dia dikeluarkan dari syurga. Pada Jumaat juga kiamat akan berlaku. Pada hari itu tidaklah seorang yang beriman meminta sesuatu daripada Allah melainkan akan dikabulkan permintaannya.” (HR Muslim).
+Daripada Abu Hurairah katanya, Rasulullah Sallalahu Alaihi Wasallam bersabda, maksudnya: “Sebaik-baik hari yang terbit matahari ialah hari Jumaat. Pada hari itu Adam diciptakan dan pada hari itu juga dia dikeluarkan dari syurga. Pada Jumaat juga kiamat akan berlaku. Pada hari itu tidaklah seorang yang beriman meminta sesuatu daripada Allah melainkan akan dikabulkan permintaannya.” (HR Muslim).
 
 “Sesungguhnya hari Jumaat adalah penghulu segala hari dan hari yang paling besar di sisi Allah Subhanhu wa Ta ‘ala iaitu hari yang lebih besar daripada hari raya Adha dan hari raya Fitrah, pada hari Jum‘at itu terdapat lima kejadian iaitu hari yang dijadikan Adam ‘alaihissalam dan Baginda di turunkan daripada syurga ke muka bumi, dan pada hari itu juga wafatnya Adam ‘alaihissalam, dan Allah mengurniakan satu saat di mana doa-doa dikabulkan kecuali doa-doa maksiat, dan hari Jumaat juga akan terjadinya hari Kiamat”. (HR Ibnu Majah)
 
@@ -24,6 +24,6 @@ Rasulullah bersabda maksudnya: “Sesiapa yang berwuduk dan kemudian dia pergi k
 
 "Tidaklah seseorang Muslim itu meninggal dunia pada hari jumaat atau pada malam Jumaat melainkan Allah menyelamatkannya dari fitnah kubur (soalan di dalam kubur). (HR At-Tirmizi)
 
-Rasulullah SAW bersabda, "Solat lima waktu, Jumaat ke Jumaat dan Ramadan ke Ramadan, semuanya adalah penghapus dosa-dosa di antara kedua-duanya selagi mana dijauhi dosa-dosa besar.” (HR Muslim)
+Rasulullah Sallalahu Alaihi Wasallam bersabda, "Solat lima waktu, Jumaat ke Jumaat dan Ramadan ke Ramadan, semuanya adalah penghapus dosa-dosa di antara kedua-duanya selagi mana dijauhi dosa-dosa besar.” (HR Muslim)
 
 "Ganjaran bagi segala kebajikan digandakan pada hari Juma'at". (HR ath-Thabarani)
