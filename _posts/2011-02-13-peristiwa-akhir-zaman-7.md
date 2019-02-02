@@ -6,9 +6,9 @@ title: Peristiwa Akhir Zaman 7
 categories:
   - Hadis
 ---
-Rasulullah saw bersabda, “Umat ku akan ditimpa penyakit-penyakit yang pernah menimpa umat-umat dahulu.” Sahabat bertanya, ‘Apakah penyakit-penyakit umat-umat terdahulu itu?’ 
+Rasulullah Sallalahu Alaihi Wasallam bersabda, “Umat ku akan ditimpa penyakit-penyakit yang pernah menimpa umat-umat dahulu.” Sahabat bertanya, ‘Apakah penyakit-penyakit umat-umat terdahulu itu?’ 
  
-Nabi saw menjawab, “Penyakit-penyakit itu ialah: 
+Nabi Sallalahu Alaihi Wasallam menjawab, “Penyakit-penyakit itu ialah: 
 
 1. Terlalu banyak berseronok
 2. Terlalu mewah
