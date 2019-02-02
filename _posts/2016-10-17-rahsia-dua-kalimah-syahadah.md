@@ -161,7 +161,7 @@ Pegang dua kunci ini baik-baik. mereka meletakkan lambang kunci syurga pada paka
 
 **Sedikit rujukan 'Miftahul Jannah' dari sumber Islam**
 
-Muaz bin Jabal Radiallahu-Anhu meriwayatkan bahawa Rasulullah SAW bersabda yang bermaksud:
+Muaz bin Jabal Radiallahu-Anhu meriwayatkan bahawa Rasulullah Sallalahu Alaihi Wasallam bersabda yang bermaksud:
 
 “Anak-anak kunci syurga ialah mengakui kalimah La Ilaha Illallah (Riwayat Imam Ahmad)
 
@@ -173,16 +173,16 @@ Wahab menjawab: “ Benar, akan tetapi tidaklah bagi setiap kunci itu melainkan 
 
 'Gigi' yang dimaksudkan ialah bukan sekadar menyebut kalimah syahadah tetapi memahaminya serta melaksanakan apa yang dimaksudkan darinya.
 
-Dari Jabir bin Abdullah, ia berkata: Aku mendengar Rasulullah SAW bersabda: Zikir yang paling mulia ialah La Ilaha Illallah dan doa yang paling baik ialah Alhamdulillah. (Riwayat Al-Imam Ibnu Majah)
+Dari Jabir bin Abdullah, ia berkata: Aku mendengar Rasulullah Sallalahu Alaihi Wasallam bersabda: Zikir yang paling mulia ialah La Ilaha Illallah dan doa yang paling baik ialah Alhamdulillah. (Riwayat Al-Imam Ibnu Majah)
 
-Dari Abu Hurairah Radiallahu-Anhu, ia berkata: Bersabda Rasulullah SAW: “Yang akan mencapai kebahagiaan dan keuntungan melalui syafaatku ialah orang yang mengucapkan kalimah La Ilaha Illallah dengan hati yang ikhlas”. (Riwayat Al-Imam Al-Bukhari)
+Dari Abu Hurairah Radiallahu-Anhu, ia berkata: Bersabda Rasulullah Sallalahu Alaihi Wasallam: “Yang akan mencapai kebahagiaan dan keuntungan melalui syafaatku ialah orang yang mengucapkan kalimah La Ilaha Illallah dengan hati yang ikhlas”. (Riwayat Al-Imam Al-Bukhari)
 
-Dari Zaid bin Arqam Radiallahu-Anhu meriwayatkan bahawa Rasulullah Sallallahu Alaihi Wasallam bersabda yang maksudnya: “Barangsiapa yang mengucapkan La Ilaha Illallah dengan ikhlas, dia akan dimasukkan ke dalam syurga.” Lalu ditanyakan kepada baginda: “Bagaimanakah yang dimaksudkan dengan ikhlas itu? Rasulullah SAW bersabda: “Ikhlas itu ialah yang mencegah dari melakukan perbuatan-perbuatan yang haram”. 
+Dari Zaid bin Arqam Radiallahu-Anhu meriwayatkan bahawa Rasulullah Sallallahu Alaihi Wasallam bersabda yang maksudnya: “Barangsiapa yang mengucapkan La Ilaha Illallah dengan ikhlas, dia akan dimasukkan ke dalam syurga.” Lalu ditanyakan kepada baginda: “Bagaimanakah yang dimaksudkan dengan ikhlas itu? Rasulullah Sallalahu Alaihi Wasallam bersabda: “Ikhlas itu ialah yang mencegah dari melakukan perbuatan-perbuatan yang haram”. 
 (Riwayat Al-Imam At-Thabrani)
 
-Dari Umar Radiallahu-Anhu meriwayatkan bahawa beliau mendengar Rasulullah SAW bersabda yang bermaksud: “Aku mengetahui satu kalimah yang tidaklah seorang hamba pun yang mengucapkannya dan membenarkannya dengan hati kemudian ia mati dengannya melainkan haramlah ke atasnya neraka jahanam. Kalimah itu ialah “La Ilaha Illallah”. (Riwayat Al-Imam Al-Hakim)
+Dari Umar Radiallahu-Anhu meriwayatkan bahawa beliau mendengar Rasulullah Sallalahu Alaihi Wasallam bersabda yang bermaksud: “Aku mengetahui satu kalimah yang tidaklah seorang hamba pun yang mengucapkannya dan membenarkannya dengan hati kemudian ia mati dengannya melainkan haramlah ke atasnya neraka jahanam. Kalimah itu ialah “La Ilaha Illallah”. (Riwayat Al-Imam Al-Hakim)
 
-Dari Ibnu Abbas Radiallahu-Anhuma bahawa Rasulullah SAW bersabda yang bermaksud: “Demi yang diriku ditangannya, jika sekiranya segala langit dan bumi dan siapa yang ada padanya dan apa-apa yang ada di antaranya dan apa-apa yang ada di bawahnya diletakkan disebelah dacing dan kalimah La Ilaha Illallah disebelah yang lain, maka dacing kalimah (La Ilaha Illallah) itulah yang lebih berat”. (Riwayat Al-Imam At-Thabrani)
+Dari Ibnu Abbas Radiallahu-Anhuma bahawa Rasulullah Sallalahu Alaihi Wasallam bersabda yang bermaksud: “Demi yang diriku ditangannya, jika sekiranya segala langit dan bumi dan siapa yang ada padanya dan apa-apa yang ada di antaranya dan apa-apa yang ada di bawahnya diletakkan disebelah dacing dan kalimah La Ilaha Illallah disebelah yang lain, maka dacing kalimah (La Ilaha Illallah) itulah yang lebih berat”. (Riwayat Al-Imam At-Thabrani)
 
 *Juga diingatkan ketika Nabi Isa a.s berkata kepada Peter, tidaklah baginda bertutur dalam bahasa Arab atau dalam bentuk 100% kalimah syahadah dalam bahasa Arab, tetapi di dalam bahasa Aramaik Kuno yang konsepnya tetap satu iaitu Tiada Tuhan Selain Allah dan Nabi Muhammad itu pesuruh Allah
 
