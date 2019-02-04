@@ -60,7 +60,7 @@ Maka demikianlah maksud Allah SWT dalam surah Maryam ayat 57 yang bermaksud:-
 Menurut Hasan al-Basri ketika mentafsirkan ayat tersebut iaitu ‘diangkat ke tempat yang tinggi’ bermaksud diangkat ke syurga.
 
 Mujahid pula berpandangan bahawa Nabi Idris AS diangkat dalam keadaan masih hidup sebagaimana halnya Nabi Isa AS.
-Sementara itu, Ibnu Abi Najih berkata dari Mujahid dalam firman Allah Ta’ala, “Dan Kami telah mengangkatnya ke martabat yang tinggi.” Dia berkata, Idris diangkat ke langit dalam keadaan hidup, belum dicabut nyawanya sebagaimana ‘Isa Alaihissalam (3), namun hal ini harus dikaji lebih dalam lagi, adapun jika maksudnya adalah dia diangkat ke langit dalam keadaan masih hidup kemudian dicabut nyawanya disana maka tidak dapat dinafikan dari apa yang diriwayatkan oleh Ka’ab Al-Ahbar. Wallahu'alam.
+Sementara itu, Ibnu Abi Najih berkata dari Mujahid dalam firman Allah Ta’ala, “Dan Kami telah mengangkatnya ke martabat yang tinggi.” Dia berkata, Idris diangkat ke langit dalam keadaan hidup, belum dicabut nyawanya sebagaimana ‘Isa Alaihissalam (3), namun hal ini harus dikaji lebih dalam lagi, adapun jika maksudnya adalah dia diangkat ke langit dalam keadaan masih hidup kemudian dicabut nyawanya di sana maka tidak dapat dinafikan dari apa yang diriwayatkan oleh Ka’ab Al-Ahbar. Wallahu'alam.
 
 **Nabi Idris As Kedatangan Tamu**
 
@@ -151,7 +151,7 @@ Terdapat empat ayat yang berhubungan dengan Nabi Idris AS dalam Al-Qur’an, dim
 
 Dalam sebuah hadits, Nabi Idris AS disebutkan sebagai salah seorang dari nabi-nabi pertama yang berbicara dengan Muhammad dalam salah satu syurga selama Mi’raj.
 
-Diriwayatkan dari Abbas bin Malik: … Gerbang telah terbuka, dan ketika aku pergi ke syurga keempat, disana aku melihat Idris. Jibril berkata (kepadaku). ‘Ini adalah Idris; berilah dia salammu.’ Maka aku mengucapkan salam kepadanya dan ia mengucapkan salam kepadaku dan berkata. ‘Selamat datang, O saudaraku yang alim dan nabi yang saleh.; … Sahih Bukhari 5:58:227
+Diriwayatkan dari Abbas bin Malik: … Gerbang telah terbuka, dan ketika aku pergi ke syurga keempat, di sana aku melihat Idris. Jibril berkata (kepadaku). ‘Ini adalah Idris; berilah dia salammu.’ Maka aku mengucapkan salam kepadanya dan ia mengucapkan salam kepadaku dan berkata. ‘Selamat datang, O saudaraku yang alim dan nabi yang saleh.; … Sahih Bukhari 5:58:227
 
 Nabi Idris AS dipercayai sebagai seorang penjahit berdasarkan hadits ini:
 
@@ -159,7 +159,7 @@ Ibnu Abbas berkata, “Daud adalah seorang pembuat perisai, Adam seorang petani,
 
 **Dicintai Allah SWT, Dihormati Manusia**
 
-Menurut Dr. Hamid Ahmad al-Tahir dalam kitabnya Qasas al-Anbiya'’ li al-Atfal, Nabi Idris AS tidak hanya menjalankan ibadah begitu sahaja, tetapi Baginda AS beruasaha untuk memberikan ibadah dan pengabdian yang terbaik kepada Allah SWT iaitu dengan melakukan solat tepat pada waktunya, menjalankan ibadah puasa dan selalu ingat kepada golongan fakir dan miskin.
+Menurut Dr. Hamid Ahmad al-Tahir dalam kitabnya Qasas al-Anbiya'’ li al-Atfal, Nabi Idris AS tidak hanya menjalankan ibadah begitu sahaja, tetapi Baginda AS berusaha untuk memberikan ibadah dan pengabdian yang terbaik kepada Allah SWT iaitu dengan melakukan solat tepat pada waktunya, menjalankan ibadah puasa dan selalu ingat kepada golongan fakir dan miskin.
 
 Ketika Nabi Idris AS mencapai kualiti ilmu pengetahuan yang tinggi dan pengabdian yang sempurna kepada Allah SWT, penduduk di setiap negeri yang disinggahinya pun mencintainya, sehinggakan semua masyarakat di setiap wilayah dan negara yang disinggahinya berusaha memperlihatkan kepada dunia bahawa Nabi Idris AS berasal dari negeri mereka.
 
@@ -196,7 +196,7 @@ Semua ini merupakan penghormatan dan kemuliaan kepada Nabi Idris AS.
 
 Sebelum Nabi Idris AS wafat, Baginda AS mengajarkan kepada anak-anaknya cara untuk menjadi seorang hamba yang beribadah kepada Allah SWT. 
 
-Baginda AS juga memberikan wasiat kepada mereka agar selalu menjada keimanan kepada Allah SWT dan tidak berlaku kufur kepada-Nya. Selain itu, Nabi Idris AS juga mengajar pelbagai ilmu pengetahuan yang bermanfaat yang telah Baginda AS pelajari. 
+Baginda AS juga memberikan wasiat kepada mereka agar selalu menjaga keimanan kepada Allah SWT dan tidak berlaku kufur kepada-Nya. Selain itu, Nabi Idris AS juga mengajar pelbagai ilmu pengetahuan yang bermanfaat yang telah Baginda AS pelajari. 
 
 Baginda AS juga telah mewasiatkan kepada mereka agar berjuang memerangi anak cucu Qabil yang menyembah berhala dan kufur kepada Allah SWT.
 
