@@ -151,7 +151,7 @@ Terdapat empat ayat yang berhubungan dengan Nabi Idris AS dalam Al-Qur’an, dim
 
 Dalam sebuah hadits, Nabi Idris AS disebutkan sebagai salah seorang dari nabi-nabi pertama yang berbicara dengan Muhammad dalam salah satu syurga selama Mi’raj.
 
-Diriwayatkan dari Abbas bin Malik: … Gerbang telah terbuka, dan ketika aku pergi ke surga keempat, disana aku melihat Idris. Jibril berkata (kepadaku). ‘Ini adalah Idris; berilah dia salammu.’ Maka aku mengucapkan salam kepadanya dan ia mengucapkan salam kepadaku dan berkata. ‘Selamat datang, O saudaraku yang alim dan nabi yang saleh.; … Sahih Bukhari 5:58:227
+Diriwayatkan dari Abbas bin Malik: … Gerbang telah terbuka, dan ketika aku pergi ke syurga keempat, disana aku melihat Idris. Jibril berkata (kepadaku). ‘Ini adalah Idris; berilah dia salammu.’ Maka aku mengucapkan salam kepadanya dan ia mengucapkan salam kepadaku dan berkata. ‘Selamat datang, O saudaraku yang alim dan nabi yang saleh.; … Sahih Bukhari 5:58:227
 
 Nabi Idris AS dipercayai sebagai seorang penjahit berdasarkan hadits ini:
 
