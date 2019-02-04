@@ -147,9 +147,9 @@ Terdapat empat ayat yang berhubungan dengan Nabi Idris AS dalam Al-Qur’an, dim
 
 “Dan ceritakanlah (hai Muhammad kepada mereka, kisah) Idris (yang tersebut) di dalam Al-Quran. Sesungguhnya ia adalah seorang yang sangat membenarkan dan seorang nabi. Dan Kami telah mengangkatnya ke martabat yang tinggi. (Qur’an 19:56-57)”
 
-“Dan (ingatlah kisah) Ismail, Idris dan Dzulkifli. Semua mereka termasuk orang-orang yang sabar. Kami telah memasukkan mereka kedalam rahmat Kami. Sesungguhnya mereka termasuk orang-orang yang saleh.” (Qur’an 21:85-86)”
+“Dan (ingatlah kisah) Ismail, Idris dan Dzulkifli. Semua mereka termasuk orang-orang yang sabar. Kami telah memasukkan mereka ke dalam rahmat Kami. Sesungguhnya mereka termasuk orang-orang yang soleh.” (Qur’an 21:85-86)”
 
-Dalam sebuah hadits, Nabi Idris AS disebutkan sebagai salah seorang dari nabi-nabi pertama yang berbicara dengan Muhammad dalam salah satu surga selama Mi’raj.
+Dalam sebuah hadits, Nabi Idris AS disebutkan sebagai salah seorang dari nabi-nabi pertama yang berbicara dengan Muhammad dalam salah satu syurga selama Mi’raj.
 
 Diriwayatkan dari Abbas bin Malik: … Gerbang telah terbuka, dan ketika aku pergi ke surga keempat, disana aku melihat Idris. Jibril berkata (kepadaku). ‘Ini adalah Idris; berilah dia salammu.’ Maka aku mengucapkan salam kepadanya dan ia mengucapkan salam kepadaku dan berkata. ‘Selamat datang, O saudaraku yang alim dan nabi yang saleh.; … Sahih Bukhari 5:58:227
 
