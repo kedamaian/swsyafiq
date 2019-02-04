@@ -26,13 +26,13 @@ Tetapi MURID tidak akan mampu melebihi dari GURUNYA.
 
 Duhai MURID, jangan mudah engkau LUPA DIRI. Jika tidak kerana GURU engkau, tidak engkau kenal jalan ini.
 
-Jangan hilang ADAB dengan GURU !Tiada ADAB maka hilanglah KEBERKATAN.
+Jangan hilang ADAB dengan GURU! Tiada ADAB maka hilanglah KEBERKATAN.
 
 Kalau murid itu umpama bulu mata,
 Maka guru Umpama kening
 Walau tinggi mana bulu mata naik
 Tak akan sampai setara dengan guru.
 
-Semoga Allah mengurniakan kita adab bersama GURU kita sepertimana yg diingini Guru kita bahkan lebih dari itu InshaAllah.
+Semoga Allah mengurniakan kita adab bersama GURU kita sepertimana yg diingini Guru kita bahkan lebih dari itu InsyaAllah.
 
 Ustaz Iqbal Zain Al-Jauhari 
