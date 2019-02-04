@@ -82,7 +82,7 @@ Maka berjalanlah keduanya melihat alam persekitaran dengan berbagai jenis tumbuh
 
 **Malaikat Izrail mencabut nyawa Nabi Idris AS atas permintaannya**
 
-Kemudian Malaikat Maut dan Nabi Idris as meneruskan perjalanan mereka. Tidak terasa oleh mereka bahawa mereka telah berkeliling selama empat hari. Selama mereka bersahabat, Nabi Idris as menemui beberapa keanehan pada diri temannya itu. Segala tindak-tanduknya berbeda dengan sifat-sifat manusia biasa. Akhirnya Nabi Idris as tidak dapat menahan hasrat ingin tahunya itu.
+Kemudian Malaikat Maut dan Nabi Idris as meneruskan perjalanan mereka. Tidak terasa oleh mereka bahawa mereka telah berkeliling selama empat hari. Selama mereka bersahabat, Nabi Idris as menemui beberapa keanehan pada diri temannya itu. Segala tindak-tanduknya berbeza dengan sifat-sifat manusia biasa. Akhirnya Nabi Idris as tidak dapat menahan hasrat ingin tahunya itu.
 
 Kemudian beliau bertanya: “Wahai tuan, bolehkah saya tahu, siapakah tuan yang sebenarnya? Saya adalah Malaikat Maut.”
 
