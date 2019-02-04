@@ -143,7 +143,7 @@ Allah menceritakan tentang kisah Nabi Idris AS ini kepada Rasulullah Sallahu ala
 
 **Nabi Idris di dalam Al-Qur’an dan Hadits**
 
-Terdapat empat ayat yang berhubungan dengan Nabi Idris AS dalam Al-Qur’an, dimana ayat-ayat tersebut saling terhubung didalam Surah Maryam (Maryam) dan Surah Al-Anbiya’ (Nabi-nabi).
+Terdapat empat ayat yang berhubungan dengan Nabi Idris AS dalam Al-Qur’an, dimana ayat-ayat tersebut saling terhubung di dalam Surah Maryam (Maryam) dan Surah Al-Anbiya’ (Nabi-nabi).
 
 “Dan ceritakanlah (hai Muhammad kepada mereka, kisah) Idris (yang tersebut) di dalam Al-Quran. Sesungguhnya ia adalah seorang yang sangat membenarkan dan seorang nabi. Dan Kami telah mengangkatnya ke martabat yang tinggi. (Qur’an 19:56-57)”
 
