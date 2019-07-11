@@ -4,12 +4,12 @@ published: true
 categories:
   - Ilmu dan Amalan
 author: tehnoblequran
-title: Ijazah Doa Syeikh Nazrul Nasir
+title: Ijazah Syeikh Nazrul Nasir
 ---
 Barang siapa yang membaca: 
 > "Jazallah 'anna Sayyidana Muhammadan shalallahu 'alaihi wa sallam ma huwa ahluh."
 
-(Semoga Allah membalas bagi pihak kami akan segala kebajikan yang dilakukan oleh Junjungan Nabi Muhammad Sallalahu Alaihi Wasallam dengan balasan yang selayaknya buat baginda) Fadhilatnya: bila dibaca akan membuat 70.000 malaikat menuliskan pahlanya.(Kitab Irsyadul 'ibad Ila sabilir Rasyad) 
+(Maksud : Ucapan terima kasih kepada Allah atas utusan Nabi Muhammad Sallalahu Alaihi Wasallam kepada kita. ) Fadhilatnya: bila dibaca akan membuat 70.000 malaikat menuliskan pahlanya.(Kitab Irsyadul 'ibad Ila sabilir Rasyad) 
 
 Riwayat lain (Semoga Allah membalas bagi pihak kami akan segala kebajikan yang dilakukan oleh Junjungan Nabi Muhammad Sallalahu Alaihi Wasallam dengan balasan yang selayaknya buat baginda) "Sesiapa yang mengucapkan: Jazallahu `anna Sayyidana Muhammadan maa huwa ahluh, ia akan menyibukkan 70 malaikat pencatat amalan selama 1000 hari". (HR. Imam ath-Thabraani) 
 
