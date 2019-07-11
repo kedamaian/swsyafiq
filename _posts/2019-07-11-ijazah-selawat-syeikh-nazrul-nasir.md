@@ -4,7 +4,7 @@ published: true
 categories:
   - Ilmu dan Amalan
 author: tehnoblequran
-title: Ijazah Selawat Syeikh Nazrul Nasir
+title: Ijazah Doa Syeikh Nazrul Nasir
 ---
 Barang siapa yang membaca: 
 > "Jazallah 'anna Sayyidana Muhammadan shalallahu 'alaihi wa sallam ma huwa ahluh."
