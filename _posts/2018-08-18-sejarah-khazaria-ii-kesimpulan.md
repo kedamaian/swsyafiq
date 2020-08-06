@@ -49,7 +49,7 @@ Dan setelah perang besar inilah yg nantinya Nabi Isa as akan turun semula dari l
 Updated on August 6, 2020
 
 **Rujukan**
-- Mukhtasar SunanAbu Daud (Juzuk 6 m/s 161)
+- Mukhtasar Sunan Abu Daud (Juzuk 6 m/s 161)
 - Attajul Jami' Llusul (Juzuk 5 m/s 341)
 - Misykatul Masobih (Hadis 5456)
 
