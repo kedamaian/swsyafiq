@@ -4,7 +4,7 @@ published: true
 categories:
   - Tazkirah
 author: tehnoblequran
-title: SUSUNAN PERISTIWA & TANDA BESAR KIAMAT
+title: Susunan Peristiwa & Tanda Besar Kiamat
 ---
 Tuan Guru Abuya Syeikh Ahmad Fahmi Zamzam al-Banjari an-Nadwi al-Maliki as-Syazuli hafizhahullah telah menyusun peristiwa dan tanda kiamat di dalam bukunya yang berjudul "Kiamat Hampir Tiba: Tanda-tandanya yang Kecil dan Tanda-tandanya yang Besar".
 
