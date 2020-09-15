@@ -45,7 +45,7 @@ Maka, susunannya adalah seperti yang berikut:
 
 Simbol # merupakan 10 tanda-tanda besar kiamat yang disebutkan oleh Rasulullah صلى الله عليه وسلم di dalam sebuah hadis riwayat Muslim. 
 
-Telah berkata oleh Abuya Syeikh Ahmad Fahmi Zamzam bahawa : Allah ta'ala dengan KASIH SAYANG-NYA dan HIKMAH-NYA telah menunjukkan kepada kita beberapa tanda yang terjadi mendahului kiamat supaya:
+Telah berkata oleh Abuya Syeikh Ahmad Fahmi Zamzam bahawa: Allah ta'ala dengan KASIH SAYANG-NYA dan HIKMAH-NYA telah menunjukkan kepada kita beberapa tanda yang terjadi mendahului kiamat supaya:
 
 1. Orang yang berdosa sempat bertaubat
 2. Orang yang sudah insaf akan menambahkan lagi amalan mereka
