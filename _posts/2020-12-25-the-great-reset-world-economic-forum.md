@@ -33,7 +33,7 @@ DIHUJUNG2 SAAT UNTUK KELUARNYA DAJJAL
 
 
 Disclaimer: Cuma pendapat peribadi & xperlu terlalu mempercayai.. 
-> “Dan mereka merancang, Allah juga merancang. Sesungguhnya Allah adalah sebaik-baik Perancang” 
+“Dan mereka merancang, Allah juga merancang. Sesungguhnya Allah adalah sebaik-baik Perancang” 
 (Surah Ali-Imran: 54)
 
 
