@@ -27,9 +27,8 @@ FASA KEJATUHAN EKONOMI DUNIA & HURU HARA
 FASA WW3 & Zuhur Imam Mahdi
 - Deployment of military personnel into major metropolitan areas as well as all major roadways to establish travel checkpoints. Restrict travel and movement. Provide logistical support to the area. Expected by Q3 2021: July - September. So pada bulan 7 nanti apabila orang2 sudah mula jadi gila disebabkan duit2 mereka laburkan di kaunter2 saham semuanya hangus, ekonomi bergolak dalam riot dan stok2 makanan pun habis maka disini mereka dah awal2 plan untuk letakkan tentera di jalan.. So kat sini saya cuma andaikan malhamah kubra akan bermula aka WW3 aka amageddon.. Dan imam mahdi akan dibaiah di Mekah di satu kawasan di antara Rukun dan Maqam.. dan jika peristiwa di atas telah terjadi, maka Al-Mahdi muncul pada hari Asyura 10 Muharram.. Cuba buat kajian & cek kalendar 2021 n selitkan hadis dgn peristiwa2 ni?
 
-- Maka jika kelahiran al-Mahdi pada tahun 1981, sedangkan umur al-Mahdi pada saat di baiah adalah berumur 40 tahun iaitu pada tahun 2021 Sebagaimana dijelaskan oleh Imam As Suyuthi, Abu Nua’im meriwayatkan dari Abi Umamah katanya, Rasulullah SAW bersabda:
-
-- “Al Mahdi daripada anak cucuku. Dia berumur 40 tahun, mukanya bagai bintang yang bersinar-sinar, di pipi sebelah kanannya terdapat tahi lalat hitam, dia memakai dua jubah Qatwaniyyah bagaikan pemuda Bani Israel. Dia mengeluarkan gedung-gedung dan menakluk negeri-negeri syirik.”
+- Maka jika kelahiran al-Mahdi pada tahun 1981, sedangkan umur al-Mahdi pada saat di baiah adalah berumur 40 tahun iaitu pada tahun 2021 Sebagaimana dijelaskan oleh Imam As Suyuthi, Abu Nua’im meriwayatkan dari Abi Umamah katanya, Rasulullah ﷺ bersabda:
+“Al Mahdi daripada anak cucuku. Dia berumur 40 tahun, mukanya bagai bintang yang bersinar-sinar, di pipi sebelah kanannya terdapat tahi lalat hitam, dia memakai dua jubah Qatwaniyyah bagaikan pemuda Bani Israel. Dia mengeluarkan gedung-gedung dan menakluk negeri-negeri syirik.”
 (Al-Hawi Lil-Fatawi)
 
 - Dalam beberapa hadis riwayat Nu'aim bin Hammad menyatakan bahawa pembaihan Imam Mahdi juga berlaku dalam 10 Muharram.
