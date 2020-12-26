@@ -7,7 +7,7 @@ categories:
 author: tehnoblequran
 title: The Great Reset World Economic Forum
 ---
-Berdasarkan leaked documents dari France, email dari liberal party of Canada, NWO & Rothschild/Rockefeller  tentang The great reset plan by the WEF ni.. maka saya simpulkan bg ringkas disini..
+Berdasarkan leaked documents dari France, [email](https://thecanadianreport.ca/is-this-leaked-memo-really-trudeaus-covid-plan-for-2021-you-decide/) dari liberal party of Canada, NWO & Rothschild/Rockefeller  tentang The great reset plan by the WEF ni.. maka saya simpulkan bg ringkas disini..
 
 Tahun2 mencabar 2021 & seterusnya..
 
