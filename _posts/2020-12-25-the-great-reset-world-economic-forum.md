@@ -29,7 +29,7 @@ FASA WW3 & Zuhur Imam Mahdi
 
 
 DIHUJUNG2 SAAT UNTUK KELUARNYA DAJJAL
-- Okay selepas saham dan ekonomi dunia runtuh maka disini mereka akan perkenalkan plan mereka iaitu World Debt Reset program.. Di ringkaskan, siapa yg nak loan2 rumah kereta kredit kad dan segala hutang2 dgn bank & kerajaan dihapuskan maka kena ikut mereka.. Ikut mereka bermaksud kena ambil vaksin dan bg semua hak2 milik rumah dan harta sepenuhnya kepada mereka. So kat kita kosong tiada apa2 seperti mana short video oleh WEF(World economic forum)  "you'll own nothing & you'll be happy"
+- Okay selepas saham dan ekonomi dunia runtuh maka disini mereka akan perkenalkan plan mereka iaitu World Debt Reset program.. Di ringkaskan, siapa yg nak loan2 rumah kereta kredit kad dan segala hutang2 dgn bank & kerajaan dihapuskan maka kena ikut mereka.. Ikut mereka bermaksud kena ambil vaksin dan bg semua hak2 milik rumah dan harta sepenuhnya kepada mereka. So kat kita kosong tiada apa2 seperti mana [short video](https://www.youtube.com/watch?v=ER04dbt5p74) oleh WEF(World economic forum)  "you'll own nothing & you'll be happy"
 
 
 Disclaimer: Cuma pendapat peribadi & xperlu terlalu mempercayai.. 
