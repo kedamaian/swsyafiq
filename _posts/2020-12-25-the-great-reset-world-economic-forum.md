@@ -27,6 +27,11 @@ FASA KEJATUHAN EKONOMI DUNIA & HURU HARA
 FASA WW3 & Zuhur Imam Mahdi
 - Deployment of military personnel into major metropolitan areas as well as all major roadways to establish travel checkpoints. Restrict travel and movement. Provide logistical support to the area. Expected by Q3 2021: July - September. So pada bulan 7 nanti apabila orang2 sudah mula jadi gila disebabkan duit2 mereka laburkan di kaunter2 saham semuanya hangus, ekonomi bergolak dalam riot dan stok2 makanan pun habis maka disini mereka dah awal2 plan untuk letakkan tentera di jalan.. So kat sini saya cuma andaikan malhamah kubra akan bermula aka WW3 aka amageddon.. Dan imam mahdi akan dibaiah di Mekah di satu kawasan di antara Rukun dan Maqam.. dan jika peristiwa di atas telah terjadi, maka Al-Mahdi muncul pada hari Asyura 10 Muharram.. Cuba buat kajian & cek kalendar 2021 n selitkan hadis dgn peristiwa2 ni?
 
+Maka jika kelahiran al-Mahdi pada tahun 1981, sedangkan umur al-Mahdi pada saat di baiah adalah berumur 40 tahun iaitu pada tahun 2021 Sebagaimana dijelaskan oleh Imam As Suyuthi, Abu Nua’im meriwayatkan dari Abi Umamah katanya, Rasulullah SAW bersabda:
+
+“Al Mahdi daripada anak cucuku. Dia berumur 40 tahun, mukanya bagai bintang yang bersinar-sinar, di pipi sebelah kanannya terdapat tahi lalat hitam, dia memakai dua jubah Qatwaniyyah bagaikan pemuda Bani Israel. Dia mengeluarkan gedung-gedung dan menakluk negeri-negeri syirik.”
+(Al-Hawi Lil-Fatawi) 
+
 
 DIHUJUNG2 SAAT UNTUK KELUARNYA DAJJAL
 - Okay selepas saham dan ekonomi dunia runtuh maka disini mereka akan perkenalkan plan mereka iaitu World Debt Reset program.. Di ringkaskan, siapa yg nak loan2 rumah kereta kredit kad dan segala hutang2 dgn bank & kerajaan dihapuskan maka kena ikut mereka.. Ikut mereka bermaksud kena ambil vaksin dan bg semua hak2 milik rumah dan harta sepenuhnya kepada mereka. So kat kita kosong tiada apa2 seperti mana [short video](https://www.youtube.com/watch?v=ER04dbt5p74) oleh WEF(World economic forum)  "you'll own nothing & you'll be happy"
@@ -53,4 +58,3 @@ Wallahu a'lam
 
 
 ![photo_2020-12-25_10-26-09.jpg]({{site.baseurl}}/images/photo_2020-12-25_10-26-09.jpg)
-
