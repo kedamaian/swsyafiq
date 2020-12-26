@@ -2,7 +2,6 @@
 layout: post
 published: true
 categories:
-  - Tazkirah
   - Perang Akhir Zaman
 author: tehnoblequran
 title: The Great Reset World Economic Forum
