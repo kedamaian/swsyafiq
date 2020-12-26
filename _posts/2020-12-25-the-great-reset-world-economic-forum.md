@@ -16,8 +16,9 @@ PENEMUAN & PEMBIAKAN VIRUS COVID BARU
    
 FASA LOCKDOWN
 - Jangkaan PKP semula di seluruh negara di antara 2.
-(i). Bermula seawal di antara Q1 2021: January 2021 - March 2021 atau...
-(ii) Bermula pada suku tahun kedua iaitu Q2 2021:April - June(dimana 13/4/2021 adalah bulan Ramadhan & Raya puasa pula pada 13/5/2021)
+- (i). Bermula seawal di antara Q1 2021: January 2021 - March 2021 atau...
+- (ii) Bermula pada suku tahun kedua iaitu Q2 2021:April - June(dimana 13/4/2021 adalah bulan Ramadhan & Raya puasa pula pada 13/5/2021)
+
 
 FASA KEJATUHAN EKONOMI DUNIA & HURU HARA
 Projected supply chain break downs, inventory shortages, large economic instability. EXPECTED IN Q2 2021: April - June or late Q2 2021 iaitu pada bulan May/June 2021.. Atau bahasa mudahnya saya terjemahkan ia sebagai fasa darurat & huru-hara! di mana firasat kuat mengatakan  disini akan berlaku crash paling epic dan dasyat dalam sejarah dunia saham selepas 2008, runtuhnya monetary system, duit xbernilai dan berharga lagi ibarat tisu kertas, forex2 semua collapse, crude & brent oil pn akan crash jugak seperti mana baru2 ni yg telah  pn demo kat kita dimana COP price jatuh menjunam hingga paras negative dalam sejarah.. disini jugaklah yg diistilahkan sebagai great reset dan mereka plan untuk mengantikannya dengan digital currency aka stable coin aka bitcoin.. Sekarang pn btc dah cecah all time high semula.. ia seolah2 membanyangi tentang apa yg yahudi zionist ni sedang rancang..
