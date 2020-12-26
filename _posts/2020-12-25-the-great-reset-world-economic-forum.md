@@ -11,10 +11,10 @@ Berdasarkan leaked documents dari France, [email](https://thecanadianreport.ca/i
 
 Tahun2 mencabar 2021 & seterusnya..
 
-PENEMUAN & PEMBIAKAN VIRUS COVID BARU
+//PENEMUAN & PEMBIAKAN VIRUS COVID BARU
 - Projected Covid-19 mutation and/co-infection with secondary virus(referred to as Covid21 @ apa2 saja nama lain yg negara istilahkan). - EXPECTED BY NOW TILL FEBRUARY 2021
    
-FASA LOCKDOWN
+//FASA LOCKDOWN
 - Jangkaan PKP semula di seluruh negara di antara 2.
 - (i). Bermula seawal di antara Q1 2021: January 2021 - March 2021 atau...
 - (ii) Bermula pada suku tahun kedua iaitu Q2 2021:April - June(dimana 13/4/2021 adalah bulan Ramadhan & Raya puasa pula pada 13/5/2021)
