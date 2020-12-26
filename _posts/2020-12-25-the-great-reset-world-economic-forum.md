@@ -38,3 +38,6 @@ Disclaimer: Cuma pendapat peribadi & xperlu terlalu mempercayai..
 
 
 Wallahu a'lam
+
+
+![1.jpg]({{site.baseurl}}/images/1.jpg)
