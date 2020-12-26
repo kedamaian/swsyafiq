@@ -10,7 +10,7 @@ Berdasarkan leaked documents dari France, email dari liberal party of Canada, NW
 
 Tahun2 mencabar 2021 & seterusnya..
 
-### PENEMUAN & PEMBIAKAN VIRUS COVID BARU
+##  PENEMUAN & PEMBIAKAN VIRUS COVID BARU
 1. Projected Covid-19 mutation and/co-infection with secondary virus(referred to as Covid21 @ apa2 saja nama lain yg negara istilahkan). - EXPECTED BY NOW TILL FEBRUARY 2021   
 *FASA LOCKDOWN*
 2. Jangkaan  PKP semula di seluruh negara di antara 2.
