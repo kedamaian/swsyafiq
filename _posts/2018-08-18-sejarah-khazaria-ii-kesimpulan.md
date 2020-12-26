@@ -55,9 +55,6 @@ Updated on August 6, 2020
 
 - Syeikh Ahmad Fahmi Bin Zamzam
 - Ustaz Wadi Anuar Ayub
-- Syeikh Belal Assaad 
-- Syeikh Yasir Qadhi
-- Syaikh Omar Abdul Kafi
 - Para Ulama Hadis
 - Noam Chomsky
 - Richard E. Byrd
