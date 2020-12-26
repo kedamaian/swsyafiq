@@ -34,7 +34,7 @@ FASA WW3 & Zuhur Imam Mahdi
 - Dalam beberapa hadis riwayat Nu'aim bin Hammad menyatakan bahawa pembaihan Imam Mahdi juga berlaku dalam 10 Muharram.
 
 - Dari buku "Huru-Hara Akhir Zaman" karangan Amin Muhammad Jamaluddin. Halaman 97:
-Keanehan-keanehan yang terjadi pada Ramadhan dan petaka-petaka dahsyat pada bulan Syawwal, Dzulqaidah dan Dzulhijjah. Al-Mahdi akan muncul di bulan Muharram. Pada Ramadhan sebelum kemunculannya, terlihat beberapa tanda-tanda nyata dan peristiwa- peristiwa yang aneh di langit. Mula-mula terjadi guncangan, kemudian muncul gelegar suara yang keras dan dahsyat, setiap orang bisa mendengarnya, kemudian muncul bintang berekor yang menerangi langit, kemudian matahari dan bulan mengalami gerhana.
+Keanehan-keanehan yang terjadi pada Ramadhan dan petaka-petaka dahsyat pada bulan Syawwal, Dzulqaidah dan Dzulhijjah. Al-Mahdi akan muncul di bulan Muharram. Pada Ramadhan sebelum kemunculannya, terlihat beberapa tanda-tanda nyata dan peristiwa- peristiwa yang aneh di langit. Mula-mula terjadi guncangan, kemudian muncul gelegar suara yang keras dan dahsyat, setiap orang dapat mendengarnya, kemudian muncul bintang berekor yang menerangi langit, kemudian matahari dan bulan mengalami gerhana.
 
 - Jika peristiwa-peristiwa diatas telah terjadi pada bulan Ramadhan, maka pada bulan Syawal akan terjadi huru-hara (ma'ma'ah). Kemudian pada bulan Dzulqaidah akan terjadi konflik antara suku dan perselisihan antara negeri Islam. Kemudian pada bulan Dzulhijjah, pada musim haji, akan terjadi perompakan terhadap para jama'ah haji dan peperangan antara suku dan bangsa Islam, sehingga darah mengalir di Jumrah 'Aqabah pada hari-hari Idul Adha di Mina.
 
