@@ -35,8 +35,7 @@ FASA WW3 & Zuhur Imam Mahdi
 - Dalam beberapa hadis riwayat Nu'aim bin Hammad menyatakan bahawa pembaihan Imam Mahdi juga berlaku dalam 10 Muharram.
 
 - Dari buku "Huru-Hara Akhir Zaman" karangan Amin Muhammad Jamaluddin. Halaman 97:
-
-- Keanehan-keanehan yang terjadi pada Ramadhan dan petaka-petaka dahsyat pada bulan Syawwal, Dzulqaidah dan Dzulhijjah. Al-Mahdi akan muncul di bulan Muharram. Pada Ramadhan sebelum kemunculannya, terlihat beberapa tanda-tanda nyata dan peristiwa- peristiwa yang aneh di langit. Mula-mula terjadi guncangan, kemudian muncul gelegar suara yang keras dan dahsyat, setiap orang bisa mendengarnya, kemudian muncul bintang berekor yang menerangi langit, kemudian matahari dan bulan mengalami gerhana.
+Keanehan-keanehan yang terjadi pada Ramadhan dan petaka-petaka dahsyat pada bulan Syawwal, Dzulqaidah dan Dzulhijjah. Al-Mahdi akan muncul di bulan Muharram. Pada Ramadhan sebelum kemunculannya, terlihat beberapa tanda-tanda nyata dan peristiwa- peristiwa yang aneh di langit. Mula-mula terjadi guncangan, kemudian muncul gelegar suara yang keras dan dahsyat, setiap orang bisa mendengarnya, kemudian muncul bintang berekor yang menerangi langit, kemudian matahari dan bulan mengalami gerhana.
 
 - Jika peristiwa-peristiwa diatas telah terjadi pada bulan Ramadhan, maka pada bulan Syawal akan terjadi huru-hara (ma'ma'ah). Kemudian pada bulan Dzulqaidah akan terjadi konflik antara suku dan perselisihan antara negeri Islam. Kemudian pada bulan Dzulhijjah, pada musim haji, akan terjadi perompakan terhadap para jama'ah haji dan peperangan antar suku dan bangsa Islam, sehingga darah mengalir di Jumrah 'Aqabah pada hari-hari Idul Adha di Mina.
 
@@ -46,7 +45,7 @@ FASA WW3 & Zuhur Imam Mahdi
 "Akan ada suara dahsyat di bulan Ramadhan, huru-hara di bulan Syawwal, konflik antar suku pada bulan Dzulqa'idah, dan pada tahun itu para jamaah haji dirampok dan terjadi pembantaian besar di Mina dimana banyak orang terbunuh dan darah mengalir disana, sedangkan pada saat itu mereka berada di Jumrah Aqabah".
 
 
-- Beliau shalallahu alaihi wasallam juga bersabda:
+- Baginda Nabi ﷺ juga bersabda:
 "Bila telah muncul suara di bulan Ramadhan, maka akan terjadi huru-hara di bulan Syawwal...". Kami bertanya: "Suara apakah, ya Rasulullah?" Beliau menjawab: "Suara keras di pertengahan bulan Ramadhan, pada malam Jum'at, akan muncul suara keras yang membangunkan orang tidur, menjadikan orang yang berdiri jatuh terduduk, para gadis keluar dari pingitannya, pada malam Jum'at di tahun terjadinya banyak gempa. Jika kalian telah melaksanakan shalat Subuh pada hari Jum'at, masuklah kalian ke dalam rumah kalian, tutuplah pintu-pintunya, sumbatlah lubang-lubangnya, dan selimutilah diri kalian, sumbatlah telinga kalian. Jika kalian merasakan adanya suara menggelegar, maka bersujudlah kalian kepada Allah dan ucapkanlah: "Mahasuci Al-Quddus, Mahasuci Al-Quddus, Rabb kami Al-Quddus!", karena barangsiapa melakukan hal itu akan selamat, tetapi barangsiapa yang tidak melakukan hal itu akan binasa".
 
 
