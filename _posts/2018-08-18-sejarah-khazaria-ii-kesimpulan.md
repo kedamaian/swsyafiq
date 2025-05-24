@@ -22,7 +22,7 @@ Siapakah penduduk negeri yang Allah maksudkan itu? penduduk yang di maksudkan it
 
 **Kesimpulan**
 
-Rum adalah Amerika & Pakatannya, bukan Rusia/Iran. Umat Islam akan bersatu bersama Rum melawan suatu musuh di belakang kita. Siapa musuh itu? Tak lain tak bukan adalah pakatan Zionist Freemasons Illuminati. Dan Allah melarang kita bersatu sama mereka ini di dalam surah Al Maidah ayat 51. Apakah umat islam buta? Kebanyakan kekacauan, kemaksiatan, peperangan, rata-rata semua berasal dari rencana Zionist Khazars ini. Seharusnya kita bersatu bersama USA memerangi proxies-backed-terrorists by Iran(Hezbollah, Houthis, Hamas.
+Rum adalah Amerika & Pakatannya, Bukan Rusia, Iran dan blok BRICS. Umat Islam akan bersatu bersama Rum melawan suatu musuh di belakang kita. Siapa musuh itu? Tak lain tak bukan adalah pakatan Zionist Freemasons Illuminati. Seperlunya kita bersatu bersama USA memerangi proxies-backed-terrorists by Iran(Hezbollah, Houthis, Hamas).
 
 Cyrus the Great. Namanya ada dalam Taurat dan sangat dihormati oleh Bani Israel. Tentang hadis Rum akan khianat setelah seorang dari Salib dibunuh oleh seorang Mukmin akan dihuraikan di bawah.
 
