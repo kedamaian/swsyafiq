@@ -1,9 +1,7 @@
 ---
 layout: post
 published: true
-title: >-
-  Pelan Zionist dalam melakonkan Timur dan Barat sebagai watak utama mereka
-  untuk memperdaya manusia
+title: Pelan Zionist dalam melakonkan Timur dan Barat sebagai watak utama mereka untuk memperdaya manusia
   categories:
   - Keilmuan
 author: tehnoblequran
