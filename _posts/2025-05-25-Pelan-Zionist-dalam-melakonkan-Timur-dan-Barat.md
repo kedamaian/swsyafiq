@@ -2,6 +2,9 @@
 title: >-
   Pelan Zionist dalam melakonkan Timur dan Barat sebagai watak utama mereka
   untuk memperdaya manusia
+  categories:
+  - Tazkirah
+author: tehnoblequran
 ---
 Pelan Zionist dalam melakonkan Timur dan Barat sebagai watak utama mereka untuk memperdaya manusia
 
