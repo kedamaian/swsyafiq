@@ -4,7 +4,7 @@ published: true
 categories:
 - Perang Akhir Zaman  
 author: tehnoblequran
-title: Plan Zionist dalam melakonkan Timur dan Barat sebagai watak utama mereka untuk memperdaya manusia
+title: Plan Zionist dalam melakonkan Timur dan Barat
 ---
 Pelan Zionist dalam melakonkan Timur dan Barat sebagai watak utama mereka untuk memperdaya manusia
 
