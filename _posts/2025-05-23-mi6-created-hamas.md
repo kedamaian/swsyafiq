@@ -1,15 +1,10 @@
-﻿---
+---
 layout: post
-
 published: true
-
 categories:
-- Perang Akhir Zaman  
-
+  - Perang Akhir Zaman
 author: tehnoblequran
-
 title: MI-6 Created Hamas & Radical Islam
-
 ---
 David Livingstone- MI-6 Created Hamas and Radical Islam
 
@@ -51,4 +46,5 @@ Dalam The Two Faces of Islam, Schwartz menulis, "Selera mereka membawa mereka ke
 
 Akhirnya, limpahan petro-dolar yang dibiayai Rothschild dalam peti besi keluarga Saudi telah memungkinkan mereka untuk menyebarkan versi Islam yang telah diselewengkan ke bahagian lain dunia, terutamanya ke Amerika, di mana mereka kononnya menaja sehingga 80 peratus masjid di negara tersebut, versi Islam yang menggantikan kesedaran politik dengan penekanan dogmatik terhadap fanatisme ritualistik.
 
-Pada tahun 1999, Raja Fahd dari Arab Saudi menghadiri mesyuarat Bilderberg, mungkin untuk membincangkan peranannya dalam memajukan kepentingan kerajaan dunia, bersama tokoh-tokoh lain seperti Yasser Arafat dan Paus. Keluarga Saudi adalah sebahagian daripada muslihat menipu rangkaian Illuminati. Komplisiti mereka dalam pengumpulan petro-dolar telah digunakan untuk membiayai keganasan global, dari Afghanistan ke Bosnia, semata-mata untuk menimbulkan kebencian dunia terhadap Islam.
+Pada tahun 1999, Raja Fahd dari Arab Saudi menghadiri mesyuarat Bilderberg, mungkin untuk membincangkan peranannya dalam memajukan kepentingan kerajaan dunia, bersama tokoh-tokoh lain seperti Yasser Arafat dan Paus. Keluarga Saudi adalah sebahagian daripada muslihat menipu rangkaian Illuminati. Komplisiti mereka dalam pengumpulan petro-dolar telah digunakan untuk membiayai keganasan global, dari Afghanistan ke Bosnia, semata-mata untuk menimbulkan kebencian dunia terhadap Islam.  
+![hamas](https://raw.githubusercontent.com/kedamaian/swsyafiq/gh-pages/images/0.jpg)
