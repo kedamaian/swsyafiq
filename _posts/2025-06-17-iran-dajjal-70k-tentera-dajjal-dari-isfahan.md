@@ -35,19 +35,17 @@ Dari Abu Hurairah r.a berkata : Rasulullah Sallallahu alaihi wasallam bersabda, 
 
 Sekarang, belumpun dajjal keluar dari isfahan Iran tetapi dia dah berjaya tarik puluh ribuan bahkan jutaan pengikutnya majoriti dari kaum lelaki yg jahil agama kononnya self-claimed pejuang islam dengan mewujudkan perang halusinasi powered by CGI hollywood yang mempersembahkan kepada dunia bahawa kononnya Iran(Dajjal) pembela rakyat palestin. Bertapa halus permainan dajjal(iran) ini bagi yang terbuka mata hati. Kesian kepada yang tertipu dengan fitnah dajjal(iran) yang paling besar ni kerana sanggup sokong iran(dajjal) dan juga mahu tergolong dalam 70k tentera dajjal(iran) secara tak langsung.
 
-Tentera Khurasan Adalah Tentera Al-Masih Dajjal
-http://abuaminaelias.com/are-the-hadith-of-the-black-flags-authentic/
+**Tentera Khurasan Adalah Tentera Al-Masih Dajjal**
 
 Hadis yang direkodkan oleh al-Tirmizi, Ibn Majah, Ahmad, al-Hakim, dan Abu Ya'lah berbunyi: "Al-Dajjal (Dajjal) akan keluar dari negeri yang bernama Khurasan, dan dia akan diikuti oleh beberapa umat yang muka mereka seperti perisai kerana bulat, besar, dan tebal, kerana beberapa lapisan kulit yang menutupinya.
 
-ISFAHAN, IRAN (sebahagian daripada Khurasan)
-
+**ISFAHAN, IRAN (sebahagian daripada Khurasan)
+**
 Dajjal akan diikuti oleh tujuh puluh ribu orang Yahudi Isfahan yang memakai selendang Parsi.
-يَتْبَعُ الدَّجَّالَ مِنْ يَهُودِ أَصْبَهَانَ سَبْعُونَ أَلْفًا عَلَيْهِمُ الطَّيَالِسَةُ
-
 Rujukan: Sahih Muslim 2944
 Rujukan dalam buku: Buku 54, Hadis 155
 Rujukan web (Bahasa Inggeris) USC-MSA: Buku 41, Hadith 7034
+http://abuaminaelias.com/are-the-hadith-of-the-black-flags-authentic/
 
 Daripada: Sunan Ibn Majah
 Bab No. 39, Bab-bab tentang Kesengsaraan
@@ -55,11 +53,11 @@ Nombor Hadis: 4072
 Diriwayatkan/Authority of Abu Bakar Siddiq
 “Rasulullah Sallallahu alaihi wasallam memberitahu kami: ‘Dajjal akan muncul di sebuah negeri di sebelah timur bernama Khorasan, dan akan diikuti oleh orang-orang yang berwajah seperti perisai yang dipalu.’”
 
-Dajjal’s Emergence: A hadith from Sunan Ibn Majah (narrated by Abu Bakr Siddiq) states that the Dajjal will emerge from Khorasan, followed by people described as having “faces like hammered shields” (often interpreted as referring to certain Turkic or Mongoloid tribes).
+**Dajjal’s Emergence:** A hadith from Sunan Ibn Majah (narrated by Abu Bakr Siddiq) states that the Dajjal will emerge from Khorasan, followed by people described as having “faces like hammered shields” (often interpreted as referring to certain Turkic or Mongoloid tribes).
 
-Black Banners: Some hadiths, such as those in Jami` at-Tirmidhi, describe “black banners” (flags) emerging from Khorasan as a sign of the coming of the Mahdi, the guided one who will precede Jesus (Isa) in Islamic eschatology. These banners are associated with a righteous army that will fight against corruption.
+**Black Banners:** Some hadiths, such as those in Jami` at-Tirmidhi, describe “black banners” (flags) emerging from Khorasan as a sign of the coming of the Mahdi, the guided one who will precede Jesus (Isa) in Islamic eschatology. These banners are associated with a righteous army that will fight against corruption.
 
-Symbolic Role: Khorasan is often seen as a place of great trials (fitna) and significant events in the lead-up to the Day of Judgment
+**Symbolic Role:** Khorasan is often seen as a place of great trials (fitna) and significant events in the lead-up to the Day of Judgment
 
 Hadis oleh Ana b. Malik meriwayatkan bahawa Rasulullah Sallallahu alaihi wasallam bersabda:
 Dajjal akan diikuti oleh tujuh puluh ribu orang Yahudi dari kota Isfahan Iran, memakai selendang Parsi. Hadis Sahih Muslim 2944.
