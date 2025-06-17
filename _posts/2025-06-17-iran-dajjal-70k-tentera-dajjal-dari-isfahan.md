@@ -39,8 +39,8 @@ Sekarang, belumpun dajjal keluar dari isfahan Iran tetapi dia dah berjaya tarik 
 
 Hadis yang direkodkan oleh al-Tirmizi, Ibn Majah, Ahmad, al-Hakim, dan Abu Ya'lah berbunyi: "Al-Dajjal (Dajjal) akan keluar dari negeri yang bernama Khurasan, dan dia akan diikuti oleh beberapa umat yang muka mereka seperti perisai kerana bulat, besar, dan tebal, kerana beberapa lapisan kulit yang menutupinya.
 
-**ISFAHAN, IRAN (sebahagian daripada Khurasan)
-**
+ISFAHAN, IRAN (sebahagian daripada Khurasan)
+
 Dajjal akan diikuti oleh tujuh puluh ribu orang Yahudi Isfahan yang memakai selendang Parsi.
 Rujukan: Sahih Muslim 2944
 Rujukan dalam buku: Buku 54, Hadis 155
@@ -70,9 +70,9 @@ Mohammad bin Musab berkata bahawa Nabi Sallallahu alaihi wasallam bersabda: "Tuj
 
 Abu Huraira berkata bahawa Nabi Sallallahu alaihi wasallam bersabda: "Dajjal akan turun ke Khuz (tanah di timur Iran) dan Kerman (wilayah di Iran) dengan tujuh puluh ribu (tentera) yang wajah mereka seperti perisai yang rata." (Musnad Ahmad)
 
-Dajjal sudah berada di bumi tetapi dia kemungkinan besar akan mendedahkan dirinya kepada umum dari Iran. Mengenai arah dari mana dia akan muncul, dia akan muncul dari timur, dari arah fitnah dan kejahatan, seperti yang dikatakan oleh Nabi Sallallahu alaihi wasallam: "Fitnah ada di sini," dan dia menunjuk ke arah timur. (Diriwayatkan oleh Al-Bukhari, 3279 dan Muslim, 5167). 
+**Dajjal sudah berada di bumi tetapi dia kemungkinan besar akan mendedahkan dirinya kepada umum dari Iran.** Mengenai arah dari mana dia akan muncul, dia akan muncul dari timur, dari arah fitnah dan kejahatan, seperti yang dikatakan oleh Nabi Sallallahu alaihi wasallam: "Fitnah ada di sini," dan dia menunjuk ke arah timur. (Diriwayatkan oleh Al-Bukhari, 3279 dan Muslim, 5167). 
 
-Jadi timur adalah sumber kejahatan dan kesengsaraan, dan dia akan muncul dari timur, dari Khurasan, melalui Isfahan dan memasuki Semenanjung Arab dari satu titik antara Syria dan Iraq, dengan tiada tujuan lain melainkan Madinah, kerana di situlah terletaknya Pembawa berita gembira dan amaran (salam dan berkat Allah ke atasnya). Dia akan ingin memusnahkan penduduk Madinah (https://islamqa.info/en/answers/6196/), tetapi itu akan diharamkan kepadanya, seperti yang diriwayatkan daripada Nabi (salam dan berkat Allah ke atasnya): “Di setiap pintunya akan ada malaikat yang menjaga.” (Diriwayatkan oleh Al-Bukhari, 1880 dan Muslim, 2449)
+Jadi timur adalah sumber kejahatan dan kesengsaraan, dan **dia akan muncul dari timur, dari Khurasan, melalui Isfahan dan memasuki Semenanjung Arab dari satu titik antara Syria dan Iraq, dengan tiada tujuan lain melainkan Madinah**, kerana di situlah terletaknya Pembawa berita gembira dan amaran (salam dan berkat Allah ke atasnya). Dia akan ingin memusnahkan penduduk Madinah (https://islamqa.info/en/answers/6196/), tetapi itu akan diharamkan kepadanya, seperti yang diriwayatkan daripada Nabi (salam dan berkat Allah ke atasnya): “Di setiap pintunya akan ada malaikat yang menjaga.” (Diriwayatkan oleh Al-Bukhari, 1880 dan Muslim, 2449)
 
 Lelaki ini akan muncul antara Syria dan Iraq, dan tujuh puluh ribu orang Yahudi Isfahan akan mengikutinya, kerana mereka adalah tenteranya. (Diriwayatkan oleh Muslim, 5237)
 
@@ -81,4 +81,4 @@ Orang Yahudi adalah antara hamba-hamba Allah yang paling jahat (https://islamqa.
 Nabi (sallallahu 'alayhi wa sallam) menggesa kita untuk teguh berdiri, kerana perkara ini adalah serius. Dan beliau (salam dan berkat Allah ke atasnya) berkata: "Sesiapa yang mendengar tentang Dajjal, hendaklah dia melarikan diri daripadanya, kerana demi Allah, seorang lelaki akan datang kepadanya dengan menyangka bahawa dia seorang yang beriman, kemudian dia akan mengikutnya kerana hujah-hujah yang menipu daya yang dia kemukakan." (Diriwayatkan oleh Abu Dawud, 3762; diklasifikasikan sebagai sahih oleh Al-Albani dalam Sahih Abu Dawud) 
 
 Seorang lelaki akan datang kepadanya dan berkata, "Dia tidak akan pernah menyesatkanku dan aku tidak akan pernah terpengaruh olehnya," tetapi dia akan terus menghasilkan hujah-hujah yang menipu sehingga dia mengikutnya – kita berlindung kepada Allah daripada itu. Kami memohon kepada Allah untuk melindungi kami dengan perlindungan-Nya. Segala puji bagi Allah, Tuhan sekalian alam. 
-Dan Allah Maha Mengetahui. ????? ????
+Dan Allah Maha Mengetahui. Wallahu a'lam.
