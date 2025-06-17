@@ -55,8 +55,6 @@ Diriwayatkan/Authority of Abu Bakar Siddiq
 
 **Dajjal’s Emergence:** A hadith from Sunan Ibn Majah (narrated by Abu Bakr Siddiq) states that the Dajjal will emerge from Khorasan, followed by people described as having “faces like hammered shields” (often interpreted as referring to certain Turkic or Mongoloid tribes).
 
-**Black Banners:** Some hadiths, such as those in Jami` at-Tirmidhi, describe “black banners” (flags) emerging from Khorasan as a sign of the coming of the Mahdi, the guided one who will precede Jesus (Isa) in Islamic eschatology. These banners are associated with a righteous army that will fight against corruption.
-
 **Symbolic Role:** Khorasan is often seen as a place of great trials (fitna) and significant events in the lead-up to the Day of Judgment
 
 Hadis oleh Ana b. Malik meriwayatkan bahawa Rasulullah Sallallahu alaihi wasallam bersabda:
