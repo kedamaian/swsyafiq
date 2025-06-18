@@ -38,7 +38,7 @@ Sekarang, belumpun dajjal keluar dari isfahan Iran tetapi dia dah berjaya tarik 
 
 Hadis yang direkodkan oleh al-Tirmizi, Ibn Majah, Ahmad, al-Hakim, dan Abu Ya'lah berbunyi: "Al-Dajjal (Dajjal) akan keluar dari negeri yang bernama Khurasan, dan dia akan diikuti oleh beberapa umat yang muka mereka seperti perisai kerana bulat, besar, dan tebal, kerana beberapa lapisan kulit yang menutupinya.
 
-ISFAHAN, IRAN (sebahagian daripada Khurasan)
+**ISFAHAN, IRAN (sebahagian daripada Khurasan)**
 
 Dajjal akan diikuti oleh tujuh puluh ribu orang Yahudi Isfahan yang memakai selendang Parsi. Rujukan: Sahih Muslim 2944 Rujukan dalam buku: Buku 54, Hadis 155 Rujukan web (Bahasa Inggeris) USC-MSA: Buku 41, Hadith 7034 [http://abuaminaelias.com/are-the-hadith-of-the-black-flags-authentic/](http://abuaminaelias.com/are-the-hadith-of-the-black-flags-authentic/)
 
