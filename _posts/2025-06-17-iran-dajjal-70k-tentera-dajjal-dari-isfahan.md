@@ -10,7 +10,7 @@ Ayatollah Khomeini, adalah ejen Barat(baca zionist) selama 25 tahun sebelum Illu
 
 Dia tergolong dalam Ikhwanul Muslimin. "Revolusi Iran" adalah serupa dengan revolusi "Arab Spring" di Tunisia, Libya, Mesir dan kini Syria.
 
-Iran dikendalikan oleh Illuminati dan digunakan sebagai alasan untuk berperang. **Iran dan blok sekutunya seperti Rusia, Turkey, Korea Utara, dan beberapa di dalam BRICS adalah tentera as-Sufyani yang sebenar.** ***As-Sufyani berselindung disebalik regim militan proksi Iran IRGC iaitu Hezbollah, Hamas, Houthi etc.***
+Iran dikendalikan oleh Illuminati dan digunakan sebagai alasan untuk berperang. **Iran dan blok sekutunya seperti Rusia, Turkey, Korea Utara, dan segelintir yang berada di dalam BRICS adalah tentera as-Sufyani yang sebenar.** ***As-Sufyani berselindung disebalik regim militan proksi Iran IRGC iaitu Hezbollah, Hamas, Houthi etc.***
 
 Dalam buku berjudul from hostage to khomeini..
 
