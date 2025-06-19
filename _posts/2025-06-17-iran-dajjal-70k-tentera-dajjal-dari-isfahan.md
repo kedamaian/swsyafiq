@@ -203,7 +203,7 @@ Beberapa negara beralih daripada pembangkang kepada penglibatan diplomatik denga
 
 ### Tinjauan tentang Al-Sufyani dalam Hadis
 
-- Peranan: Al-Sufyani lazimnya digambarkan sebagai seorang tokoh yang zalim dan zalim yang menyebarkan rasuah, melakukan kekejaman, dan menentang Imam Mahdi. Kebangkitan beliau dianggap sebagai salah satu tanda yang tidak dapat dielakkan sebelum kemunculan Mahdi, terutamanya dalam tradisi Syiah.
+- Peranan: Al-Sufyani lazimnya digambarkan sebagai seorang tokoh yang zalim yang menyebarkan rasuah, melakukan kekejaman, dan menentang Imam Mahdi. Kebangkitan beliau dianggap sebagai salah satu tanda yang tidak dapat dielakkan sebelum kemunculan Mahdi, terutamanya dalam tradisi Syiah.
 
 - Nasab: Beliau sering digambarkan sebagai keturunan Abu Sufyan, dari bani Umayyah (Banu Umayya), khususnya melalui Khalid ibn Yazid ibn Muawiya dalam beberapa riwayat.
 
