@@ -203,34 +203,33 @@ Beberapa negara beralih daripada pembangkang kepada penglibatan diplomatik denga
 
 ### Tinjauan tentang Al-Sufyani dalam Hadis
 
-Peranan: Al-Sufyani lazimnya digambarkan sebagai seorang tokoh yang zalim dan zalim yang menyebarkan rasuah, melakukan kekejaman, dan menentang Imam Mahdi. Kebangkitan beliau dianggap sebagai salah satu tanda yang tidak dapat dielakkan sebelum kemunculan Mahdi, terutamanya dalam tradisi Syiah.
+- Peranan: Al-Sufyani lazimnya digambarkan sebagai seorang tokoh yang zalim dan zalim yang menyebarkan rasuah, melakukan kekejaman, dan menentang Imam Mahdi. Kebangkitan beliau dianggap sebagai salah satu tanda yang tidak dapat dielakkan sebelum kemunculan Mahdi, terutamanya dalam tradisi Syiah.
 
-Nasab: Beliau sering digambarkan sebagai keturunan Abu Sufyan, dari bani Umayyah (Banu Umayya), khususnya melalui Khalid ibn Yazid ibn Muawiya dalam beberapa riwayat.
+- Nasab: Beliau sering digambarkan sebagai keturunan Abu Sufyan, dari bani Umayyah (Banu Umayya), khususnya melalui Khalid ibn Yazid ibn Muawiya dalam beberapa riwayat.
 
-Konteks Geografi: Pemberontakannya berpusat di Syria (Sham), khususnya Damsyik, walaupun pengaruhnya meluas ke Iraq, Madinah, dan kawasan lain.
+- Konteks Geografi: Pemberontakannya berpusat di Syria (Sham), khususnya Damsyik, walaupun pengaruhnya meluas ke Iraq, Madinah, dan kawasan lain.
 
-Tempoh Pemerintahan: Pemerintahannya biasanya dikatakan bertahan selama sembilan bulan, walaupun keseluruhan kempennya mungkin berlangsung selama 15 bulan (enam bulan bertempur diikuti sembilan bulan memerintah).
+- Tempoh Pemerintahan: Pemerintahannya biasanya dikatakan bertahan selama sembilan bulan, walaupun keseluruhan kempennya mungkin berlangsung selama 15 bulan (enam bulan bertempur diikuti sembilan bulan memerintah).
 
-Nasib: Tenteranya diramalkan akan ditelan oleh bumi di Bayda (padang pasir antara Mekah dan Madinah) semasa mengejar Mahdi, menandakan campur tangan ilahi.
+- Nasib: Tenteranya diramalkan akan ditelan oleh bumi di Bayda (padang pasir antara Mekah dan Madinah) semasa mengejar Mahdi, menandakan campur tangan ilahi.
 
-Hadis Terperinci Tentang Al-Sufyani
-1. Ketidakpastian Pemberontakan Al-Sufyani
-Sumber: Kitab al-Ghayba oleh Nu’mani, Bihar al-Anwar oleh Majlisi, dan koleksi Syiah yang lain.
+**Hadis Terperinci Tentang Al-Sufyani**
 
+- Sumber: Kitab al-Ghayba oleh Nu’mani, Bihar al-Anwar oleh Majlisi
 Riwayat: Imam Ja’far al-Sadiq (as) berkata:
 "Kebangkitan as-Sufyani adalah perkara yang tidak dapat dielakkan. Dia akan bangkit pada bulan Rejab. Ia mengambil masa lima belas bulan sejak bangkitnya hingga akhir zaman. Dia akan berperang selama enam bulan. Apabila dia menakluki lima daerah, dia akan memerintah selama sembilan bulan tidak lebih tidak kurang."
 
-2. Sumber: Kitab al-Fitan oleh Nu’aym ibn Hammad (sumber Sunni).
+- Sumber: Kitab al-Fitan oleh Nu’aym ibn Hammad (sumber Sunni).
 Diriwayatkan dari Ali bin Abi Thalib:
 “Sufyani adalah dari keturunan Khalid bin Yazid bin Abi Sufyan, seorang lelaki yang besar kepala, parut cacar di mukanya, dan bintik putih di matanya.”
 
-3. Kekejaman dan Kezaliman
+- Kekejaman dan Kezaliman
 Sumber: Al-Mustadrak ‘ala al-Sahihayn oleh Al-Hakim (sumber Sunni).
 > Diriwayatkan oleh Abu Hurairah:
 **"Seorang lelaki bernama as-Sufyani akan keluar dari kedalaman Damsyik, dan kebanyakan orang yang mengikutinya adalah dari kabilah Kalb.** Dia akan membunuh ramai orang sehingga dia merobek perut wanita dan membunuh kanak-kanak. Puak Qays akan berkumpul melawannya, dan dia akan membunuh mereka."
 
 Butiran:
 
-Jenayah: Membunuh kanak-kanak, menyembelih wanita (termasuk wanita hamil), dan membunuh beramai-ramai lawan.
-Pengikut: Terutamanya dari suku Kalb di Syria.
-Pembangkang: Menghadapi tentangan daripada suku Qays, yang dikalahkannya.
+- Jenayah: Membunuh kanak-kanak, menyembelih wanita (termasuk wanita hamil), dan membunuh beramai-ramai lawan.
+- Pengikut: Terutamanya dari suku Kalb di Syria.
+- Pembangkang: Menghadapi tentangan daripada suku Qays, yang dikalahkannya.
