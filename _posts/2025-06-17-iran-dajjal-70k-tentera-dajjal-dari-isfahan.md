@@ -69,3 +69,130 @@ Orang Yahudi adalah antara hamba-hamba Allah yang paling jahat ([https://islamqa
 Nabi (ﷺ) menggesa kita untuk teguh berdiri, kerana perkara ini adalah serius. Dan Baginda (ﷺ) berkata: "Sesiapa yang mendengar tentang Dajjal, hendaklah dia melarikan diri daripadanya, kerana demi Allah, seorang lelaki akan datang kepadanya dengan menyangka bahawa dia seorang yang beriman, kemudian dia akan mengikutnya kerana hujah-hujah yang menipu daya yang dia kemukakan." (Diriwayatkan oleh Abu Dawud, 3762; diklasifikasikan sebagai sahih oleh Al-Albani dalam Sahih Abu Dawud)
 
 Seorang lelaki akan datang kepadanya dan berkata, "Dia tidak akan pernah menyesatkanku dan aku tidak akan pernah terpengaruh olehnya," tetapi dia akan terus menghasilkan hujah-hujah yang menipu sehingga dia mengikutnya – kita berlindung kepada Allah daripada itu. Kami memohon kepada Allah untuk melindungi kami dengan perlindungan-Nya. Segala puji bagi Allah, Tuhan sekalian alam. Dan Allah Maha Mengetahui. Wallahu a'lam.
+
+## Berkenaan Sufyani
+
+Negara-negara yang Berkaitan dengan Bashar al-Assad(sebagai seorang Alawi dari suku Kalbiyya)
+
+Bahagian ini merincikan negara-negara yang menyokong atau menentang Assad, dengan fokus pada peranan mereka dalam Perang Saudara Syria dan kejatuhan rejimnya pada tahun 2024, dengan penekanan pada perubahan geopolitik. 
+
+Negara Penyokong (Sekutu)
+
+Negara-negara ini memberikan sokongan ketenteraan, politik, atau ekonomi kepada rejim Assad(Sufyani), sering kali sebagai sebahagian daripada "Axis of Resistance" atau pakatan strategik.
+
+1. Rusia: 
+     - Peranan: Penyokong ketenteraan utama sejak 2015, melancarkan serangan udara dan menghantar tentera untuk menstabilkan rejim Assad. Peranan: Penyokong ketenteraan utama sejak 2015, melancarkan serangan udara dan menghantar tentera untuk menstabilkan rejim Assad. Mengendalikan pangkalan di Latakia dan Tartus, menunjukkan kekuatan di Mediterranean.
+
+     - Tindakan Utama: Menyelamatkan pasukan Assad pada 2015–2016, tetapi tumpuan kepada Ukraine melemahkan sokongan pada 2024, menyumbang kepada kejatuhannya. Memberi suaka kepada Assad dan keluarganya di Moscow.
+
+     - Pemimpin: Vladimir Putin, Sergei Shoigu (menteri pertahanan).
+
+2. Iran: 
+     - Peranan: Sekutu terdekat, sebahagian daripada Pakatan Perlawanan bersama Syria dan Hezbollah. Menyediakan tentera, pembiayaan, dan senjata, menggunakan Syria sebagai saluran untuk membekalkan senjata kepada Hezbollah.
+
+     - Tindakan Utama: Menyokong Assad dengan angkatan IRGC dan proksi. Dilemahkan oleh serangan Israel pada tahun 2024, mengurangkan bantuan semasa serangan pemberontak.
+
+     - Pemimpin: Ebrahim Raisi, Ali Khamenei (pemimpin tertinggi).
+
+3. Lubnan (Hizbullah): 
+     - Peranan: Milisi Syiah yang disokong Iran, menghantar pejuang ke Syria dari 2013 untuk menguatkan Assad menentang pemberontak Sunni. 
+
+     - Tindakan Utama: Memainkan peranan penting dalam merampas semula Homs dan Aleppo. Dilemahkan oleh serangan Israel pada 2024, berundur dari al-Qusayr. 
+
+     - Pemimpin: Hassan Nasrallah.
+
+4. China: 
+     - Peranan: Penyokong yang tenang, diberikan sokongan diplomatik dan ekonomi. Mewujudkan perkongsian strategik dengan Syria pada 2023. 
+
+     - Tindakan Utama: Menjadi tuan rumah kepada Assad di Sukan Asia 2023, menandakan penjajaran menentang pengaruh Barat. 
+
+     - Pemimpin: Xi Jinping.
+
+5. Korea Utara: 
+     - Peranan: Membekalkan bahan senjata kimia ke Syria (2012–2017), mengikut laporan PBB. Merancang lawatan negara 2018 oleh Assad untuk bertemu Kim Jong-un. 
+
+     - Pemimpin: Kim Jong-un.
+
+6. Venezuela: 
+     - Peranan: Sekutu diplomatik kecil, menghantar ucapan tahniah kepada Assad semasa Ramadan 2024. 
+
+     - Pemimpin: Nicolás Maduro.
+
+7. Belarus: 
+     - Peranan: Penyokong diplomatik, dengan Lukashenko mengucapkan tahniah kepada Assad pada tahun 2024. 
+
+     - Pemimpin: Alexander Lukashenko.
+
+8. Algeria: Menyokong Assad secara diplomatik, dengan ucapan tahniah Bouteflika pada 2014.
+
+
+### Negara Lawan
+
+Negara-negara ini menyokong pembangkang Syria, mengenakan sekatan, atau mengambil tindakan ketenteraan terhadap Assad, menyumbang kepada pengasingan dan akhirnya penyingkiran.
+
+1. Amerika Syarikat: 
+     - Peranan: Mengetuai sekatan terhadap Assad dari 2011, menyasarkan beliau dan pegawai kanan. Menyokong SDF yang diketuai oleh Kurdish dan melakukan serangan udara anti-ISIS. 
+
+     - Tindakan Utama: Obama menyeru agar Assad meletak jawatan pada 2011; Biden bersorak kejatuhannya pada 2024. Mengekalkan 900 tentera di Syria selepas 2024. 
+
+     - Pemimpin: Joe Biden, Barack Obama, Hillary Clinton, Lloyd Austin (setiausaha pertahanan).
+
+2. Turki: 
+     - Peranan: Kumpulan pemberontak Sunni yang disokong, termasuk HTS dan Tentera Kebangsaan Syria (SNA), yang menggulingkan Assad pada 2024. Menjadi tuan rumah ~4 juta pelarian Syria. 
+
+     - Tindakan Utama: Menyokong serangan pemberontak 2024, walaupun tidak jelas sama ada ia meluluskan dorongan terakhir HTS. Bertempur dengan Kurd Syria, yang dianggap sebagai ancaman. 
+
+     - Pemimpin: Recep Tayyip Erdogan.
+
+3. Arab Saudi: 
+     - Peranan: Menyokong pembangkang Syria dengan pembiayaan dan logistik, menjadi tuan rumah persidangan pembangkang 2015. Mengintegrasikan semula Assad ke dalam Liga Arab pada 2023. 
+
+     - Pemimpin: Mohammed bin Salman.
+
+4. Qatar: 
+     - Peranan: Pembangkang Syria yang membiayai dan bersenjata, menentang penyepaduan semula Liga Arab 2023 Assad.
+
+5. United Kingdom: 
+     - Peranan: Mengenakan sekatan ke atas Assad, menyokong pembangkang, dan mengkritik jenayah perangnya. HTS terlibat selepas 2024 untuk peralihan inklusif. 
+
+- Pemimpin: James Cleverly (bekas setiausaha asing).
+
+6. Perancis: 
+     - Peranan: Disekat Assad, mengeluarkan waran tangkap untuk penggunaan senjata kimia (2023), dan menggelar rejimnya "biadab." 
+
+     - Pemimpin: Emmanuel Macron.
+
+7. Jerman: 
+     - Peranan: Pembangkang dan sekatan yang disokong, sejajar dengan A.S. dan EU terhadap Assad.
+
+8. Israel: 
+     - Peranan: Melakukan 322 serangan udara di Syria selepas 2024 untuk mengelakkan senjata jatuh kepada pelampau. Menentang pakatan Assad dengan Iran dan Hizbullah. 
+
+     - Pemimpin: Benjamin Netanyahu, Gideon Saar (menteri luar).
+
+9. Jordan: 
+     - Peranan: Menyokong pembangkang, menjadi tuan rumah kepada pelarian, dan menggesa Assad untuk membentuk kerajaan dalam  buangan pada 2024 (dinafikan oleh Jordan).
+
+10. Mesir: 
+     - Peranan: Mendesak Assad pergi pada 2024 (dinafikan oleh Mesir). Bertunang semula dengan Assad pada 2023 melalui Liga Arab. 
+
+     - Pemimpin: Abdel Fattah el-Sisi.
+
+11. Ukraine: 
+     - Peranan: Menghukum Assad pada 2023 kerana menyokong pencerobohan Rusia. 
+
+     - Pemimpin: Volodymyr Zelenskyy.
+
+Negara Berkecuali atau Melibatkan Semula
+
+Beberapa negara beralih daripada pembangkang kepada penglibatan diplomatik dengan Assad, terutamanya selepas 2018, apabila rejimnya stabil sebelum 2024.
+
+1. Emiriah Arab Bersatu: 
+     - Peranan: Mengembalikan hubungan dengan Assad pada tahun 2018, menjadi tuan rumah kepadanya pada tahun 2023. Melindungi saudara-mara Assad pada tahun 2024. 
+
+- Pemimpin: Mohamed bin Zayed Al Nahyan.
+
+2. Iraq: 
+     - Peranan: Hubungan campuran; Assad menyokong pemberontak menentang kerajaan Iraq yang disokong A.S. tetapi mengadakan perbincangan dengan PM Mohammed Shia al-Sudani pada 2023. 
+
+- Pemimpin: Mohammed Syiah al-Sudani, Nouri al-Maliki, Mowaffak al-Rubaie.
