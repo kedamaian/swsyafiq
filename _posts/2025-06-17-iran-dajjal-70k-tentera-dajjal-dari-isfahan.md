@@ -4,7 +4,7 @@ published: true
 categories:
   - Perang Akhir Zaman
 author: tehnoblequran
-title: Iran—Dajjal dan 70 ribu tenteranya dari Isfahan
+title: As-Sufyani—Iran—Dajjal dan 70 ribu tenteranya dari Isfahan
 ---
 Ayatollah Khomeini, adalah ejen Barat(baca zionist) selama 25 tahun sebelum Illuminati meletakkannya berkuasa pada 1979.
 
