@@ -10,11 +10,11 @@ Ayatollah Khomeini, adalah ejen Barat(baca zionist) selama 25 tahun sebelum Illu
 
 Dia tergolong dalam Ikhwanul Muslimin. "Revolusi Iran" adalah serupa dengan revolusi "Arab Spring" di Tunisia, Libya, Mesir dan kini Syria.
 
-Iran dikendalikan oleh Illuminati dan digunakan sebagai alasan untuk berperang.
+Iran dikendalikan oleh Illuminati dan digunakan sebagai alasan untuk berperang. **Iran dan blok sekutunya seperti Rusia, Turkey, Korea Utara, dan beberapa di dalam BRICS adalah tentera as-Sufyani yang sebenar.** ***As-Sufyani berselindung disebalik regim militan proksi Iran IRGC iaitu Hezbollah, Hamas, Houthi etc.***
 
 Dalam buku berjudul from hostage to khomeini..
 
-> \[From Hostage to Khomeini, "Pakatan antara Freemason, pemilik tanah lama dan paderi yang melancarkan operasi menentang Shah pada tahun 1963. Pemimpinnya ialah Khomeini, tetapi hanya sebagai simbol....The Voice of Iran melaporkan bahawa "Sejak zaman pelajarnya, Khomeini menerima bayaran bulanan daripada ejen British dan sentiasa berhubung dengan tuannya ms.88\]
+> [From Hostage to Khomeini, "Pakatan antara Freemason, pemilik tanah lama dan paderi yang melancarkan operasi menentang Shah pada tahun 1963. Pemimpinnya ialah Khomeini, tetapi hanya sebagai simbol....The Voice of Iran melaporkan bahawa "Sejak zaman pelajarnya, Khomeini menerima bayaran bulanan daripada ejen British dan sentiasa berhubung dengan tuannya ms.88\]
 
 Satu-satunya cara mereka boleh menjual kerajaan fasis global kepada rakyat dunia adalah dengan mencipta ritual perang dunia ketiga. Rejim Syiah & Zionis mempunyai musuh bersama: Islam.
 
