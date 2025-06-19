@@ -155,7 +155,7 @@ Negara-negara ini menyokong pembangkang Syria, mengenakan sekatan, atau mengambi
 5. United Kingdom: 
      - Peranan: Mengenakan sekatan ke atas Assad, menyokong pembangkang, dan mengkritik jenayah perangnya. HTS terlibat selepas 2024 untuk peralihan inklusif. 
 
-- Pemimpin: James Cleverly (bekas setiausaha asing).
+     - Pemimpin: James Cleverly (bekas setiausaha asing).
 
 6. Perancis: 
      - Peranan: Disekat Assad, mengeluarkan waran tangkap untuk penggunaan senjata kimia (2023), dan menggelar rejimnya "biadab." 
@@ -182,17 +182,21 @@ Negara-negara ini menyokong pembangkang Syria, mengenakan sekatan, atau mengambi
      - Peranan: Menghukum Assad pada 2023 kerana menyokong pencerobohan Rusia. 
 
      - Pemimpin: Volodymyr Zelenskyy.
+   
+12. Kesatuan Eropah: Mengenakan sekatan (2011) dan membincangkan melonggarkannya selepas 2024 untuk menyokong pembinaan semula Syria.
 
-Negara Berkecuali atau Melibatkan Semula
+13. Kanada: Mengenakan sekatan ke atas rejim Assad pada 2011. 
+
+### Negara Berkecuali atau Melibatkan Semula
 
 Beberapa negara beralih daripada pembangkang kepada penglibatan diplomatik dengan Assad, terutamanya selepas 2018, apabila rejimnya stabil sebelum 2024.
 
 1. Emiriah Arab Bersatu: 
      - Peranan: Mengembalikan hubungan dengan Assad pada tahun 2018, menjadi tuan rumah kepadanya pada tahun 2023. Melindungi saudara-mara Assad pada tahun 2024. 
 
-- Pemimpin: Mohamed bin Zayed Al Nahyan.
+     - Pemimpin: Mohamed bin Zayed Al Nahyan.
 
 2. Iraq: 
      - Peranan: Hubungan campuran; Assad menyokong pemberontak menentang kerajaan Iraq yang disokong A.S. tetapi mengadakan perbincangan dengan PM Mohammed Shia al-Sudani pada 2023. 
 
-- Pemimpin: Mohammed Syiah al-Sudani, Nouri al-Maliki, Mowaffak al-Rubaie.
+     - Pemimpin: Mohammed Syiah al-Sudani, Nouri al-Maliki, Mowaffak al-Rubaie.
