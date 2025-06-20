@@ -10,15 +10,15 @@ Ayatollah Khomeini, adalah ejen Barat(baca zionist) selama 25 tahun sebelum Illu
 
 Dia tergolong dalam Ikhwanul Muslimin. "Revolusi Iran" adalah serupa dengan revolusi "Arab Spring" di Tunisia, Libya, Mesir dan kini Syria.
 
-Iran dikendalikan oleh Illuminati dan digunakan sebagai alasan untuk berperang. **Iran dan blok sekutunya seperti Rusia, China, Korea Utara, Lubnan Belarus, Algeria dan segelintir yang berada di dalam BRICS adalah tentera as-Sufyani yang sebenar. As-Sufyani berselindung disebalik regim militan proksi-Iran IRGC iaitu Hezbollah, Hamas, Houthi etc.**
+Iran dikendalikan oleh Illuminati dan digunakan sebagai alasan untuk berperang. **Iran dan blok sekutunya seperti Rusia, ^China, Korea Utara, Lubnan Belarus, Algeria dan segelintir yang berada di dalam BRICS adalah tentera as-Sufyani yang sebenar. As-Sufyani berselindung disebalik regim militan proksi-Iran IRGC iaitu Hezbollah, Hamas, Houthi etc.**
 
-Dalam buku berjudul from hostage to khomeini..
+Dalam buku berjudul <ins>from hostage to khomeini..</ins>
 
 > [From Hostage to Khomeini, "Pakatan antara Freemason, pemilik tanah lama dan paderi yang melancarkan operasi menentang Shah pada tahun 1963. Pemimpinnya ialah Khomeini, tetapi hanya sebagai simbol....The Voice of Iran melaporkan bahawa "Sejak zaman pelajarnya, Khomeini menerima bayaran bulanan daripada ejen British dan sentiasa berhubung dengan tuannya ms.88\]
 
 Satu-satunya cara mereka boleh menjual kerajaan fasis global kepada rakyat dunia adalah dengan mencipta ritual perang dunia ketiga. Rejim Syiah & Zionis mempunyai musuh bersama: Islam.
 
-Musuh kita(baca: umat Islam) bersama adalah syiah iran(zionist) dan sekutu zionisnya korea utara russia turkey dan semua pakatan blok2 mereka..dulu masa pemerintahan obama(amerika) siap bagi berbilion dana kpd iran utk fund proxy group terrorist dia regime irgc sperti hezbollah(lebanon, syria), houthis(yaman) & quds force..benda ni dah lama bukan baru..sejak 1970 lagi US fund terrorist Iran..us-iran ni strong allies sejak akhir WW2 lagi dan sehingga kini. Cuma sejak revolusi iran 1979 depa main "shadow" bilamana berlaku pertukaran aset cia iaitu shah(pro-amerika) di gantikan dan dimasukkan ayatollah("so called" anti amerika). Ini permainan diversion. Regime iran yg genocide rakyat palestin melalui allies mereka us dan bibi.
+Musuh kita(baca: umat Islam) bersama adalah syiah iran(zionist) dan sekutu zionisnya korea utara russia ^china dan semua pakatan blok2 mereka..dulu masa pemerintahan obama(amerika) siap bagi berbilion dana kpd iran utk fund proxy group terrorist dia regime irgc sperti hezbollah(lebanon, syria), houthis(yaman) & quds force..benda ni dah lama bukan baru..sejak 1970 lagi US fund terrorist Iran..us-iran ni strong allies sejak akhir WW2 lagi dan sehingga kini. Cuma sejak revolusi iran 1979 depa main "shadow" bilamana berlaku pertukaran aset CIA iaitu shah(pro-amerika) di gantikan dan dimasukkan ayatollah("so called" anti amerika). Ini permainan diversion. Regime iran yg genocide rakyat palestin melalui allies mereka us dan bibi.
 
 Semua ni balik kpd shadow government yg kita xnampak disebalik tirai iaitu yahudi zionist globalist Rothschild dan Rockerfeller untuk mengelirukan musuh(baca: kita)..sbb mereka bijak suap kiri kanan atas bwh( play both sides of the coin) melaga2kan demi kelangsungan NWO.
 
@@ -102,7 +102,7 @@ Negara-negara ini memberikan sokongan ketenteraan, politik, atau ekonomi kepada 
      - Pemimpin: Hassan Nasrallah.
 
 4. **China**: 
-     - Peranan: Penyokong yang tenang, diberikan sokongan diplomatik dan ekonomi. Mewujudkan perkongsian strategik dengan Syria pada 2023. 
+     - Peranan: Penyokong dalam diam, diberikan sokongan diplomatik dan ekonomi. Mewujudkan perkongsian strategik dengan Syria pada 2023. 
 
      - Tindakan Utama: Menjadi tuan rumah kepada Assad di Sukan Asia 2023, menandakan penjajaran menentang pengaruh Barat. 
 
@@ -144,7 +144,7 @@ Negara-negara ini menyokong pembangkang Syria, mengenakan sekatan, atau mengambi
 
      - Pemimpin: Recep Tayyip Erdogan.
 
-3. **Arab Saudi**: 
+3. **^Arab Saudi(lalang)**: 
      - Peranan: Menyokong pembangkang Syria dengan pembiayaan dan logistik, menjadi tuan rumah persidangan pembangkang 2015. Mengintegrasikan semula Assad ke dalam Liga Arab pada 2023. 
 
      - Pemimpin: Mohammed bin Salman.
@@ -187,7 +187,7 @@ Negara-negara ini menyokong pembangkang Syria, mengenakan sekatan, atau mengambi
 
 13. **Kanada**: Mengenakan sekatan ke atas rejim Assad pada 2011. 
 
-### Negara Berkecuali atau Melibatkan Semula
+### Negara Berkecuali
 
 Beberapa negara beralih daripada pembangkang kepada penglibatan diplomatik dengan Assad, terutamanya selepas 2018, apabila rejimnya stabil sebelum 2024.
 
@@ -211,7 +211,7 @@ Beberapa negara beralih daripada pembangkang kepada penglibatan diplomatik denga
 
 - Tempoh Pemerintahan: Pemerintahannya biasanya dikatakan bertahan selama sembilan bulan, walaupun keseluruhan kempennya mungkin berlangsung selama 15 bulan (enam bulan bertempur diikuti sembilan bulan memerintah).
 
-- Nasib: Tenteranya diramalkan akan ditelan oleh bumi di Bayda (padang pasir antara Mekah dan Madinah) semasa mengejar Mahdi, menandakan campur tangan ilahi.
+- Nasib: Tenteranya diramalkan akan ditelan oleh bumi di Bayda (padang pasir antara Mekah dan Madinah) semasa mengejar Mahdi, menandakan kekuasaan Allah.
 
 **Hadis Terperinci Tentang Al-Sufyani**
 
@@ -221,7 +221,7 @@ Riwayat: Imam Ja’far al-Sadiq (as) berkata:
 
 - Sumber: Kitab al-Fitan oleh Nu’aym ibn Hammad (sumber Sunni).
 Diriwayatkan dari Ali bin Abi Thalib:
-“Sufyani adalah dari keturunan Khalid bin Yazid bin Abi Sufyan, seorang lelaki yang besar kepala, parut cacar di mukanya, dan bintik putih di matanya.”
+“Sufyani adalah dari keturunan Khalid bin Yazid bin Abi Sufyan, **seorang lelaki yang besar kepala, parut cacar di mukanya, dan bintik putih di matanya.”**
 
 - Kekejaman dan Kezaliman
 Sumber: Al-Mustadrak ‘ala al-Sahihayn oleh Al-Hakim (sumber Sunni).
@@ -230,6 +230,6 @@ Sumber: Al-Mustadrak ‘ala al-Sahihayn oleh Al-Hakim (sumber Sunni).
 
 Butiran:
 
-- Jenayah: Membunuh kanak-kanak, menyembelih wanita (termasuk wanita hamil), dan membunuh beramai-ramai lawan.
-- Pengikut: Terutamanya dari suku Kalb di Syria.
+- Jenayah: Membunuh kanak-kanak, menyembelih wanita (termasuk wanita hamil), dan membunuh beramai-ramai musuh lawan.
+- Pengikut: Terutamanya dari **suku Kalb** di Syria.
 - Pembangkang: Menghadapi tentangan daripada suku Qays, yang dikalahkannya.
