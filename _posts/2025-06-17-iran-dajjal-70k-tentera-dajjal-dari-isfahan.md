@@ -233,3 +233,9 @@ Butiran:
 - Jenayah: Membunuh kanak-kanak, menyembelih wanita (termasuk wanita hamil), dan membunuh beramai-ramai musuh lawan.
 - Pengikut: Terutamanya dari **suku Kalb** di Syria.
 - Pembangkang: Menghadapi tentangan daripada suku Qays, yang dikalahkannya.
+
+![irna](https://github.com/user-attachments/assets/e353e275-2c57-40b6-9507-d565790342c0)
+![472299150_1507869146571527_1524567721604749451_n](https://github.com/user-attachments/assets/f11d976a-6d12-40b9-a433-9608f5566835)
+![499342892_1597641807594260_889820587530273308_n](https://github.com/user-attachments/assets/47e739fc-93e0-464b-b003-d7fbf68410e5)
+![499258118_1599050580786716_8066534622260333528_n](https://github.com/user-attachments/assets/4fee6246-e67a-41db-bf50-a83e6b9183d2)
+![499247310_1599050717453369_733193119789053385_n](https://github.com/user-attachments/assets/3f8af717-3722-4761-a1c8-757255dff64e)
