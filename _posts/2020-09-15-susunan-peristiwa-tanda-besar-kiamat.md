@@ -79,6 +79,7 @@ Kalau boleh ikat para wanita (yang jahil agama) ketika datangnya Dajjal kelak, m
 والله اعلم
 
 //Rasyid Al-Kinti
+
 _Entry was published at 2020-09-15_
 --------------------------------------
 
