@@ -86,7 +86,7 @@ _entry was published at September 15, 2020_
 
 Di bawah ini adalah detail kronologi peristiwa, yang dinubuatkan oleh Rasulullah (ﷺ) hingga hari akhir. Senarai ini tidak menyeluruh dan hanya termasuk yang utama dari antara tanda-tanda utama. Jika anda ingin mengetahui lebih lanjut tentang mana-mana perkara ini dari segi tanda itu sendiri atau mengapa saya meletakkannya dalam urutan yang dinyatakan, sila tinggalkan komen di bawah.
 
-Sebelum anda meneruskan, saya mengesyorkan ini sebagai mesti dibaca [1](https://kedamaian.github.io/swsyafiq/perang%20akhir%20zaman/2025/06/17/iran-dajjal-70k-tentera-dajjal-dari-isfahan/) [2](https://kedamaian.github.io/swsyafiq/perang%20akhir%20zaman/2025/06/19/siapa-rom/). Sila simpan soalan anda sehingga anda membacanya; Saya pasti kebanyakannya akan dijawab oleh pautan ini.
+Sebelum anda meneruskan, saya mengesyorkan ini sebagai mesti dibaca [1](https://kedamaian.github.io/swsyafiq/perang%20akhir%20zaman/2025/06/17/iran-dajjal-70k-tentera-dajjal-dari-isfahan/), [2](https://kedamaian.github.io/swsyafiq/perang%20akhir%20zaman/2025/06/19/siapa-rom/). Sila simpan soalan anda sehingga anda membacanya; Saya pasti kebanyakannya akan dijawab oleh pautan ini.
 
 Tanda-tanda kecil seperti kehilangan moral, peningkatan dalam jenayah dan maksiat, tidak senonoh dan lain-lain terus berlaku sejak berabad-abad lalu dan oleh itu saya tidak memasukkannya ke dalam senarai. Di bawah ialah senarai tanda-tanda utama mengikut urutan: 
 
