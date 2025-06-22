@@ -78,9 +78,9 @@ Kalau boleh ikat para wanita (yang jahil agama) ketika datangnya Dajjal kelak, m
 وصلى الله على سيدنا محمد وعلى اله وصحبه وبارك وسلم
 والله اعلم
 
--Rasyid Al-Kinti
+//Rasyid Al-Kinti
 _Entry was published at 2020-09-15_
-=================================
+--------------------------------------
 
 Di bawah ini adalah detail kronologi peristiwa, yang dinubuatkan oleh Rasulullah (ﷺ) hingga hari akhir. Senarai ini tidak menyeluruh dan hanya termasuk yang utama dari antara tanda-tanda utama. Jika anda ingin mengetahui lebih lanjut tentang mana-mana perkara ini dari segi tanda itu sendiri atau mengapa saya meletakkannya dalam urutan yang dinyatakan, sila tinggalkan komen di bawah.
 
